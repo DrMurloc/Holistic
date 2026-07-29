@@ -10,7 +10,7 @@ Harin was officially in full swing as Chibi Cosmo, and was climbing rapidly. The
 
 Sho reached for his phone to check the time. He cursed, it was dead, the chord must have gotten bumped out.
 
-He stumbled over to his computer to check the time, and cursed again, scrambling to get dressed. He was not likely going to make it on time. The thought of his phone being dead worried him, but they would have her phone. And she knew enough Japanese to have very basic small talk at this point.
+He stumbled over to his computer, and cursed again, scrambling to get dressed. He was not likely going to make it on time. The thought of his phone being dead worried him, but they would have her phone. And she knew enough Japanese to have very basic small talk at this point.
 
 He stopped by the kitchen, contemplating a piece of bread, *no time for cliches.* He ran, almost full sprint, towards the metro.
 
@@ -26,11 +26,11 @@ She was there, he could see her curly hair through the window. He practically sk
 
 He reached into his pocket and held up his dead phone. Her eyes went wide, and pointed to the battery meter on her phone. It was low.
 
-Sho’s heart dropped, he pulled her phone over to him and started typing with purpose. He then paused and erased what he had, hoping she hadn’t seen, and wrote a new message, “You don’t seem happy about that news.”
+Sho’s heart dropped, he said in basic Japanese, “Is that not happy?”
 
-Lara shook her head and took a deep breath, typing quickly, “No it’s great news. I wish I could say more. It’s a perfect job. But it’s remote. I can work anywhere.”
+Lara shook her head and took a deep breath, typing quickly, “No it’s great news. Very happy news. I wish I could say more. It’s a perfect job. But it’s remote. I can work anywhere.”
 
-Sho studied the message, and wrote back, “I don’t understand what part of this is bad.”
+Sho tilted his head at her, and said, still using simple words “That is good, yes? I don’t understand.”
 
 Lara looked away, seeming unsure of herself, “I need to go home, at least until that job starts.” She reluctantly pushed the phone over.
 
@@ -60,11 +60,11 @@ Sho tilted his head like she should know this, “Daisuki!”
 
 Lara shook her head, her shocked expression melting into confusion.
 
-“Daisuki, daisuki, daisuki!” He said louder, like that would help her. She saw others in the cafe turning to face them, several holding their hands up to their mouths.
+“Daisuki, daisuki, daisuki!” He said louder, like that would help her. She saw others in the cafe turning to face them, several holding their hands up to their mouths. Whatever he was saying was dramatic… Was he… He couldn’t be…
 
 She turned back to him, her heart pounding, “I’m sorry. I don’t understand.”
 
-He took another deep breath and said in plain Spanish, “This is why we don’t watch dubs.”
+He took another deep breath and said very slowly, in plain Spanish, “This is why we don’t watch dubs.”
 
 He then leaned across the small table, pulling her slightly forward, and kissed her.
 

@@ -6,7 +6,7 @@ A pint of a local craft beer and a bulgogi pizza took up the table in front of h
 
 The girl in question brought what Asuna described as “Modern KPop attitude but with traditional JPop foundations.” He had no clue what that attitude was. He just knew the girl was most certainly good from what he saw.
 
-It had only been three weeks since the concert. He had discovered that Asuna was indeed quite the ball of passion underneath all those other layers and faces. It was a welcome change of pace, and he did his best to keep up.
+It had been some time since the concert. He had discovered that Asuna was indeed quite the ball of passion underneath all those other layers and faces. It was a welcome change of pace, and he did his best to keep up.
 
 Early on he had been concerned it would feel disrespectful to Vanessa’s memory. He continued to be more and more able to split his life into two distinct categories: Asuna, and Vanessa, with a dark time in between that he did his best to avoid thinking about. Nothing in either of the two lives was allowed to interfere with the other. He would likely eventually need to mentally consolidate better, but for now it worked.
 
@@ -18,7 +18,7 @@ Hawthorn typed out: “No, find a public resource on basic Sexual Harassment tra
 
 The response came quickly: “Lara and Sho, saw them in a cafe, laughing endlessly.”
 
-Those two? Asuna had been slowly catching him up on staff names since he concluded he would be at each of the concerts. Neither of them spoke almost any English, and Lara spoke spanish. How would that work? Clearly they figured *something* out.
+Those two? Asuna had been slowly catching him up on staff names as he attended more concerts. Neither of them spoke almost any English, and Lara spoke spanish. How would that work? Clearly they figured *something* out.
 
 Hawthorn responded: “Huh. Good for them. I probably shouldn’t have asked. Sexual Harassment training, beyond that it’s none of our business.” A thumbs up came back from Kenji.
 
@@ -58,7 +58,9 @@ The girl shook his hand. *Wow, firm handshake.* Her eyes narrowed, “My name is
 
 Hawthorn and Asuna exchanged glances, “I dabble in most everything.” Hawthorn chuckled. Asuna pushed over the phone, walking the girl through the various legal documents. Since Naomi wasn’t involved today the NDA wasn’t required. Asuna was in fact a known public figure associated with Mimi Galaxy. He wasn’t sure this girl knew that though, or she was acting very nonchalant about it. The Japanese talent they had scouted knew immediately and practically groveled.
 
-Hawthorn had been pleased to see Asuna dropping that disguise more and more around him. The very few times she needed to be by herself she would wear it, but he got to enjoy the closest thing to “real Asuna” that existed most days.
+Hawthorn had been pleased to see Asuna dropping Naomi more and more around him. She kept the brown contacts in though, those only came off at home or as Mimi. He picked up that her unique eyes felt like a poijt of vulnerability to her.
+
+The very few times she needed to be by herself she would wear the wig, but he got to enjoy the closest thing to “real Asuna” that existed most days.
 
 It was done. Mimi had a successor. Industries shook and no one was any the wiser yet. Hawthorn loved small moments like these, a few signatures that represented branching implications far across the world. They came so rarely and typically had many more lawyers involved. Hawthorn fired off a quick message to Kenji notifying him that he had onboarding papers to get ready.
 

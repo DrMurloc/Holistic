@@ -26,7 +26,7 @@ Mimi saw the light come on, she needed to get into position. She looked over her
 
 The raw energy of the crowd surprised him. The glowsticks were a cool effect, supposedly they changed color based on the song being played. The technical implications of that astounded him, there was a *lot* of money in developing these performances.
 
-Music blared, he put the earplugs in that the stage coordinator provided him. He was still able to hear the music well, but it helped tone down the bass which he could practically feel.
+Music blared, he put the earplugs in that the stage coordinator provided him. He was still able to hear the music well, but it helped tone down the bass which he could literally feel.
 
 A few more rounds of the opening song, he watched as Asuna, still off stage, hopped a few times in rhythm. *She's hyping herself up.* She then raised a hand and burst out onto the colorful stage, and the stadium *erupted*. How could the audience drown out that bass?
 
@@ -34,19 +34,19 @@ She was good. He found himself smiling. The precise movements, her provocative m
 
 She appeared to be enjoying herself. He would have to wait to hear her thoughts though, it would be impossible to get a read on Asuna while Mimi was in control, he was sure. But he was definitely confident this level of deliberate energy would not be possible without some level of passion.
 
-And where is my passion? She had in fact turned the question back on him. He had avoided the thought. Grief’s icy tendrils had in fact lessened their grip, but he wasn't quite sure what he felt for this girl was enough to melt it, at least not yet. He knew he wanted to continue helping her stabilize, but that wasn't quite *passion*. Just an overlapping of hobbies in the business sector.
+And where is my passion? She did turn the question back on him too. He had avoided the thought. Grief’s icy tendrils had in fact lessened their grip, but he wasn't quite sure what he felt for this girl was enough to melt it, at least not yet. He knew he wanted to continue helping her stabilize, but that wasn't quite *passion*. Just an overlapping of hobbies in the business sector.
 
-He was cognizant of the fact that he could even have that conversation with himself though. It had been a huge step, the idea of even *considerin*g romantic interests would have been laughable two months ago. He had Asuna to thank for that. She was so receptive to his support, it had been a very needed outlet.
+He was cognizant of the fact that even having that conversation with himself was significant. It had been a huge step, the idea of even *considerin*g romantic interests would have been laughable two months ago. He had Asuna to thank for that. She was so receptive to his support, it had been a very needed outlet.
 
-The song shifted, snapping Hawthorn out of his daze. He turned to watch one of the stage hands prepping a small table of snacks and water for the intermission. Was she… Hispanic? Working in Japan? Long black hair tied in a ponytail with slightly darker skin. She met his look momentarily, then moved on.
+The song shifted, snapping Hawthorn out of his daze. He turned to watch one of the stage hands prepping a small table of snacks and water for the intermission. Was she… Hispanic? Working in Japan? Long curly black hair tied back into a ponytail, with slightly darker skin. She met his look momentarily, then moved on.
 
 *I guess a foreigner shouldn't be questioning a foreigner.* Hawthorn chuckled to himself, turning back to the show as the song ended.
 
 **Lara**
 
-Lara bobbed to the music, her curly hair bouncing behind her, temporarily forgetting her job. Most of the other stage hands were lounging nearby. None of them spoke Spanish, she definitely didn't speak Japanese, and she only spoke basic English. Conversations typically had been minimal.
+Lara bobbed to the music, her hair bouncing behind her, temporarily forgetting her job. Most of the other stage hands were lounging nearby. None of them spoke Spanish, she definitely didn't speak Japanese, and she only spoke basic English. Conversations typically had been minimal.
 
-She was useful to this though, this was her seventh country, Dominican Republic included, and she had just gotten used to language and cultural barriers.
+She was used to this though, the language and cultural barriers. After six other countries, Dominican Republic included, she just got used to not being able to communicate.
 
 She heard the last song before the intermission start, and snapped to attention. Refreshments. Right. She ran to the break room and got a collection of power bars and cold water bottles. There were two minutes based on where the song was, so took her time returning.
 
@@ -66,9 +66,9 @@ Lara escorted her back to makeup, the few people she ran into made way for the e
 
 She said a few words in Japanese, then seemed to remember she was with Lara. “Time?” She asked in simple English. Lara got that word! Numbers… numbers…
 
-“Ten minutos. Minutes. Ten minutes.” Lara responded, checking her watch. Mimi smiled with a bit of pride. Lara had found it interesting that Miss Morita had taken such an interest in her learning English. Or taken an interest in her at all, for that matter.
+“Ten minutos. Minutes. Ten minutes.” Lara responded, checking her watch. Mimi smiled with a bit of pride. Lara had found it interesting that Miss Morita took such an interest in her learning English. Or took any interest in her at all, for that matter.
 
-Miss Morita was truly an inspiration to her though. Not many outside the company knew how much of the inner workings was simply her. Lara had no clue how that girl had time for anything beyond work. Maybe that's what the American was there to help with, she had seen him talking to Kenji a lot, and she had been more and more reporting to him.
+Miss Morita was truly an inspiration to her though. Not many outside the company knew how much of the inner workings was simply her. Lara had no clue how that girl had time for anything beyond work. Maybe that's what the American was there to help with, she had seen him talking to Kenji a lot, and she had more and more seen Kenji take over as a result.
 
 “Five minutes.” Lara exclaimed, opening the door. Mimi smiled into the mirror, flashing a pose with a peace sign. Content, she turned and let Lara escort her back out.
 
@@ -84,13 +84,13 @@ Lara smiled, feeling the bounce in her step with the music, and returned to the 
 
 Mimi sang. She danced. She would gesture and glowsticks would wave. She controlled this crowd. It wasn't simply a performance, it was an interaction. This crowd tonight was extra responsive, her little “sing back and forth” section went flawlessly. Which was good, the ‘save face’ segment for that was still underdeveloped for her tastes.
 
-She was having fun, not as much as she once had. She *could* keep doing this for a few years, she concluded. But it wasn't passion.
+She was having fun, not as much as she once had. She *could* keep doing this for a few years, she concluded. But it wasn't *passion*.
 
 She walked to the edge of the stage as a song shifted into a more metal segment. Her hands forward, she split the crowd. It was seamless, almost as if she had real magic. A circle formed, and an older couple stumbled into the center, waving glow sticks in the air, the crowd cheering them on. The man wore the tacky light up glasses that they sometimes sold.
 
 She had to hold back a laugh, but let her smile deepen for a moment. Astrid's parents seemed to be having a good time. She turned back into the stage and kept the routine going. She caught a brief glimpse of Hawthorn off the side of the stage, he leaned casually with a content smile. The motivation from his smile helped her focus, going into a series of slightly acrobatic flips that were very difficult to maintain singing during.
 
-She was almost done. Just the encore left. This song slowly came to an end. She bowed, followed into a few spins, and a cute pose with a peace sign, and ran off the stage. The stadium immediately erupted into demands for an encore.
+She was almost done. Just the encore left. The current song slowly came to an end. She bowed, followed into a few spins, and a cute pose with a peace sign, and ran off the stage. The stadium immediately erupted into demands for an encore.
 
 Lara brought her water which she downed immediately, letting herself pant a bit to catch her breath.
 
@@ -118,7 +118,7 @@ But if decoupling herself from the idol scene meant she could focus more on *thi
 
 **Hawthorn**
 
-Hawthorn's jaw dropped. The absolute raw elegance of that voice… His heart sped up, he looked down as if he needed to catch it.
+Hawthorn's jaw dropped. His generally cool and collected composure cracked. The absolute raw elegance of that voice… His heart sped up, he looked down as if he needed to catch it.
 
 This song was not like the others. This was not Mimi. This was Asuna. He almost felt jealous, a stadium full of people getting to see into the soul of someone he had begun to care so much about.
 
@@ -132,7 +132,7 @@ The song came to a crescendo, seeming to raise his body, is heart, his soul with
 
 **Asuna**
 
-Asuna walked calmly off the stage, her mind was not on the crowd. Her mind was not on the performance. Her eyes locked onto the only man in the world that meant anything to her right now. Their eyes met. He turned and walked back between two curtains where they would have more privacy.
+Asuna walked calmly off the stage, her mind was not on the crowd. Her mind was not on the performance. Her eyes locked onto the only man in the world that meant anything to her right now. His face was unreadable, he turned and walked back between two curtains where they would have more privacy.
 
 “Hawthorn, I have my answer.” She said, following him into the secluded space. She wore a wide grin, heart beating with enthusiasm.
 

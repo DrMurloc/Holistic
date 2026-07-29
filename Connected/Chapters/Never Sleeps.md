@@ -2,7 +2,7 @@
 
 Thanksgiving weekend was upon them. Naina was nervous, not just because of a four hour drive, or the abhorrent amount of money she was going to spend over the course of only four days.
 
-The nervousness was partly due to tonight either breaking a critical friendship she had grown to be dependant on, or evolving it to something greater for both of them.
+The nervousness was partly due to tonight either breaking a critical friendship she had grown to be dependent on, or evolving it to something greater for both of them.
 
 But no, all of that she could compartmentalize. The part that made her nervous was the absolute distinct lack of talk tracks or procedure she had for *anything* involving travel. She could picture the dozens of conversations she would need to make up on the spot. She would have to interact with *restaurant staff*, in an *expensive* restaurant!
 
@@ -10,11 +10,11 @@ What if she ordered her steak wrong? What if she had saved their play tickets wr
 
 She was confident in her overall plan, Cale had definitely helped with the preparation. But the details… she couldn't keep them all in her head, and that scared her. Everything had to be perfect but she couldn't picture everything being perfect at once, so her brain filled in the gaps with fear of failure.
 
-Zoey's light snoring snapped her out of that panic. They had left bright and early, Cale recommended parking in Philly and taking the train into the city. It didn't cost much more than parking in the city, and Naina could avoid the existential panic that would have been driving in New York.
+Zoey's light snoring snapped her out of that panic, a sign of things already being on the right track. They had left bright and early, Cale recommended parking in Philly and taking the train into the city. It didn't cost much more than parking in the city, and Naina could avoid the existential dread that would have been driving in New York.
 
-Of course Zoey would realize very quickly that they weren’t going to Los Angeles when they got on a train instead of a Plane. Naina off-handedly mentioned early on “I’ll coordinate the tickets to keep things simple” and Zoey never dug further. Naina could not figure out if she was a master manipulator or if Zoey was just simply that naive and oblivious. But she didn’t like lying, so she figured she would make the best out of this lie and lean into the skid.
+Of course Zoey would realize very quickly that they weren’t going to Los Angeles when they got on a train instead of a plane. Naina off-handedly mentioned early on “I’ll coordinate the tickets to keep things simple” and Zoey never dug further. Naina could not figure out if she was a master manipulator or if Zoey was just simply that naive and oblivious. But she didn’t like lying, so she figured she would make the best out of this lie and lean into the skid.
 
-Naina sent Zoey a link to a particularly captivating fanfic the night before of her favorite trashy movie, “Love Is”. She had hoped it would keep her up late so she would sleep during most of the day. It seemed to have worked to some extent, as when they met up to leave Zoey had actually stumbled into a signpost thinking she was following Naina.
+Naina sent Zoey a link to a particularly captivating fanfic the night before of her favorite trashy movie, “Love Is”. She had hoped it would keep her up late so she would sleep during most of the day. It seemed to have worked to some extent, as when they met up to leave, Zoey had actually stumbled into a signpost thinking she was following Naina.
 
 She threw on an audio book, Path of Queens, and let herself get lost in a fantasy world of storms, crabs, and way too many rugged men that just needed a hug. It would be a long drive and she needed something fantastical to distract her from the very real horrors of unstructured socialization she would face tonight.
 
@@ -38,15 +38,15 @@ Naina paused briefly, staring at Zoey, before responding simply, “Yes.”
 
 “This is why I love you, Naina.” Zoey lowered herself to the aisle seat, raised the arm rest between them, and curled up slightly using Naina's shoulder as a pillow.
 
-“You're just so practical. Trains. Who would have thought.” She held Naina's arm like a stuffed animal, and let sleep retake full custody of her brain.
+“You're just so practical. Trains. Who would have thought.” She grabbed and held Naina's arm like a stuffed animal, and let sleep retake full custody of her brain.
 
 **Naina**
 
 Naina sat rigidly still for the *entire* ride. She had a dozen fics she wanted to be reading. But all of those paled in comparison to the mix of fear and joy that filled her.
 
-Had Zoey confess to her? Did that undermine her plans? Did she need to adjust? “Hey Zoey, I love you too.” Right when she woke up didn't seem quite the romantic angle Naina had been building up to. Besides, “love” often had a different meaning between girls. Right? Granted she had never heard Zoey use the word in the context of herself before.
+Had Zoey confessed to her? Did that undermine her plans? Did she need to adjust? Just saying a casual “Hey Zoey, I love you too.” right when she woke up didn't seem quite the romantic angle Naina had been building up to. Besides, “love” often has a different meaning between girls. Right? Granted she had never heard Zoey use the word in the context of herself before.
 
-The two had definitely hung out with physical touching before, mostly using eachother as pillows. The arm grab is what made Naina's mind race. There was something distinctively intimate about the way Zoey was holding her.
+The two had definitely hung out with physical touching before, mostly using each other as pillows. The arm grab is what made Naina's mind race. There was something distinctively intimate about the way Zoey was holding her.
 
 “Now approaching New York. This is the last stop, all passengers must exit.” The conductor announced over the speakers.
 
@@ -60,19 +60,19 @@ Zoey's eyes snapped open, looking down at the arm she held. She immediately rele
 
 “Wait a train to Los Angeles makes no sense. That would be like at least twenty days of travel.”
 
-Naina cautiously waited a moment until the last of the other passengers turned off the train out of ear shot, “No, we just took the train to the airport.”
+Naina cautiously waited a moment until the last of the other passengers turned off the train out of ear shot, “About three to five days, by the way. But no, we just took the train to the airport.”
 
 Zoey studied Naina very briefly, but almost immediately turned with a “Smart.” They deboarded. Zoey fell in step behind Naina, checking her phone, oblivious to the surrounding signs pointing to very obviously New York-y Street names.
 
-Naina felt a spike of pride. Had she done it? Had this actually worked? Statistically it had been impossible… she supposed it helped that Zoey was easily distractible, and tended to not think about things too hard. She contemplated the practicality of getting her a leash while they were in the city. The idea of her wandering off following someone who just happened to have red hair actually concerned Naina.
+Naina felt a spike of pride. Had she done it? Had this actually worked? Statistically it had been impossible… She supposed it helped that Zoey was easily distractible, and tended to not think about things too hard. She contemplated the practicality of getting her a leash while they were in the city. The idea of her wandering off following someone who just happened to have red hair actually concerned Naina.
 
 The moment approached, the long escalator was packed full of people. Naina turned to watch Zoey, feeling a slight smile spread across her face.
 
-Zoey sniffed the air, confused, “Is trash collection on strike again?” She looked around, seeming to recognize the abnormally diverse crowd that surrounded them. Her phone went into her pocket, and her eyes met Naina's. Naina did not look away, her grip tightened on her suit case handle.
+Zoey sniffed the air, confused, “Is trash collection on strike?” She looked around, seeming to recognize the abnormally diverse crowd that surrounded them. Her phone slowly went into her pocket, and her eyes met Naina's. Naina did not look away, her grip tightened on her suitcase handle.
 
 They exited the escalator and the city *opened* around them. This was Naina's first time too, so as much as she wanted to watch Zoey, she found herself glancing up at the skyline in awe.
 
-“Naina?” Zoey walked forward, getting out of the way of the rest of the crowd. Her jaw had dropped, and she spun, taking in the city. It was truly remarkable, endless lines of skyscrapers, bustling crowds of people seemed to move in unison across streets. An endless line of cars honking for seemingly no reason. This city was *alive*.
+“Naina?” Zoey walked forward, getting steadily bumped out of the way of the rest of the crowd. Her jaw had dropped, and she spun, taking in the city. It was truly remarkable, endless lines of skyscrapers, bustling crowds of people seemed to move in unison across streets. An endless line of cars honking for seemingly no reason. This city was *alive*.
 
 “Naina.” Zoey returned to Naina, her eyes wide, “Are we meeting Cale and his parents here?”
 
@@ -98,13 +98,13 @@ They stood there for just a moment, seeming to take in this new form of physical
 
 **Zoey**
 
-Zoey leaned against Naina, playing gently with her fingers under the tiny table in front of them. The dimly lit speakeasy style bar, Casa de Rum, was packed. The singer, Naomi, had a *beautiful* voice that filled the room. The music acted as a cloak, while everyone seemed packed shoulder to shoulder, each couple and group seemed to be shrouded in their own private space.
+Zoey leaned against Naina, playing gently with her fingers under the tiny table in front of them. The dimly lit speakeasy style bar, Gin House, was packed. The singer, Naomi, had a *beautiful* voice that filled the room. The music acted as a cloak, while everyone seemed packed shoulder to shoulder, each couple and group seemed to be shrouded in their own private space.
 
 Even the broad shouldered man sitting front and center, drinking a beer and seeming to bask in the music, had his own air of privacy.
 
-The days events swam through her mind. It had been magical… “Michelle in the Washroom” had been stuck in her head all evening since the musical. She was pretty sure she had eaten more steak than she had stomach. And now they were being serenaded in a small charming bar that felt straight out of an old movie.
+The day's events swam through her mind. It had been magical… “Michelle in the Washroom” had been stuck in her head all evening since the musical. She was pretty sure she had eaten more steak than she had stomach. And now they were being serenaded in a small charming bar that felt straight out of an old movie.
 
-“Better than dinner with the family?” Naina asked. She held up her empty mocktail to a passing server, who nodded in confirmation. *She learns these interactions fast. Just two hours ago she struggled to order a sparkling water.*
+“Better than dinner with the family?” Naina asked. She held up her empty mocktail to a passing server, who nodded in confirmation. *She learns these interactions fast. Just two hours ago she struggled to order sparkling water.*
 
 “Is it… is it weird that I consider you closer than family?” Zoey said, her heart began to increase in pace. The two had skirted around this for months, it felt weird to talk about it so openly. Granted neither had actually directly confessed yet…
 
@@ -124,17 +124,19 @@ Naina shook her head, “Please no. I'm enjoying every minute and love being her
 
 Zoey's heart leapt, “You're already thinking years out?”
 
-Naina paused, then responded simply, “Maybe.” Suddenly Naina sat up. The song shifted, Zoey recognized this song. It was one of her favorites. Naina's hand patted on her leg in excitement. Clearly she liked the song too?
+Naina paused, then responded simply, “Maybe.” Suddenly Naina sat up. The song shifted; Zoey recognized this song. It was one of her favorites. Naina's hand patted on her leg in excitement. Clearly she liked the song too?
 
-It was a love song of a couple who would go dancing every night. And they would lock eyes, and smile, and laugh. And they would go home every day feeling both content and hollow at the same time.
+It was a love song of a couple who would go dancing every night. And they would lock eyes, and smile, and laugh. And they would go home every day feeling both content and hollow at the same time. The singer’s unique light grey eyes turned towards them.
 
 “Naina, is she looking at us?” Zoey whispered to Naina. Naina glanced over with a wide grin.
 
-Zoey knew this voice, it sounded exactly like the original. Wasn't this an Asuna Starlight song? This Naomi was clearly talented.
+Zoey knew this voice, it sounded exactly like the original. Wasn't this an Asuna Starlight song? Whoever this Naomi was, they were clearly talented. And those eyes…
 
 Her breath caught as the Japanese woman stepped off the slightly raised stage and made her way through the tables, stopping right next to them.
 
-“Naina…” Zoey looked over, Naina wasn't watching the woman. She was staring directly at her. That smile… Zoey's heart raced, and their eyes locked, the rest of the room faded away. Just Naina's adorable, sheepish, smile, and a song that… wait she replaced the names in the song with Zoey and Naina. The realization hit Zoey like a truck, she had heard it a few measures earlier but it hadn't registered.
+“Naina…” Zoey looked over, Naina wasn't watching the woman. She was staring directly at her. That smile… Zoey's heart raced, and their eyes locked, the rest of the room faded away. Just Naina's adorable, sheepish smile, and a song that…
+
+Wait. She had replaced the names in the song with Zoey and Naina. The realization hit Zoey like a truck, she had heard it a few measures earlier but it hadn't registered.
 
 “Naina…” Zoey knew what the song ended with. Butterflies filled her, she knew it. Knew what was coming. Anticipation filled her, she had craved these three words for months. The song crescendoed, the two dancers locked in place at the end of a song, and the melody fell and finished to a simple three words.
 
@@ -148,15 +150,15 @@ As they reluctantly pulled apart, they became keenly aware of light applause. Fo
 
 “You kinda said that this morning, I don't think you were fully awake.”
 
-“You are *not* allowed to use my sleep talking as a form of interrogation, just for the record.” Zoey felt herself blush. This had long been planned though, her apparently letting herself slip this morning didn't matter.
+“You are *not* allowed to use my sleep talking as a form of interrogation, just for the record.” Zoey felt heat rush to her cheeks. She began to question if their drinks had truly been non-alcoholic.
 
 Naina leaned in and kissed her again, seeming to take delight in how receptive Zoey was to it, “I love you too. In case that wasn't clear.” Naina smiled.
 
 “Oh it is *most* abundantly clear. I don't… I don't know how to match you on any of this.” Zoey's eyes darted around the room, then down to the playbill on the table.
 
-“Zoey, it wouldn't be romantic if it needed equal exchange. Besides, just having you in my life has made *all* of this effort worth it.”
+“I mean, it wouldn't be romantic if it needed equal exchange. Besides, just having you in my life has made *all* of this effort worth it.”
 
-“All those months of me mansplaining romance to you and you had *this* in your pocket?”
+She felt an involuntary laugh bubble up, “All those months of me disputing romance to you and you had *this* in your pocket?”
 
 Zoey couldn't hold it in anymore: she squealed. Any and all of the remaining butterflies seemed to escape in that one high pitched noise. Her arms flung around Naina, holding her tight. It got a few looks from nearby tables but she didn't care. It got another laugh from Naina. Naina’s arms wrapped back around her.
 
@@ -174,7 +176,7 @@ Zoey couldn't hold it in anymore: she squealed. Any and all of the remaining but
 
 “I don’t really know, Cale just said Astrid had a singer friend who would be here. I gave him a song and he said they would take care of…” She trailed off as the tall and broad man got out of his seat, phone in hand, and walked back to their table.
 
-“Evening ladies. You are Miss Astrid’s friends, I take it?” He smiled widely, and pulled a nearby chair to the table. Zoey could see the singer giving him a curious look but not otherwise breaking her song.
+“Evening ladies. You are Miss Summer’s friends, I take it?” He smiled widely, and pulled a nearby chair to the table. Zoey could see the singer giving him a curious look but not otherwise breaking her song.
 
 “Yes?” Zoey and Naina exchanged glances.
 
@@ -186,7 +188,7 @@ Both Naina and the man stared at her. She lowered her hand and read the document
 
 “Well, one of your crazy conspiracy theories was accurate.” Naina pointed out, scrolling down a bit.
 
-Zoey’s eyes widened, she *had* been right. She turned to face Naina and took a deep breath. Naina, without looking up, placed a hand over her mouth before she could say anything. The man smiled and nodded to the phone with a wink. *This man must be one of Cale’s spy friends. He’s so smooth. And well built… Wait, I have a girlfriend now. Can I think about well built guys? I’ll ask her later. I have a GIRLFRIEND.*
+Zoey’s eyes widened, she *had* been right. She turned to face Naina and took a deep breath. Naina, without looking up, placed a hand over her mouth before she could say anything. The man smiled and nodded to the phone with a wink. *This man has to be one of Cale’s spy friends. He’s so smooth. And well built… Wait, I have a girlfriend now. Can I think about well built guys? I’ll ask her later. I have a GIRLFRIEND.*
 
 “If both of you could sign at the bottom there it would be greatly appreciated.”
 

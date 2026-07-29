@@ -20,7 +20,7 @@ Cale looked confusingly at her, “My love, have you changed?”
 
 “Why are you crying? Is everything ok?” Naina asked. Zoey looked up from her phone, sniffling.
 
-“Yeah, why do you ask?” She said, wiping tears from her eyes.
+“Yeah, why?” She said, wiping tears from her eyes.
 
 Naina was on her back with legs hooked over the side of Zoey's bed. The Wolf Man Returneth 2: Retribution was playing in the background, the room otherwise only lit by the light twinkle of the fairy lights.
 
@@ -36,7 +36,7 @@ Naina rolled over and moved to read Zoey's phone. She studied it for only a mome
 
 “Yeah, why?”
 
-Naina seemed to briefly look for some semblance of a point to make, before laughing again. Zoey looked down at her phone.
+Naina seemed to briefly look for some semblance of a point to make, before simply laughing again. Zoey looked down at her phone.
 
 “I mean a few hundred people seem to like it.” Zoey was confused, wasn't this the point of fanfiction?
 
@@ -56,7 +56,7 @@ Zoey read it ten times, she started bouncing in her chair “Cale is going to pr
 
 Zoey spun her chair in a circle, the energy was slowly bubbling up in her, “Pfft. No. He invited me to go home and join him at the park on the last day it's open for the year.”
 
-“He… what?” Naina took a step back and sat down at the side of the bed.
+“He… what? How does that mean he’s going to propose?” Naina took a step back and sat down at the side of the bed.
 
 “Trust me. It's going to be *romantic*. He has to go big.” Zoey spun the chair faster, her bouncing wobbling it slightly as the fairy lights blurred past her vision.
 
@@ -76,9 +76,9 @@ Zoey spun her chair in a circle, the energy was slowly bubbling up in her, “Pf
 
 “Fine, but only because you're cute. But no, romanticism didn't die. We are still in the romantic era. Stuffy book keeping historians that pretend otherwise can shove it. We live in a world driven by big emotional decisions. Logic restrains and focuses, but emotions drive change. And the biggest changes call for the biggest flair” Zoey spun, arms out. The fairy lights glimmered off her body in a twinkling effect.
 
-“I don't think I disagree that we are still in some form of a romantic era, but you have to agree that it has changed. People crave the romance of more realistic day to day actions. The fact that the cafe trope exists and is so dominant alludes to that.” Naina asserted.
+“I don't think I disagree that we are still in some form of a romantic era, but you have to agree that it has changed. People crave the romance of more realistic day to day actions. The fact that the cafe trope exists and is so dominant alludes to that.” Naina asserted, she sprawled her arms out on the floor seeming to mirror Zoey’s movement.
 
-“You're making it sound like all these stories are built on realism. Tell me, is WolfMan and SharkRex attending high school realism?” Zoey sat back in the chair, leaning backband staring at the ceiling.
+“You're making it sound like all these stories are built on realism. Tell me, is WolfMan and SharkRex attending high school realism?” Zoey sat back in the chair, leaning back and staring at the ceiling.
 
 “I think the fantastical settings we use today are more for providing either contrast or support to nuanced human interactions. It's small moments of intimacy that we can fit in our head and relate to that we are focused on, the setting just bolsters.”
 
@@ -86,7 +86,11 @@ Zoey spun the chair again, taking a moment to refocus on what she was even tryin
 
 “Are you saying that big romantic gestures in literature have changed or that we don't get them in reality?” Zoey asked.
 
-“Both? I mean books and movies often do need something grand to give payoff to the incremental progress felt through the story. You can't just have one time grand gestures explaining why two people are happy like you used to in stories. And I think that's reflective of us knowing how real life relationships work. But I guess to your point there is still a disconnect from how people function in stories versus reality. Stories still exist as a mechanism for escape, even if that escape is not as dramatic as it once was.” Naina rolled over and sat up on the side of the bed. Zoey could see her face furrowed in thought.
+“Both? I mean books and movies often do need something grand to give payoff to the incremental progress felt through the story. You can't just have one time grand gestures explaining why two people are happy like you used to in stories. Even the fan-fic one-shot short stories with simply a grand scene only work because you have the nuanced detail and history of the characters already loaded in your mind.”
+
+She paused, Zoey liked to call this “reloading”, when Naina talked past what her brain could fit and needed to recalibrate herself. She swiveled in her chair patiently.
+
+Naina finally continued, “I think that's reflective of us knowing how real life relationships work. But I guess to your point there is still a disconnect from how people function in stories versus reality. Stories still exist as a mechanism for escape, even if that escape is not as dramatic as it once was.” Naina rolled over and sat up on the side of the bed. Zoey could see her face furrowed in thought.
 
 Zoey hopped up and paced again, “But I think you're right, the movies that have no character development then suddenly one big gesture solves everything don't really succeed. Well, beyond as a VHS for two college girls to make fun of.”
 

@@ -8,6 +8,8 @@ Naina's heart flipped as she felt Zoey take a deep breath, letting out her overl
 
 “I suppose your top secret missions continue even when on summer break.” Zoey looked down at the phone Naina was buried in.
 
+Of course, maybe trying to find simple with this girl was a mislead effort.
+
 “What?” Naina lowered the phone.
 
 “You're always reading, and you're so secretive about it.” Zoey cocked a head.

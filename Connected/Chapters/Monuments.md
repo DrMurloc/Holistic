@@ -10,17 +10,19 @@ Lara distracted herself with gaming, she would practice talking to a stream. The
 
 And Sho…
 
-She pulled out her phone. Her last “I love you” past night was read but had no response. He was clearly busy, but he refused to say with what. Had Project Galaxy signed him up for a secret project too?
+She pulled out her phone. Her last “I love you” last night was read but had no response. He was clearly busy, but he refused to say with what. Had Project Galaxy signed him up for a secret project too?
 
-Even when they did talk, it was strange. Their entire relationship was built around messages on a phone, but this was different. It was like the connections weren’t the words, but the physical reactions. The way his eyes widened in such an overly exaggerated way to communicate a sarcastic response, the nervous laughs and movements to backtrack something he said wrong… She sometimes wondered if they hadn’t even needed the phones in the first place. But all of that was missing here.
+Even when they did talk, it was strange. Their entire relationship had been built around messages on a phone, but this was different. It was like the connections weren’t the words, but the physical reactions. The way his eyes widened in such an overly exaggerated way to communicate a sarcastic response, the nervous laughs and movements to backtrack something he said wrong… She sometimes wondered if they hadn’t even needed the phones in the first place. But all of that was missing now. The devices once used to open their worlds up to each other were now the very devices that throttled them.
 
-They tried a video call once or twice, it just… wasn’t the same. But she did like getting to see his face. Often poor connections would interrupt touching moments, and the videos just left her craving to feel his almost calculated finger movements when they would hold hands.
+They tried a video call once or twice, it just… wasn’t the same. But she did like getting to see his face. Often poor connections would interrupt touching moments, and the videos just left her mind lingering on that last night of connection… the warmth of his embrace.
+
+That *had* been a promise they made to each other, right? Not a last hurrah? It had felt like he had taken it that way too, but even phone translators were prone to misinterpretations.
 
 He of course wouldn't be awake right now. It was the middle of the night there. She put the phone away. She paused, looking out over the river at the distant monuments. They stood strong as a testament to something permanent; something immovable. Did she need that? She had built her entire life around fluidity. Granted she was still very young, and the whole goal of leaving was to figure out what she wanted. Did she want stability? Did she want that anchor?
 
-She could return to Tokyo, she *would* return to Tokyo. But even then it felt like it needed to be a short stop. Her managing to luck out on a job that would allow her some freedom in travel seemed to be the universe nudging her on that conclusion.
+She could return to Tokyo, she *would* return to Tokyo. But even then it felt like it needed to be a short stay. Her managing to luck out on a job that would allow her some freedom in travel seemed to be the universe nudging her on that conclusion.
 
-Her phone buzzed, and she pulled it out. It was him! She rapidly pulled open the message, “How are you?”
+Her phone buzzed, and she pulled it out. It was him! She rapidly pulled open the message, “How are you?” He had sent.
 
 Strange. It was a more general question than he would normally open with. Were they falling back to pleasantries?
 
@@ -60,7 +62,7 @@ What… What did that mean? Not yet? Why couldn’t he explain now? She hated th
 
 There was a pause, then he sent, “I love you.”
 
-The cold was fought off with that one word. He was being dumb. She was being dumb. He would be there for her when she returned, even if it was a few months.
+The cold was fought off with that one word. She was being dumb. He would be there for her when she returned, even if it was a few months out. She still wished he would tell her what he was up to.
 
 She typed back, “I love you.” and put the phone away. She took a deep breath, accepting some of the sharp bite from the air. She was fine. They were fine. She had to just keep saying that.
 

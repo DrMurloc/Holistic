@@ -54,7 +54,7 @@ He had been making this overly complicated hadn't he?
 
 He stared at the mess of styling code he had hashed out. All for a minor spacing adjustment on something that looked good, even if not perfect.
 
-He erased it all and ran the solution. It didn't look pretty. But it was functional and people would be happy.
+He erased it all and ran the solution. It didn't look pretty. But it was functional and people would be happy, and he could do smaller iterations of anything *truly* bothered him.
 
 He had been missing arcades anyways. It would be good to see friends again, many of them assumed he had quit the scene. He himself had sort of assumed it too.
 

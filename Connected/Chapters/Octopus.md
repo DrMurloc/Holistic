@@ -1,130 +1,74 @@
-**Asuna**
+**Hawthorn**
 
-Asuna and Hawthorn sat in a a restaurant in Osaka, the sound and smell of sizzling vegetables, meats, and cheeses filled the room. It was packed, she was comfortable in their counter facing seat but Hawthorn had to angle himself to even fit.
+The smells of sizzling vegetables and meats enveloped Hawthorn. He sat at a counter next to Asuna, overlooking a large kitchen with countless stovetops filled with various grilling foods.
 
-She was dressed as Naomi, but had a hard time staying in character around Hawthorn. With this noise and chaos it wasn't a problem, although she would get nervous any time her voice slipped outside, especially at night. People *did* know Asuna, she would do occasional public showings out of disguise which often felt as much of a show as the performances themselves.
+Asuna, understandably, was wearing Naomi. She was clearly doing better. At her request they got away from Shibuya for the next few days, and there was a demand for comfort food, so here they were in Osaka.
 
-The last two weeks had felt like a blur. They had filled in Kenji, her… manager? On the attack, and Hawthorn's new role. Kenji impressively overtook much of the day to day operations immediately, and even responded to Hawthorn's consultation seamlessly. Hawthorn had been right, she had been *vastly* underutalizing that man.
+The entire time since the hospital had been spent in Hawthorn’s apartment. They slept on opposite sides of his king sized bed. The whole bed had been offered to her, he was willing to sleep on the couch, but she had not been able to sleep when alone in the room.
 
-Hawthorn called it consultation, but she knew it was him calling the shots while she restabilized mentally. He had a distinctive way to form commands in the way of a question to make it seem like it was Kenji who came up with the idea. It was *fascinating.* “If you do things right, people will wonder if you've done anything at all.” His words constantly rang through her mind.
+It was a strange relationship limbo. Hawthorn knew the girl was getting more and more attached to him, and to some extent he welcomed it. But his feelings were complicated, it was forcing him to come to terms with memories that had been intentionally pushed *far* down.
 
-Any semblance of further romance was on pause. While there was a mutual understanding that there was interest, neither was in a positional to emotionally support that kind of commitment. That initial spark of connection had most certainly been there though, and she cherished it.
+His eyes fell onto the girl. She was in the midst of swallowing a grilled squid practically whole. Before she even began chewing, a chunk of grilled onion was plopped into her mouth, washed down with a swig of beer. She had barely swallowed before ripping two pieces of grilled wagyu off of a skewer with her teeth.
 
-One of the staff on the other side of the counter dropped two grilled squid and two giant mugs of beer for them.
+Hawthorn snorted, causing her ferocious onslaught to come to a pause. Her eyes met his, the remainder of the wagyu skewer inches from her open mouth.
 
-“Thank you!” They both said, Hawthorn turning back from his phone to her.
+“What?” It was asked through a full mouth.
 
-“Any luck?” She asked.
+“You appear to be doing better.” Hawthorn finally observed.
 
-“Red across the board. Honestly I don't need the revenue to pay for rent anymore so it's more a potentially problematic gambling habit than anything.”
+“Osaka food is good.” She said, slightly muffled through a full mouth.
 
-“Some have their gacha games, Hawthorn has the American Stock market.” She raised a glass and he returned the toast, both drank deeply.
+Hawthorn just shook his head, and took his first bite of the octopus balls in front of him. He followed up with a swig of his own beer.
 
-“OK so what's next. You've successfully healed. Your attacker is in prison, with none of it making the news. You've taken the first two weeks of vacation that you've had in ten years.” Hawthorn began to work on his squid.
+Asuna stared at his pocket, he took a deep breath, knowing the question that was about to come.
 
-“I've aggregated a list of potential talent investments.” She showed him her phone.
+“I want my phone back.” There it was.
 
-“You are *very* bad at vacation.”
+“You’re just going to go back to looking for loop holes in the insurance policy.” He raised an eyebrow.
 
-“I enjoyed doing it?” She smiled shyly.
+“Yes.” She admitted, and held out her hand.
 
-“Good enough.” He laughed, taking the phone from her and looking down the list.
+It wasn’t a question this time, she was commanding. To be honest this was what he had been waiting for, he had no intent to ever disobey a command from his boss. So he pulled the phone out of his pocket and handed it over, keeping a close eye on her while she pulled the documents up.
 
-She dug into her squid, practically devouring it whole, and flagged a staff to put in three orders of wagyu skewers. She loved the food in Osaka, it hadn't been hard for Hawthorn to convince her to get out of Tokyo for a few weeks.
+He of course had scanned the policy a dozen times and couldn’t find anything too exploitable. The premiums were in fact countered by the added assertion that she would have a contracted bodyguard present during times of higher risk. Kenji had just slapped the word “bodyguard” into the super vague list of Hawthorn’s contracted responsibilities.
 
-“What the hell is a V-Tuber? I thought you said you didn't want anything to do with red light district stuff.” Hawthorn asked.
+Hawthorn hoped they would never get audited, it would be an interesting couple hours explaining his involvement without running into potential allegations of insurance fraud. Not impossible, but the kind of verbal chess he did *not* want to be involved with anymore.
 
-“Basically a streamer that takes advantage of the fact that Otaku are more thirsty for 2D girls than real people.” She was, of course, butchering the description for her own amusement.
+His own phone came out, a brief scan of stock. All red. Not that it mattered, he wasn’t relying on it for income like he had for the last year. It was more or less his own form of gambling at this point.
 
-“I now have additional questions.” He returned to reading, seeming to let those questions drop. He didn't generally care about the details of the industry, she had that. The high level concept and how it translated to a self sustainable solution is what kept him moving.
+The restaurant was already loud, so when a rather assertive voice cut through the air, his eyes turned to find its origin near the front door.
 
-She still couldn't believe that she found the one guy in the world that simply did not give a shit that she was an idol. Something about that seemed to put a crack in the wall of the idol world around her, and a piece of her desperately wanted to look through that crack.
+“-Shibuya they absolutely were on the left side.” A woman entered, sporting a blonde ponytail with a blue ribbon. Her face screamed “are you kidding me”.
 
-“What are we doing? I have pieces of a game plan in my head but I don't know why. I think I've been so caught up in keeping everything afloat on a day to day basis for all these years that I never had time to actually ask that question.” The question felt weird to say, a vulnerable admission that two weeks ago she would have never made. The wagyu skewers dropped off and she promptly began to work on one. *So tender…*
+A second voice, a familiar man’s voice? “You can say that, but they were on the right side at the Namba station.”
 
-He put the phone down and took a drink. Asuna bobbed back and forth lightly in rhythm to the song currently playing, letting some of Mimi's energy come out. Drinking often broke down the barriers between her personalities. She normally didn't drink in public because of that, but she felt safe enough with him around.
+“I. Have. *Pictures*. Cale.” The woman said as a man with black hair and classes entered. Hawthorn felt a wide grin sneak across his face. Asuna also seemed to react to the name, looking up from her phone at the entering couple.
 
-“Do you like your fans?” He asked.
+“I'm not saying you don't, Astrid. I'm just matching fact with fact.” Hawthorn shook his head. He actually did it, that incredible man got the girl. It felt like only yesterday the two were sharing beers and exchanging tears over their related girl problems.
 
-“The ones that don't try to stab me are generally quite pleasant.” She shrugged. She used to get a thrill from the energy of the fans, it wasn't quite the same anymore.
+Asuna’s eyes were following the couple, did she know them too? No, it’d be statistically impossible. To Hawthorn’s knowledge Asuna didn’t even know anyone *in Japan* outside of work.
 
-“Then what makes you get up on that stage every time?” He leaned forward, head resting on a fist.
+They sat down in a booth right next to Hawthorn and Asuna, Cale didn’t seem to see Hawthorn, so Hawthorn leaned over and offered, “You know the side you stand on changes from city to city.”
 
-This should be obvious, right? She pushed herself to perform because… She simply stared back at Hawthorn, mouth open without a solid answer.
+The couple looked up at him, Astrid wore a look of shock at an unknown stranger addressing them. Cale’s face evolved from surprise to joy, standing up and reaching a hand out to pat Hawthorn on the shoulder.
 
-“Do you like performing?” He followed up.
+“Hawthorn! What are the chances?” Hawthorn opened his arms up to give his friend a full hug. Asuna’s mouth hung open in slight disbelief, looking from Hawthorn, to Cale, then Astrid.
 
-“Yes!” She answered immediately, slightly too loud. That didn't feel like a lie. She glanced around to make sure no one was listening to them. It was too loud, and the old couple behind Hawthorn didn't seem like a concern.
+“And this must be the *wonderful* Astrid I’ve heard so much about.” Hawthorn tipped an invisible hat with a smile.
 
-“In three weeks, pay attention to yourself on that stage. We need an answer to your question, it's an important one and impacts how you invest.” His eyes seemed to drift behind her, distracted by something.
+Astrid’s eyes turned to Cale, her face reddened with fluster, eyes narrowing, “Cale. We are in. A different. *Country.*” She practically screamed the last word, eliciting looks from nearby tables.
 
-She supposed he was right. Maybe everything had been so fragile because she *hadn't* had a long term goal beyond “survive”. She had been acting tactically for years and needed a strategy. And here came someone out of the weeds that could actually help visualize the big picture. She was definitely heavily underpaying him.
+Cale’s hand went to his neck, “No! We almost bought Hawthorn’s company about ten months ago. He and I went drinking. We… talked. About our… problems.” His eyes flickered over to Hawthorn, who felt his smile drain slightly.
 
-“And you? What are *you trying* to achieve?”
+“Are you two… really…” Asuna started saying, still looking between the couple.
 
-He acknowledged the question with a grunt, but he was still looking behind her. She turned her head. Two foreigners had walked in, a blonde with a ponytail in a blue ribbon and a black haired man with glasses.
+Hawthorn raised an eyebrow, “Naomi, you know these two?” He could make out Cale holding back a grin, eyes trained on Astrid, hand still on the back of his neck.
 
-“Hawthorn! It's only been two weeks and you're already checking out other girls?” Asuna teased, playfully pushing him.
+“I mean, the blog is sort of famous.” It was said so matter of factly. There was a blog?
 
-“Not her, him.” He nodded to the guy.
+“Cale.” Hawthorn heard from Astrid.
 
-“Didn't know you played both fields.” She poked him in the side. He rolled his eyes.
-
-“It's an old friend of mine. What are the chances? I guess they *do* have an office out here.” He shook his head and picked her phone back up, returning to her write-up.
-
-Asuna was curious, some insight into Hawthorn's past was here… The two luckilly sat at a table right behind them. She leaned backwards to hear.
-
-“-Shibuya they absolutely were on the left side.” The girl was saying, slightly agitated.
-
-“You can say that, but they were on the right side at the Namba station.”
-
-“I. Have. *Pictures*. Cale.” Asuna stole a look over, the girl was smiling slightly. Asuna was confused, was she angry or not?
-
-“I'm not saying you don't, Astrid. I'm just matching fact with fact.”
-
-Asuna blank, her wagyu skewers forgotten. There was no way. The names had to be a coincidence. But the description… the blue ribbon and all…
-
-Hawthorn leaned back, turning slightly to face the man who supposedly was *the* Cale, “You know they switch which side you stand on the escalator in each city, right?” Asuna’s breath caught. These two were *famous*, she had been so delighted to read the news that they actually got together. And Hawthorn just casually inserted himself into their argument?
-
-The couple fell into silence for a moment, Cale’s eyes slowly went wide with recognition, “Hawthorn!”
-
-Hawthorn grinned and slid out of his chair, taking a seat next to Cale and the two hugged. Asuna hesitantly brought the plates and drinks down to the table, eyeing the empty seat next to Astrid. She slowly sat down. *Is this what it was like when my fans get to meet me? It's so real…*
-
-“And this, I'm assuming, is the wonderful Astrid.” Hawthorn did a fake hat tip in her direction.
-
-The woman seemed to wilt temporarily, before sitting up and glaring at her boyfriend, “Cale. We are in. A *different.* *Country.”* This was it. Asuna was experiencing it first hand. She thought it *had* to have been exaggerated but it was real?
-
-“No! No! Remember I mentioned we almost acquired a marketing company in Japan? He works for that company. We would go out for drinks after nine hour audits, talked out our… frustrations.” Cale had his hands up defensively.
-
-“Against explicit instructions to *not* interact by legal advisers.” Hawthorn laughed.
-
-“We didn't kill that deal did we?”
-
-“That deal was dead on arrival. Your CEO didn't go out to drink with ours.”
-
-“Rookie mistake.” Cale laughed. Asuna was confused, what idiotic CEO wouldn't drink with a potential business partner? Hawthorn and Cale dove into catching eachother up on business happenings.
-
-Astrid rolled her eyes, and looped an arm through Asuna’s, “You're my new girlfriend. We clearly have lost our boyfriends. And mine is apparently is an idiot who will *tell his life story to any and all strangers.*” she picked up her voice for this last bit. Cale grinned but didn't turn to her.
-
-“Oh Hawthorn isn't my… I'm Naomi. It's very good to meet you.” Asuna said with a slight bow. She heard Hawthorn putting in a large order of various plates, and a bottle of Nigori for the table.
-
-“Naomi? Tell me Naomi, do you know what it's like to have the entire world seem to know who you are?” Astrid asked. *Wait, does she not know? There's no way Cale wouldn't tell her about the blog. She had to have found out herself, it was everywhere.*
-
-“No, but it sounds tiring.” Asuna smiled.
-
-“Apparently, this man had the whole world clued in on our love life before I even knew we had a love life. He is *insufferable*.” She was clearly smiling behind that mask of anger. Asuna chuckled, looking away for a moment. Hawthorn's eyes turned to her, an eyebrow raised.
-
-“My favorite,” Asuna hesitantly started, turning back to the girl, she could see Astrid's eyes start to widen, “Was when you convinced him that he had the bathroom gender signs mixed up for his whole life.”
-
-Astrid stared, her face draining and going hollow.
-
-“Wait, Naomi, you know them?” Hawthorn asked. Cale had an eyebrow raised.
-
-“From the blog? You can't seriously not know about the blog.” She said shyly. The table went completely quiet. Cale was clearly repressing a laugh. *Has he not been telling her about how famous they are as a way to get back at her? That's actually perfect.* Asuna had to hold back her own laugh at this. She suddenly had insider insight into a piece of this story that hadn't been published.
-
-“Cale.” Astrid leaned forward and placed her head on hands, a predatory smile on her face. *The energy these two bring is so overwhelming…*
-
-“That's my name, I'm Cale.” Cale simply beamed with the confidence of a man in front of a firing squad knowing he had won the war. Hawthorn sat back as if attempting to steer clear of a blast radius.
+“That’s my name. I’m Cale.” He was watching Astrid’s expression closely, clearly excited for this turn of event.
 
 “When she says ‘blog’.”
 
@@ -132,64 +76,86 @@ Astrid stared, her face draining and going hollow.
 
 “And how many people would you say read the blog?”
 
-“When you say ‘read’.”
+Cale pretended to contemplate the question for a moment before responding with, “When you say ‘read’.”
 
-Astrid took a deep breath and sat back, closing her eyes. Asuna opened her phone and tapped a bookmark. “Going to Japan”.
+Astrid took a deep breath and sat back, closing her eyes, muttering something about her therapist. Asuna pulled open her phone and tapped through a few links.
 
 “The post from two days ago has nine hundred thousand views.” She pointed out.
 
-Astrid's eyes shot open, “*Cale*, not on that! Please tell me you didn't write about that! There has to be boundaries!” She reached over and grabbed the phone, her eyes scouring it. Asuna panicked, reaching hesitantly to get the phone back.
+Astrid's eyes shot open, “Two days ago? Wait, *Cale*, not on that! Please tell me you didn't write about that! There has to be boundaries!” She leaned to reach over and grabbed the phone, her eyes scouring it. Asuna panicked, reaching hesitantly to get the phone back.
 
 “No! Of course not! It's about the trip! I was excited.” Cale put his hands up defensively.
 
-Hawthorn reached over the table and plucked the phone out of the girl's hands and handed it back to Asuna. She and Astrid seemed to take simultaneous deep breaths. Asuna quickly locked the phone and put it away. There hadn't been anything *terribly* compromising on there… but getting stabbed did feel like it warranted a higher level of paranoia.
+Hawthorn reached down and plucked the phone out of Astrid's hands and handed it back to Asuna. She and Astrid seemed to take simultaneous deep breaths.
 
-“I swear though, that was the last surprise. I'm all out. I can stop the blog if you want, it’s more for the fans than me at this point.” Cale laughed.
+“OK, I hate to break this up but I’m going to steal this one for some guy talk.” Hawthorn nodded to Cale. There was one person in the entire world that Hawthorn felt comfortable opening up to about Vanessa problems, and he was right here. The timing seemed uncanny. Maybe it was time to revisit his old perspectives on the holisticness of the universe.
 
-Astrid glared at him.
+Cale glanced at Asuna, then to Hawthorn, and nodded in understanding. They left Asuna and Astrid to girl talk, moving out into the dimming Dotonburi evening.
 
-“It… did help me get through a lot, for what it’s worth.” Asuna offered, “I don't have a lot of time for entertainment… you two were uplifting.”
+The street was bright with well lit signs. Food stalls filled the air with the smell of various grilled meats and vegetables. Various songs about grilled octopus competed with each other from the food stalls.
 
-All three of the others stared at her, she shrank into her seat, “It was like you had two lives you lived simultaneously right in eachother's faces… it resonated.”, she took a giant swig of beer.
+“She’s cute.” Cale offered as they began to pace the streets. The crowds seemed to move around them, giving a strange sense of privacy, blanketed in the miscellaneous noise and energy of the night.
 
-“Naomi, are you a romantic?” Hawthorn grinned.
+“That she is. Have to say, I always pictured Astrid shorter.” Hawthorn said.
 
-“No! Romanticism is outdated, inefficient and baked in lies. But they were motivating. Although cereal is most definitely-”
+“Her temper is shorter, for what it’s worth.” It got a smirk from Hawthorn.
 
-Both Cale and Astrid held up their hands, “No no no! We resolved that one. It's context dependent.”
+“Glad one of us found some peace.” Hawthorn said, slightly sullen.
 
-“Oh. That's boring and disappointing.” Asuna had liked that one.
+Cale placed a hand on Hawthorn’s shoulder, it was in fact comforting. There was something distinctly pleasant about sympathy from another man you had cried alongside. It was definitely not a connection Hawthorn could say he had with anyone else.
 
-“That's sort of why I didn't write about that conclusion. People liked that gag.” Cale smiled. The food being dropped off seemed to distract the table for the moment. Hawthorn poured the table glasses of the milky white sake.
+“How is that working with Naomi?” Cale asked, not needing to explain.
 
-“To romanticism. May it weigh us down with vast inefficiencies until the end of time.” Cale said. Asuna giggled and raised her glass to the toast.
+“She and I… It’s complicated. Might be simplest to just say I’m the one keeping it complicated.” Hawthorn turned to watch a street vendor flash searing a wagyu sushi roll.
 
-Maybe Asuna just needed friends. She was enjoying this. Was Hawthorn just a friend and that's what she had felt? No, he was different. Besides, she knew she had feelings for him. That wasn't a question. But maybe he also was a friend, and that's what she had been prioritizing. That was probably a good thing.
+“I’m assuming you want it to be less complicated.”
 
-“Did you really mean that?” Astrid leaned over, letting the boys go back to catching up.
+Hawthorn didn’t answer immediately. He wasn’t really sure what he wanted. He wanted to love Vanessa, he wanted to never let that go. Her ER dramas, her runny eggs, her bad puns. But Asuna was most definitely clawing at his heart.
 
-“I did. I honestly can't believe I get to meet you. Wait… you work in an American legal company, right?” Asuna had a connection click. Networking. She needed to network.
+There had been multiple times she had curled up into him for comfort that he simply wanted to kiss her. He knew, however, that the flashbacks from the feeling of another woman’s lips would cause him to pull back. Asuna was *not* in a good place to face rejection from him.
 
-“Well, will be. This is sort of a last hurrah of freedom.”
+“Yes. Less complicated would be good.” He finally said. They continued to walk, multiple octopus ball stands lined up in a row, fish flakes danced and wriggled on top of the fried morsels.
 
-Asuna hesitantly pulled out a business card. Hawthorn had helped her commission a quirky little design with Mimi Galaxy's silhouette.
+“Does it have to be a choice?” Cale asked, almost as if reading Hawthorn’s mind.
 
-“I'm sort of just a secretary, but I heard we were looking to expand verticals. America has been a promising resource. The generations that grew up on Japanese culture… well… have money now. We would greatly appreciate consultation should we expand.” She handed the card over, both hands gripping it politely with a slight bow.
+Hawthorn stopped, his friend made it a few steps before turning back to face him. The confident smile that had dominated Cale earlier had given way to a fairly somber look. He *did*, in fact, know the nuance in the question.
 
-Astrid took it, one handed, and studied it, “I mean, my master's thesis was on the nuances of multinational conglomerates. I literally haven't even started yet, but I'll try to get you on their radar.” She held out her phone with the add contact page open, Asuna typed in her number and sent herself a message. Did she have a friend? Did this count?
+Just… accept both? Would that be like cheating? Was that less complicated or more?
 
-Cale leaned over, “Isn't that Mimi Galaxy?” He asked. Asuna had to fight back the urge to hide.
+The thought did help Hawthorn reach one conclusion: He would *not* be able to let go of Vanessa. He didn’t want to. So it became not a question of new versus old, but a question of if he was ready to accept Asuna into his life *despite* the complications. She didn’t seem to mind him having a very intimate romantic history, so it was a ball in his court.
 
-She responded with a flat and almost practiced voice, “Yes, she's our primary Idol.” Her eyes darted to Hawthorn, who was doing a good job not reacting, focusing heavily on a balsamic drizzled grilled onion.
+Hawthorn smiled, a motion mirrored by Cale who understood this meant Hawthorn got where he needed to go, despite the lack of verbal confirmation.
 
-“Our parents are seeing her in a few weeks.” Astrid offered.
+Cale slapped Hawthorn on the back lightly, “I wonder what Naomi and Astrid are talking about.”
 
-“Now that they've dumped their last child onto me, they seem to be trying to experience, and I quote, ‘youth culture’.” Cale said with softly rolled eyes.
+“Girl talk.” A smile played at the corner of Hawthorn’s lips.
 
-Asuna chewed on that, was there an angle there? It hadn't been a demographic she ever considered. She added ‘Head of Marketing’ to her impossibly large and expensive list of positions to prioritize with Hawthorn.
+**Asuna**
 
-The conversation shifted to local plans for the couple. Asuna stared at the newly added contact for Astrid. Granted it was added in the context of business, but it felt like yet another connection added to outside of the Idol world.
+“I mean logistically it’s about liability, an American branch means that the Japanese parent company would be exposed to risk of lawsuits pressed against the branch. Any legal action basically turns into a nightmare.” Astrid poured Asuna and herself another shot of sake.
 
-Hawthorn's assignment burned in her mind. What did she want to do? She couldn't be an Idol forever, and she was rapidly becoming more burned out.
+“So you would suggest a subsidiary?” Asuna accepted the drink, and threw it back.
 
-She had no answers right now. She pasted on a grin and turned to Cale. She wanted to implant the idea of a maid cafe in his head because she desperately wanted to read about Asuna's reactions.
+“It’s situational. Subsidiary is most certainly more ideal, but most small businesses aren’t capable of handling the additional paperwork. You need to weigh the opportunity costs.” Astrid drank her own shot.
+
+“Hawthorn likes that phrase too.” Talking to Astrid was proving to be quite the treat. The blog had been right, the girl was intelligent and very competent. It was still crazy to Asuna that she was sitting here and talking to a legend. Was this how Mimi’s fans felt when meeting her?
+
+Asuna sat back, the drinks had most certainly begun to hit her, it had been a long time since she let herself let go like this outside.
+
+“Cale really never told you about the blog?” She asked.
+
+Astrid shook her head, eyes rolling, “I think it’s some revenge thing. You apparently know, years of me tormenting him and this is how he gets me back.”
+
+“For what it’s worth, it’s very motivating. It got me through a lot. I never had a lot of free time, but I would cherish the few minutes that would come whenever an update came out. It always felt like you two were working towards something great, I’m glad to see it came to pass.” Asuna smiled softly.
+
+Astrid’s hand went to her lips, stroking them gently in contemplation, but didn’t respond.
+
+Was this what having a friend was like? It was nice. Could Asuna stay in contact with this girl? How does that work, how do you just… ask someone to be friends?
+
+“Do you do consultation?” The words left Asuna’s mouth before she could stop them.
+
+“What, like legal consultation? I mean I haven’t even started my job yet. I could float you as a potential client, I suppose.” Astrid handed her phone over to Asuna to type in her phone number. Once it was typed in, Asuna texted herself so she could get Asuna’s number.
+
+Asuna had a friend. Well, a consultant. Was there really a difference? The thought warmed her slightly.
+
+Osaka had been a good choice.

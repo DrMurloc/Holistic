@@ -6,7 +6,7 @@ He pulled his oversized suitcase full of the few belongings he decided were impo
 
 Part of him felt strange to not have a place to call home. There hadn’t been much nostalgia holding him back letting that house go, as soon as Lara had left the house returned to feeling empty and haunted. But that only made him realize that that house had not been his home ever since his parents passed. His home was out wandering without him, he was finding his way back now.
 
-He walked up to hotel check in after a brief wait in line. They said a few words in spanish.
+He walked up to the hotel check in after a brief wait in line. They said a few words in English.
 
 “Do you speak Japanese?” He asked in Japanese. She shook her head apologetically, and reached down to pull out a piece of paper in Japanese.
 
@@ -16,9 +16,9 @@ She looked shocked, “Yes! You are checking in?”
 
 A few of the context specific words he would probably struggle with, but this turn of events pleased him. He had clearly underestimated the potential value in Spanish.
 
-He showed her his passport, and it wasn’t long before he had room cards. The elevator up to his room took *forever.* A blonde girl in a blue ribbon was talking energetically to a tall black haired man in glasses. Behind him stood several characters dressed in various Anime outfits. He smiled, Lara was right, this would be fun. Japan had similar conventions, of course.
+He showed her his passport, and it wasn’t long before he had room cards. The elevator up to his room took *forever.* A blonde girl in a blue ribbon was talking energetically to a tall black haired man in glasses. Behind him stood several characters dressed in various Anime outfits. He smiled, Lara was right, this would be fun. Japan had similar conventions, of course, so he was familiar with what to expect.
 
-Finally the elevator opened up and they got on. A man with and open shirt and a boombox on his shoulders bounced to the rhythm to some techno, and several others started to dance. The elevator bounced slightly. The blonde girl laughed as the black haired man began to make very cheesy energetic motions to the beats. Sho found himself laughing too. The energy here was most certainly good.
+Finally the elevator opened up and they got on. A man with an open shirt and a boombox on his shoulders bounced to the rhythm to some techno, and several others started to dance. The elevator bounced slightly. The blonde girl laughed as the black haired man began to make very cheesy energetic motions to the beats. Sho found himself laughing too. The energy here was most certainly good.
 
 Sho got off at the next floor, and dropped his luggage off.
 
@@ -46,7 +46,31 @@ She noted the next person approaching the microphone, Cale raised an eyebrow as 
 
 “Why doesn’t her mother join us for dinner more?” Cale responded nonchalantly.
 
-“The whole room heard it, that was a promise! You have that recorded? I want that recording.” Astrid looked up as her mother approached a younger boy holding up a phone. Astrid saw the panel assistant flash them a “one more” sign. Astrid filled with anxiety, this was *not* the most important thing she was doing today. As soon as this ended she had a very important meeting to attend.
+“The whole room heard it, that was a promise! You have that recorded? I want that recording.” Astrid looked up as her mother approached a younger boy holding up a phone.
+
+A girl in a yellow mouse looking onesie walked up to the microphone, “What was the first one to start it all? Or was it more gradual?”
+
+Astrid and Cale looked at each other, waiting for the other to answer. Astrid most certainly didn’t know off the top of her head. Cale shrugged,
+
+“Was it the Ass-trid thing?” Cale offered.
+
+“No, that started when we were sixteen, a year in. I mean there was the time I convinced you to hide in a locker because your previous crush was looking for you and you had a big stain on your shirt.”
+
+“Took me a day to remember that she had transferred schools a month earlier.” Cale noted, to a laugh from the audience, “But no, closer though.”
+
+“Underwear swap!” Astrid heard her mother yell, the room filled with laughter then silenced waiting for more context. Cale laughed with them but Astrid had to take a deep breath.
+
+“I had one of Cale’s friends switch his underwear for panties in the changing room. And before you perverts get ideas, they were unused.” Astrid let the laughter dim down, “But no, that was at seventeen. Thanks, mom.”
+
+Cale smacked his hands together, leaning forward. The room hushed, listening, “We met at Leo’s thirteenth birthday party. You got mad when I said I didn’t want you to use the pinata bat cuz I didn’t want you to mess up your pretty outfit.”
+
+Astrid tilted her head, “You told me I couldn’t use it cuz I was a girl and wouldn’t be strong enough.”
+
+He shook his head, “I don’t remember what exactly I said, but I was trying to call you pretty. Teenagers, right?”
+
+Their eyes met, both seeming amused at realizing how their entire life’s history seemed to stem back to a single miscommunication. Their hands met on the table, to an overwhelming “aw” from the audience.
+
+Astrid saw the panel assistant flash them a “one more” sign. Astrid filled with anxiety, this was *not* the most important thing she was doing today. As soon as this ended she had a very important meeting to attend.
 
 “We’re being informed we can only take one more.” Cale said. Several people tried to rush the microphone, but a younger boy beat them to it.
 
@@ -64,7 +88,7 @@ Lara navigated the sea of people and costumes, wonder filled her entire body. Th
 
 She was briefly able to push away her concerns, letting the electricity of the event fill her. Sho hadn't messaged her for three days. She was panicking internally, his messaging habits had become more and more erratic. She was legitimately worried that she was losing him.
 
-But she wouldn't let that bother her now. Not here, lost in a sea of straight positive vibes.
+But she wouldn't let that bother her now. Not here, lost in a sea of concentrated positive energy.
 
 She noticed someone asking permission for a picture with one of the cosplayers, and a swarm of people surrounded with cameras out around the woman in red and orange smooth space-like armor.
 
@@ -72,11 +96,11 @@ Pictures with consent. Got it.
 
 She found a few she really liked, feeling nervous as she stopped them and lined up the shots. She eventually found it to be less awkward than she had worried though, it was expected. She saw even a few people just wearing onesies getting stopped for pictures.
 
-In the midst of her excitement she almost missed her. High, raised eyebrows, a black wig matching the pitch black waist-tight drooping dress. The pale makeup almost made her second guess her guess, why would he be out here? Was he visiting mom?
+In the midst of her excitement she almost missed her. High, raised eyebrows, a black wig matching the pitch black waist-tight drooping dress. The pale makeup almost made her second guess herself, why would he be out here? Was he visiting mom?
 
-But the gentle-yet firm chin give her away.
+But the gentle-yet firm chin gave her away.
 
-“Dad!” Lara yelled, Lola her head and the fierce knowing face that Lola wore broke character into a wide grin.
+“Dad!” Lara yelled, Lola turned her head, the focused and knowing face that she wore broke character into a wide grin.
 
 They embraced each other momentarily, both laughing. Lola seemed to have given way to Diego based on the voice. He often had difficulty maintaining the character around her.
 
@@ -92,7 +116,7 @@ He turned back to Lara, “But you, I'm surprised to see you here.”
 
 Lara held up her phone with all the photos and videos, she was glad she brought a backup storage card as she noted she was near full on this one.
 
-He laughed, “Of course. My little fotógrafa. How is your channel going?”
+He laughed, “Of course. My little photographer. How is your channel going?”
 
 Lara realized she had never told him, she had been so caught up in discussions of mom that she never updated him on her career.
 
@@ -104,15 +128,15 @@ She realized what he was getting at quickly, “No! I'll never be on camera. Rea
 
 He still studied her, but seemed to note her enthusiasm so hugged her again, “I'm so proud of you, Lara. I always knew you'd find something that fit.”
 
-Diego's eyes turned to behind her as she backed up from the hug. She tilted her head, did he someone else he knew?
+Diego's eyes turned to behind her as she backed up from the hug. She tilted her head, did he see someone else that he knew?
 
-She felt a tap on her shoulder, and heard a single word in an all too familiar voice, “Wander.”
+She felt a tap on her shoulder, and heard a single word in an all too familiar voice, “Wander?”
 
 She froze, the animated large hallway seeming to come to a halt around her. The person in the giant teddy bear suit, the series of wizards doing some dance she didn't recognize, the girls that she could only describe as being dressed as “sexy corn”, all stopped in place.
 
 He couldn't be here. She misheard. It was loud. Why would he be here? It would explain so much. But it would raise more questions.
 
-She noticed Diego's eyes turning back to her. She had to do it. Had to turn and let her hopes be dashed. She was just being a naive young girl getting herself worked up over some random fan that happened to known her from her travel videos.
+She noticed Diego's eyes turning back to her. She had to do it. Had to turn and let her hopes be dashed. She was just being a naive young girl getting herself worked up over some random fan that happened to know her from her travel videos.
 
 She turned. And there was that smile. The messy black hair. The plain black shirt. His eyes looked like he hadn't slept in two days, but his joy managed to radiate through.
 
@@ -120,13 +144,13 @@ She took a step forward, grabbed him by the shirt, and pulled him into a kiss.
 
 Diego gasped, several people stopped and stared.
 
-She didn't care. She didn't care why he was here. She didn't care if this was how dad found out about him. She didn't care if people were caught off guard by a Dominican girl rather assertively was embracing a Japanese in front of a man cosplaying as a drag queen icon. This was Gamfest. They would get over it.
+She didn't care. She didn't care why he was here. She didn't care if this was how dad found out about him. She didn't care if people were caught off guard by a Dominican girl rather assertively embracing a Japanese boy in front of a man cosplaying as a drag queen icon. This was Gamfest. They would get over it.
 
 She refused to let him go for a good minute, and he did not protest.
 
 “Lara, mi amor.” Diego finally interjected, switching into Lola's voice. This caused the two to separate, their hands naturally falling into an interlocked stare.
 
-“Who is this?” Lola followed up.
+“Who would this be?” Lola followed up.
 
 “I'm Sho. I'm honored to meet Lara's mother. She has talked about you a lot.” Sho said in perfect Spanish, paired with a deep bow.
 
@@ -138,7 +162,7 @@ Lola tapped her lips, “Oh I like this one.”
 
 Lara grinned at her father, and turned to Sho, “But why?”
 
-“For you.” He said like it explained it all. She huffed, trying to think on what the important questions were. Lola stepped back to give them space, but still listened keenly.
+“For you.” He said it as if it explained it all. She huffed, trying to think of what the important questions were. Lola stepped back to give them space, but still listened keenly.
 
 Lara eyed her dad for a moment, and switched to Japanese, “How did you afford it? Did you pick up another job? Is that why you were so busy all the time?”
 
@@ -154,11 +178,11 @@ He scratched the back of his neck, “Going home would be difficult.”
 
 He smiled at this, but shook his head, “Home is here. With you.”
 
-Her heart thumped, those words… she had never known she craved to hear them. The implications they carried…
+Her heart thumped, those words… she had never known she craved to hear them. The implications they carried… She felt the anchor get lifted into the ship.
 
 “But your house… your job.”
 
-“Gone. It took a while to sell, I'm sorry. I have a job here starting next week. Ramen shop.”
+“Gone. It took a while to sell, I'm sorry. I have a contract job here long enough to get me a green card, though.”
 
 It suddenly all made sense. He had definitely been busy. That would be a lot to do in a few months.
 
@@ -176,7 +200,7 @@ It suddenly all made sense. He had definitely been busy. That would be a lot to 
 
 Diego exhaled a breath that sounded like it had been trapped for years, “Oh. Thank. God.” He ran over to Sho and threw his own arms around the boy. Sho stumbled slightly in surprise.
 
-“You are to marry that girl and and never let her out of your sights. I swear if I hear one more story of her staying in one of those creepy hostels…”
+“You are to marry that girl and never let her out of your sight. I swear if I hear one more story of her staying in one of those creepy hostels…”
 
 “Dad! Hostels are safe!”
 
@@ -210,11 +234,11 @@ The boy turned, matching May’s wide eye expression, “You are… StarGaze?”
 
 Neko promptly bowed, seeming somewhat enthusiastic to meet her. May returned it. She turned to the Hispanic girl, “And you?” Was this one of the South American players? Their stamina and foot speed was unheard of.
 
-“Wander. Two Vs. Sorry, I'm not good.” She said in broken English and extended a hand. May shook it.
+“Wander. Dos Vs. Lo siento, I'm not good.” She said in broken English and extended a hand. May shook it.
 
 “How long do I have?” She asked. She needed to get Leo. This was *huge*, a match between giants at a *convention*.
 
-“Ten minutes, although with the loose seeding I'm doing you should be fine for about thirty minutes.” Murk looked at his phone, presumably where the bracket was. May took off, finding a place to get a good signal.
+“Ten minutes, although with the loose seeding I'm doing you should be fine for about thirty minutes until your first match.” Murk looked at his phone, presumably where the bracket was. May took off, finding a place to get a good signal.
 
 She typed rapidly: “Get to arcade, NEKO IS HERE, ITS HAPPENING!”
 
@@ -222,7 +246,7 @@ She waited for ten minutes, no response. He would see it. He had to see it. She 
 
 **Leo**
 
-Leo and Cale roamed the halls. Cale apparently had a laundry list of stops. Leo wasn't sure if Cale knew all of these people or if it was just random people that had reached out to him online.
+Leo and Cale roamed the hotel room floors. Cale apparently had a laundry list of stops. Leo wasn't sure if Cale knew all of these people or if it was just random people that had reached out to him online.
 
 The last room had been very friendly. Well, and slightly intimidating. Four guys and three girls in giant wolf, cat and dog suits had been slightly weird. But they made fun conversation, one of them apparently was a surgeon?
 
@@ -236,7 +260,7 @@ Leo and Cale now wore purple fuzzy cat ears that had been donated, munching on p
 
 “Negative.”
 
-“Eh, it's alright. It's just a convention tournament. She's guaranteed to win unless QBoy is here.”
+“Eh, it's alright. It's just a convention tournament. She's guaranteed to win unless QBoy or Gomen are here.”
 
 They came to a stop in front of a room “I think this place has drinks.” Cale studied the list on his phone.
 
@@ -248,7 +272,7 @@ Cale knocked on the door, it creaked open and a head peeked out.
 
 “I'm going to guess slightly better than cheap beer.” Cale said.
 
-Leo laughed, this was ridiculous. But he followed Cale in as he introduced themselves.
+Leo laughed, this was ridiculous. He had never seen this side of the event before, typically May and he would just stick to the arcade. But he followed Cale in as he introduced themselves.
 
 **Astrid**
 
@@ -276,7 +300,7 @@ Astrid looked over, “You’re at the event as well?”
 
 “Of course. The board game room is huge this year.” He smiled, getting up to leave. Asuna signed on a few marked places and pushed the papers back to Astrid. Their looks met and their masks of professionalism slipped briefly into excitement. Astrid caught a smile from Hawthorn.
 
-“Astrid get those filed on monday. Happy Gamfest.” Ray nodded and left.
+“Astrid, get those filed on monday. Happy Gam.” Ray nodded and left.
 
 Once the door shut Asuna turned to Astrid, “I thought you were just a paralegal?”
 
@@ -296,7 +320,7 @@ May pushed, her eyes were focused and legs locked in. She dared not look over at
 
 The scores appeared, and she screamed in joy, a *thousand* points, the difference was less than *one* great, but she had done it! She took a song off Neko! She had done it! The Japanese boy walked over, both of them gasping for breath, and they bumped fists.
 
-She turned to scan the crowd, there was likely forty people standing there and cheering. Wander was helping Neko hydrate, May couldn't see Leo anywhere. Had he not gotten her text? He knew the match time was now, right?
+She turned to scan the crowd, there were likely forty people standing there and cheering. Wander was helping Neko hydrate, May couldn't see Leo anywhere. Had he not gotten her text? He knew the match time was now, right?
 
 The next song was going to be an easy win for Neko, so she would conserve energy on it. The foot placement technique you needed for it was not one she was comfortable with. But the last one would be a tossup…
 
@@ -304,9 +328,9 @@ She made her way back to her pads, taking a swig of water. Leo would make it. He
 
 **Leo**
 
-Leo and Cale moved on to another hotel room, although Leo was already missing the top shelf drinks from the previous one. He still wasn't sure what the hell pisco was, but man did he like it sour.
+Leo and Cale moved on to another hotel room, although Leo was already missing the top shelf drinks from the previous one. He still wasn't sure what the hell a pisco was, but man did he like it sour.
 
-This room had ramen and meat. The microwave was constantly running, a line ran out into the hallway. It would heat up a cup of ramen while a girl at the table cooked up various meats on a portable grille. Somehow they had found a way to open the window, both cooling the room and venting out the small amount of smoke.
+This room had ramen and meat. The microwave was constantly running, and a line ran out into the hallway. It would heat up a cup of ramen while a girl at the table cooked up various meats on a portable grille. Somehow they had found a way to open the window, both cooling the room and venting out the small amount of smoke.
 
 “How… How did you find these places?” Leo asked.
 
@@ -344,13 +368,13 @@ The outro, this would be it. It all came down to one burst of technical complexi
 
 **Leo**
 
-Leo booked it into the arcade, running full speed. He could see the crowd, they were cheering. For who? Was it over? He pushed through, Murk was up on the pads, holding up a Japanese boy’s hands. Leo ignored them, looking over to May. His heart sank. She looked so defeated, so torn. Their eyes met and he caught a moment of hatred, of raw anger, fury. It made him take a step back. But it melted back into defeat.
+Leo booked it into the arcade, running full speed. He could see the crowd, they were cheering. For who? Was it over? He pushed through, Murk was up on the pads, holding up a Japanese boy’s hands. Leo ignored them, looking over to May. His heart sank. She looked so defeated. Their eyes met and he caught a moment of hatred, of raw anger, fury. It made him take a step back. But the look quickly faded back into emptiness.
 
 She grabbed her bag and began to walk off on the other side of the crowd.
 
 He ran around the group, ducking between a series of people riding large inflatable shrimp, almost running into someone dressed as a t-rex. He kept sights on her though, and followed her to the room’s exit. She went *outside,* seeming to try and lose him.
 
-“May!” He yelled, bursting through the doors and beginning to question his life decisions even further as the biting cold seeped in. The yell escaped as a puff of condensed breath. She stopped and turned, glaring at him.
+“May!” He yelled, bursting through the doors and beginning to question his life decisions even further as the biting cold embraced him. The yell escaped as a puff of condensed breath. She stopped and turned, glaring at him.
 
 “What? What are you going to explain? What’s the excuse?” She said as he got closer.
 
@@ -364,7 +388,7 @@ He ran around the group, ducking between a series of people riding large inflata
 
 “I was with Cale! I never get to hang out with him anymore, not like this.” Leo pleaded for her to understand.
 
-“Neko was there, Leo. It was *Neko*. I’m not going to get a chance like that ever again, and I wanted you there for it.” She shook her head and turned to leave. She paused momentarily as if waiting for him to say *something.*
+“Neko was there, Leo. It was *Neko*. I’m not going to get a chance like that ever again, and I wanted you there for it.” She shook her head and turned to leave. She paused momentarily, her head turned ever so slightly back as if she expected him to say *something*, literally *anything.*
 
 Leo just stared. He knew she was right. He should have been down there. It was important, she trained for these things. Even if it was just a convention… He had no good excuses. It was his fault. He just let her walk away, yet again. There was no way they would come back from this. Their experiment of “Just don’t fight” clearly was a failure. There was some piece of this that just was not going to work.
 
@@ -376,11 +400,13 @@ He stood there much longer than he should have, hoping to see her come back, to 
 
 Cale leaned back, letting the vibes wash over him. They were in the presidential suite, he held a half empty bottle of soju lightly in one hand. This hypothetically was an event staff party, but he had multiple people vouch for his little entourage. Astrid and Asuna were doing karaoke in the corner, cheered on by a large mass of people. Asuna was performing a little *too* well on this Mimi Galaxy song, even doing the dance. Most people in the room were wasted though, including those two. No one was going to think too hard about a random Japanese girl being too good at Karaoke.
 
-Hawthorn sat nearby eyeing the crowd, he had been nursing the same beer for a while. He and Cale had caught up a little earlier, well, on the parts that he could actually disclose. Sounded like there were a lot of ambitious parts moving behind the scenes, Cale was glad his friend was finding success.
+The rest of the room was filled with a mishmosh of people in various levels of costume, many like Cale simply lounged and soaked in the energy, many talked or danced, and more than two couples simply made out.
 
-His eyes fell on Leo, passed out on the other side of the couch. Cale was going to need to bring that boy to Diego. From what he gathered this was another case of Leo not standing up for himself more. May wanted to hear him fight for her, Cale knew that. Everyone in the world knew that except for Leo. Cale often worried that his fighting with Astrid over the years was what cemented Leo into a state of thinking all confrontation was bad.
+Hawthorn sat nearby eyeing the crowd, he had been nursing the same beer for a while. He and Cale had caught up a little earlier, well, on the parts that he could actually disclose. Sounded like there were a lot of ambitious parts moving behind the scenes, Cale was glad his friend was finding success and happiness.
 
-Two people approached Cale, a curly haired hispanic girl and a Japanese boy in a black shirt. Cale raised an eyebrow at their held hands.
+His eyes fell on Leo, passed out on the other side of the couch. Cale was going to need to bring that boy to Lola. From what he gathered this was another case of Leo not standing up for himself more. May wanted to hear him fight for her, Cale knew that. Everyone in the world knew that except for Leo. Cale often worried that his fighting with Astrid over the years was what cemented Leo into a state of thinking all confrontation was bad.
+
+Two people entered the room and approached Cale, a curly haired hispanic girl and a Japanese boy in a black shirt. Cale raised an eyebrow at their held hands. Far from the weirdest thing he had seen today he supposed.
 
 The girl typed something out on a phone and handed it to Cale, “Someone told us to come up to this room?”
 
@@ -394,4 +420,8 @@ Cale smiled. This event was crazy. And there were three more days. Granted he wa
 
 “Happy Gam.” She said, kissing him on the cheek.
 
-“Happy Gam.” He agreed, takinjyg a swig from his soju and turning to kiss her.
+“Happy Gam.” He agreed, taking a swig from his soju.
+
+“So, we’re signing the boobs of random girls now?” She said, with only the slightest hint of irritation. She knew he had done it to bother her.
+
+He laughed, *knew it*, and turned to kiss her.

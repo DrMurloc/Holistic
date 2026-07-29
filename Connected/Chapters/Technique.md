@@ -1,6 +1,6 @@
 **May**
 
-May stepped off the pads, breathing heavily. That had been a world record, easily three or four greats ahead of Neko’s. Adrenaline pounded, she looked around for anyone to share that thrill with. Zach applauded lightly, he seemed excited, but he had no context on what she had just done. She topped *Neko,* like *The* Neko. The thrill inside of her dissipated instantly. Maybe she shouldn’t have brought Zach here so early. They’d only been dating for a few days. But this game meant so much to her, she *needed* someone who understood.
+May stepped off the pads, breathing heavily. That had been a world record, easily three or four greats ahead of Neko’s. Adrenaline pounded, she looked around for anyone to share that thrill with. Zach applauded lightly, he seemed excited, but he had no context on what she had just done. She topped *Neko,* like capital “T” *The* Neko. The thrill inside of her dissipated instantly. Maybe she shouldn’t have brought Zach here so early. They’d only been dating for a few days. But this game meant so much to her, she *needed* someone who understood.
 
 “I can’t believe you memorize all of that!” He said, sounding like one of the random mothers that would stop by on occasion with their kids. She panted, staring at him, holding back many snide responses. The corner of her eye picked up someone entering. *No, no no no no no. You picked TODAY to finally come out?*
 
@@ -20,7 +20,7 @@ Leo approached, his mouth opened to say something but then he spotted Zach and s
 
 “Sure.”, Leo paused, “I’m sorry May… I’ll… sync up with you another time. I don’t want to interrupt your date.” He sounded deflated. She turned back and watched him leave. She should say something. Anything. Ditch this loser. She screamed internally again.
 
-“He seems cool. I honestly thought this game would just be full of awkward nerdy guys.” Zach said.
+“He seems cool. I honestly thought these kinds of games would just be full of awkward nerdy guys.” Zach said.
 
 “Oh it is. Don’t ever think otherwise.” May clarified, stabilizing her breath. *But Leo is MY awkward nerdy guy…*
 

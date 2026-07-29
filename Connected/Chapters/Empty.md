@@ -1,20 +1,20 @@
 **Leo**
 
-Leo was alone. This was longer than he had ever gone without her, and now he didn't even have Astrid to console him. A little over a week earlier this kitchen would be full of laughter. Rotating movie nights in the living room, very rarely guest starring Cale.
+Leo was alone. May still hadn't returned, and Astrid had more or less moved in with Cale. Slightly longer than a week earlier this kitchen was full of laughter. Rotating movie nights in the living room, very rarely guest starring Cale.
 
 The bed felt colder. The silence at night, her missing snoring, woke him up often in a cold sweat. The entire house felt haunted by spirits of what once was. It had all changed so fast.
 
 Astrid finally had stopped by to pick up both her and May’s stuff. Leo had boxed up all of it for them, what else would he do with his time? He put them into this mess, he might as well do what he could to smooth it out. May had never gone as far as to move out before… maybe this was finally it.
 
-Astrid stopped by the door before leaving, looking back into the living room. Leo would need to move back into their parents house, they both knew it. He couldn't afford the cost of the mortgage alone. So to Astrid, who was leaving the country in a few days, this was possibly the last time she would ever see the place.
+Astrid stopped by the door before leaving, looking back into the living room. Leo would need to move back into their parents house, they both knew it. He couldn't afford the cost of the mortgage alone. So to Astrid, who was leaving the country in a few days, this was possibly the last time she would ever see the house.
 
 Leo stood off to the side, staring past her to the packed car out the window. “Leo, I'm so sorry.” She took a few steps forward but he took a step back.
 
-“I did it myself. All of it. It's my fault. I got you and Cale back together, I pushed May away. I bought a damn house I can't afford. So don't apologize.”
+“I did it myself. All of it. It's my fault. I got you and Cale back together, I pushed May away. I bought a fucking house I can't afford. So don't apologize.”
 
 “I don't think that's being fair to yourself.” She said softly. He didn't respond.
 
-She walked over to the kitchen counter, and sat down, continuing to stare into the living room. She wanted to listen, of course she did. *She* was a functioning human being that understood how to care.
+She walked over to the kitchen counter, and sat down, continuing to stare into the living room. She wanted to listen. Did he want her to listen?
 
 “Leo, if you-”
 

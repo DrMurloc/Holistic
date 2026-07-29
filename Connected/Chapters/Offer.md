@@ -1,14 +1,14 @@
 **Asuna**
 
-Asuna shuffled papers, slightly nervous. They had talked about verticals, but this one was… different. Hawthorn stood by the window, looking out over the city, and Kenji sat at the table communicating to some of the new hires over the phone.
+Asuna shuffled papers, slightly nervous. They had talked about verticals, but this one was… different. Hawthorn stood by the window, looking out over the city with arms crossed, and Kenji sat at the table communicating to some of the new hires over the phone.
 
 The door opened, and a head full of long curly hair peeked in. Asuna smiled and waved her in. Kenji would have to do most of the communicating, and even then his spanish was fairly broken.
 
-He said a few words to her, she shook her head, not understanding. Her hand went into her pocket and pulled out a phone, and typed into it before passing it over.
+He said a few words to her and she shook her head, not understanding. Her hand went into her pocket and pulled out a phone, and typed into it before passing it over.
 
 “Is this easier?” It read. Asuna grinned. Clever. Kenji nodded, and typed back.
 
-Asuna didn’t need to watch the exchange. They were offering her a position that would start next April. The V-Tuber scene was too big to ignore and had many untapped portions of market. It was a bit of a stretch, but the Spanish speaking scene in particular was one she had identified as a potential starting point for them to test the water.
+Asuna didn’t need to watch the exchange. They were offering her a position that would start next April. The V-Tuber scene was too big to ignore and had many untapped portions of the market. It was a bit of a stretch, but the Spanish speaking scene in particular was one she had identified as a potential starting point.
 
 She of course was interested in expanding beyond that, they just needed to test the waters. She assumed they could use much of the same designer resources that they had been scaling out for idols, meaning infrastructure and personnel costs could be reused. That assumption needed to be tested.
 
@@ -18,29 +18,29 @@ The girl’s eyes widened, and she typed out on the phone, “How did you find m
 
 Asuna smiled and took the phone, typing back, “Sho told Kenji about it. You have quite the voice. You clearly have solid editing and content skills. I had to use a translator for most of it, though.”
 
-Lara’s face filled with a wide grin, she bowed several times to Asuna before turning to Kenji. When did she learn to bow? Asuna hadn’t seen her do that before.
+Lara’s face filled with a wide grin, she bowed several times to Asuna before turning to Kenji. When did she learn to bow? Asuna hadn’t seen her do that before. Clearly this girl was learning a lot in her time with Sho.
 
-Kenji and her continued their exchange.
+Kenji and Lara continued their exchange.
 
-Asuna found herself staring at Hawthorn. Long black coat, arms crossed, brooding over the city with fierce eyes. She had to stifle a laugh, he was so dramatic. She wasn't sure he even knew how he looked.
+Asuna found herself staring at Hawthorn. Long black coat, arms crossed, brooding over the city with fierce eyes, just the perfect amount of stubble. She had to stifle a laugh, he was so dramatic. She wasn't sure he even knew how he looked.
 
-She supposed it wasn't uncommon for herself to be found lost in thought. They were going through a lot of change very fast. There was a lot to think about.
+She supposed it wasn't uncommon for she herself to be found lost in thought. They were going through a lot of change very fast. There was a lot to think about.
 
-He had her most recently thinking on cities or venues that she would want to try out her own vertical change in. It still seemed foreign, just *singing*? Were people even entertained by that? She of course had song ideas, it was sort of freeing to be able to expand her creative process beyond the pop scene algorithm.
+They most recently began thinking about cities or venues that she would want to try out her own vertical change in. It still seemed foreign, just *singing*? Were people even entertained by that? She of course had song ideas, it was sort of freeing to be able to expand her creative process beyond the pop scene algorithm.
 
 If they centered the V-Tuber branch in the US she would also need to reach out to Asuna again. That was still up in the air, Hawthorn said there were some complexities to the decision that they would need to sort out.
 
 “Can she work from other countries?” Kenji asked. *Speaking of complexities…*
 
-The girl and Kenji looked to her, she looked to Hawthorn, and they followed her gaze. The girl seemed to be holding her breath.
+The girl and Kenji looked to Asuna, she looked to Hawthorn, and they followed her gaze. Lara seemed to be holding her breath.
 
 He contemplated. She could make out his brow furrow slightly but otherwise you wouldn't have even known he heard them.
 
 He finally said, “It's complicated. Depends on the country. What you're looking to avoid is her falling into any regional legal legislature that requires us to pay taxes or be subject to stricter employee benefits than we support. I think she is entitled to up to six weeks of sick leave the second she works a single minute in Germany, for instance. Your call though, of course.”
 
-Asuna nodded, turning back. He hadn't directly said it but he didn't like the idea. She could hear it in his voice. It complicated things. He liked simple, especially without a dedicated legal department.
+Asuna nodded, turning back. He hadn't directly said it but he didn't like the idea. She could hear it in his voice. It complicated things, and he liked simple, especially without a dedicated legal department.
 
-She crossed her arms and leaned back, pursing her lips. The girl was practically on the edge of her seat. This was clearly important to her. She and Hawthorne didn't typically disagree… but on occasion.
+She crossed her arms and leaned back, pursing her lips. The girl was practically on the edge of her seat. This was clearly important to her. Asuna and Hawthorne didn't typically disagree… but on occasion…
 
 Asuna pulled the phone over to her, not wanting any of this to get lost in translation with Kenji, and typed out: “Get us a list of countries you are interested in, and how long you would want to stay in each. I'll tell you which ones are OK, which ones we need to discuss, and which ones will need PTO.”
 
@@ -48,7 +48,7 @@ She translated the message to English and noted a few words were misinterpreted.
 
 Asuna leaned back with a smile. She had given herself some homework but it would be worth it.
 
-“What did you say?” Hawthorne asked, still brooding.
+“What did you say?” Hawthorne asked, still holding his dramatic pose.
 
 “It depends on the country, in more words.” Asuna said. She caught a grunt of acknowledgement.
 
@@ -58,7 +58,7 @@ He seemed to want to play the supporting role, so it worked. From what she had g
 
 When they were at home, however… She fought off a grin and stayed focused on business.
 
-Kenji had her signing some papers. Securing her for a contract in the future. Asuna didn't like having these papers signed this early but she was very concerned about this girl just leaving the country.
+Kenji had her signing some papers. Securing her for a contract in the future. Asuna didn't like having these papers signed this early but she was very concerned about this girl just leaving the country at any moment based on previous conversations. They needed to secure their asset.
 
 Kenji and her bowed. She turned and bowed to Asuna, who returned it. Lara considered for a moment, then ran around the desk and gave Asuna a hug. Asuna laughed and returned the embrace lightly, before Lara ran out of the room.
 
@@ -68,9 +68,9 @@ Kenji and her bowed. She turned and bowed to Asuna, who returned it. Lara consid
 
 “You won't join?”
 
-“Let's see what happens if I'm not there. Cost of failure I think is what our dark vigilante over here calls it.” He snorted and shook his head lightly.
+Asuna thought for just a moment, “Let's see what happens if I'm not there. Find the cost of failure, I think is what our dark vigilante over here calls it.” Hawthorn snorted and shook his head lightly. She then added, “I’ll be by the phone and in the area if you need.”
 
-“I… I'll keep you updated.” Kenji sounded enthusiastic.
+“I… I'll keep you updated.” Kenji sounded enthusiastic, she could hear him stacking papers to get ready to go.
 
 “Kenji?” She said before he could leave.
 
@@ -78,7 +78,7 @@ Kenji and her bowed. She turned and bowed to Asuna, who returned it. Lara consid
 
 “Find yourself an assistant, and promote yourself to Director of Operations. Throw me a number.”
 
-She and Hawthorne had discussed it a few weeks back, they of course had a number. It was good to give Kenji the feel of control, he thrived in it. Harin being more predictable income meant more scaling.
+She and Hawthorne had discussed it a few weeks back, they of course had a salary picked out. It was good to give Kenji the feel of control, he thrived in it. A combination of several very successful game collaborations and Harin being more predictable income meant more scaling.
 
 “What? I mean… Yes! Thank you! But we're going to need to talk about the implications on the org chart, the reporting rollup.” He stammered.
 
@@ -88,31 +88,31 @@ She and Hawthorne had discussed it a few weeks back, they of course had a number
 
 “Of course! Yes mam!” He stumbled out of the room.
 
-The two lingered for a moment after the door shut, then the two burst out laughing.
+The two lingered for a moment after the door shut, then burst out laughing, breaking their contemplative brooding postures.
 
 “Have you seen yourself? Mr. Drama over here, big mysterious American in a trench coat staring off into the sunset.” Asuna said.
 
 “Me? You're the one who just promoted someone without even looking them in the eyes.”
 
-“He's going to be telling that stories for weeks.” Asuna had to wipe away a tear.
+“He's going to be telling that story for weeks.” Asuna had to wipe away a tear.
 
-Their eyes met, letting out a few residual chuckles. She stood on her toes and kissed him, before proceeding back to the desk and flipping through the paperwork.
+Their eyes met, letting out a few residual chuckles. She stood on her toes and pulled him down for a kiss, before proceeding back to the desk and flipping through the paperwork.
 
-“How about New York? November.” He asked, returning to his stare over the city but with significant less brood.
+“How about New York? November.” He asked, returning to his stare over the city but with significantly less brood.
 
-“Yeah. Lock that in. Get this problem off my plate. Pick a bar venue. One with good rum.”
+“Yeah. Lock that in. Get this problem off my plate. Pick a bar venue. One with good gin.”
 
-“Rum? Don't know if I've ever seen anything but beer in your hands.”
+“Gin? Don't know if I've ever seen anything but beer in your hands.”
 
 “You never take me to nice places.” She smirked, it wasn't entirely true. Although they rarely had bandwidth for true dates.
 
-“Fair. Tonight. Nice place in Shinjuku.”
+“Fair. Tonight. Nice place in Shinjuku. Not too far from where Chibi will be”
 
 “A bar in shinjuku? What animal outfits are the girls there wearing?”
 
 He laughed, “Not that kind of place. I'll send you the address. Come as Asuna. I'm sick of Naomi, the young girls are boring.”
 
-She couldn't remember the last time she had been out as Naomi, come to think of it. It was rare for her to be out without Hawthorn anymore.
+She couldn't remember the last time she had been out as Naomi, come to think of it.
 
 “You're going to watch the game? You know it happened last night and it's a replay, you can see it on your phone.”
 

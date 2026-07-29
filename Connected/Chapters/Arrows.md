@@ -6,7 +6,7 @@ Before her a steady stream of arrows filled the screen, the center of the screen
 
 She growled, dumping her anger into raw focus and determination. The ending of the song approached, the pattern of arrows jerked to the side, and a single red “Miss” stood out from the perfects. She yelled and walked off the pads, letting the song fail out on the last few notes.
 
-She knew she shouldn't play angry. Adrenaline and anger in a public space was often a recipe for disaster. But she needed to feel *something*. She had spent weeks pretending everything was fine at work with the kids. She had acted calm around her parents to avoid them digging in too much.
+She knew she shouldn't play angry. Adrenaline and anger in a public space was a recipe for disaster. But she needed to feel *something*. She had spent weeks pretending everything was fine at work with the kids. She had acted calm around her parents to avoid them digging in too much.
 
 But she needed an outlet, and that outlet today was Pump ManiaK. The next person in line, seeming to decide not to engage May's outburst, stepped up onto the pads and swiped in. They all knew her. They knew what she was going through.
 
@@ -40,7 +40,7 @@ May's heart broke. He… he had actually taken the job. She knew he would, but�
 
 “And you? How was Japan?” Her tone lowered even though there was no one around, “Did his new level of game translate to the bedroom?”
 
-She could hear the blush, “I… May!” A pause, “Yes.” Another pause, “Don't dig, that's all you're getting. Just because you're single doesn't mean you can get your kicks through me.”
+She could hear the blush, “I… May!” A pause, “Yes.” Another pause, “Don't dig, that's all you're getting. Just because you're single doesn't mean you can live vicariously through me.”
 
 May laughed, “You actually answered! So compliant! What is that boy doing to you? This a whole Taming of the Shrew thing going on here.”
 

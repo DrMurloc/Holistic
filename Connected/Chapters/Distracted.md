@@ -28,7 +28,7 @@ Did Zoey say something wrong to her? Naina sometimes heard different things than
 
 Maybe she should just be even more direct. Would it really ruin their relationship if Zoey was wrong? Maybe, and that scared her. Besides, Zoey craved a confession, it would feel wrong for her to be the one doing it.
 
-The doors to the cafe opened and Zoey’s heart practically leapt into her throat. She pushed through her friends and rushed to the counter, where a certain adorable redhead stood in front of a cash register.
+The doors to the cafe opened and Zoey’s heart practically leapt into her throat. She pushed through her friends and rushed to the counter, where a certain adorable redhead stood behind a cash register.
 
 “Oh! Zoey! I uh… Hi!” She smiled, not quite meeting Zoey’s eyes.
 
@@ -92,7 +92,7 @@ A minute later she got the reply, “Yeah, sorry. I need to prep for some holida
 
 It felt like clouds parted, rain giving way to sunshine. Zoey read the message a dozen times, smiling. They would have their routine back. She would continue living. She saw Sarah glance her way still with that knowing smile.
 
-She should probably reconcile with herself how devastated she had been for the last few days. Probably. Naina would say she had self destructive tendencies that were catalyzed by an deeply rooted fear of of abandonment stemming back to a series of unhealthy and transient relationships in her youth. Or something adorable like that. That girl was just so cute when she got nerdy.
+She should probably reconcile with herself how devastated she had been for the last few days. Probably. Naina would say she had self-destructive tendencies that were catalyzed by a deeply rooted fear of abandonment stemming back to a series of unhealthy and transient relationships in her youth. Or something adorable like that. That girl was just so cute when she got nerdy.
 
 Anways. None of that concern mattered, she had Naina back.
 

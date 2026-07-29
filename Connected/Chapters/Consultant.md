@@ -1,10 +1,10 @@
 **Astrid**
 
-Astrid ducked around the musty room, her box of papers was slowly diminishing but she still had a ways to go. The Simmers case had resolved well, so she was in a good mood. The state had clearly been overstepping boundaries on that one so she hadn’t been surprised. Part of her had hoped they would escalate so she could get some experience with her team in a higher court on an easy win. But they came to their senses at the last minute.
+Astrid ducked around the musty room, her box of papers was slowly diminishing but she still had a ways to go. The Longing's case had resolved well, so she was in a good mood. The state had clearly been overstepping boundaries on that one so she hadn’t been surprised. Part of her had hoped they would escalate so she could get some experience with her team in a higher court on an easy win. But they came to their senses at the last minute.
 
 And now she had filing to do. Bright and early, before the caffeine even set in, tedious filing. The bureaucracy marched forward.
 
-Her phone vibrated, she pulled it out hoping to get a lunch checkup from Cale. It was… Naomi? The girl they had met in Osaka that she exchanged contact info with. Astrid had floated the proposition to the case manager, the response had been “keep a pulse on that opportunity” but they wouldn’t have many openings for consultation until December.
+Her phone vibrated, she pulled it out hoping to get a lunch checkup from Cale. It was… Naomi? The girl they had met in Osaka that she exchanged contact info with. Astrid had floated the proposition to the case manager, the response had been “keep a pulse on that opportunity”. They wouldn’t have many openings for consultation until December.
 
 She picked up, “Go for Astrid.”
 
@@ -24,7 +24,7 @@ Astrid paused, eyeing the phone, *she* was the closest friend Naomi had? That wa
 
 “Sure. I got time to kill.” Astrid said, brushing out several cobwebs in the back of a shelf. The woman didn’t continue, but Astrid heard her phone vibrate again. She looked over, a new message with an attachment.
 
-She frowned, “I gotta say Naomi. I can’t say any of my friends have come attached with NDAs before.” She started reading through the document, she let out a sigh as the full picture began to form.
+She frowned, “I gotta say Naomi. I can’t say any of my friends have come attached with NDAs before.” She started reading through the document, and let out a sigh as the full picture began to form.
 
 “I know, I’m sorry. I hope you understand. I should have just been out as Asuna that day, but there were other… circumstances… that had me paranoid. I’ve been limiting my time as Asuna.”
 
@@ -40,7 +40,7 @@ Astrid stopped, a folder halfway out of the box, “Is this a ‘lawyer up’ ki
 
 “Definitely the latter.” There was clearly a mixture of delight and anxiety in that voice, it practically seeped through the phone.
 
-“I’m assuming ‘he’ is Hawthorn here. That’s wonderful! You two didn’t talk much, I didn’t really get time with him, but he got along with Cale pretty well. He was built like a quarterback, I would be lying to say there wasn’t a touch of envy here.” Astrid smiled.
+“I’m assuming ‘he’ is Hawthorn here. That’s wonderful! You two didn’t talk much, I didn’t really get time with him, but he got along with Cale pretty well. He's built like a quarterback, I would be lying to say there wasn’t a touch of envy here.” Astrid smiled.
 
 “We need to do a big cover up. It sounds like three of the stage-hands saw, fortunately no photos were taken. These NDAs seem to only work on people who actually give a shit about the importance of legally binding contracts.”
 
@@ -86,22 +86,22 @@ She opened the door. The white light of the hallway filled the room, fighting ba
 
 **Asuna**
 
-Asuna hung up the phone, staring out over the Tokyo skyline from Hawthorn’s apartment. A light breeze rippled her hair and dress as she collected her thoughts. Astrid hadn’t told her anything she hadn’t known, she just needed to hear it said out loud. But that was often how consultants worked. But she was resolute now. This *was* the direction she wanted to go in life.
+Asuna hung up the phone, staring out over the Tokyo skyline from Hawthorn’s apartment. A light breeze rippled her hair and dress as she collected her thoughts. Astrid hadn’t told her anything she hadn’t known, she just needed to hear it said out loud. That was often how consultants worked. But she was resolute now. This *was* the direction she wanted to go in life.
 
 Hawthorn had suggested just under a year, next April, that she drop the Idol mask for good. They didn’t know how, but she liked the time frame. It was aggressive but some of the more tactical moves she already had lined up positioned them well for it. The revenue loss from Mimi Galaxy would be *huge* though, there was no way to overstate that. They had a lot on their plate.
 
 But she knew one thing tonight. Whatever her plans, whatever move in life she would make, whether it be the downfall of a legacy or a rising of something greater, Hawthorn would be part of it.
 
-She silently opened the sliding door, smiling at the silhouette of Hawthorn’s toned arms sprawled out on the couch, facing the TV which was providing an American Stock Market update.
+She silently opened the sliding door, smiling at the silhouette of Hawthorn’s toned arms sprawled out on the couch, facing the TV which was providing an update on the American stock market.
 
 The door closed with a soft thud, sliding slightly faster than she expected. His head turned back, noting her smile.
 
 “They’re open for consultation?”
 
-“I got some light off the records advice, their availability for something more binding will line up with our schedule though.” She stepped slowly and carefully, as if any noise caused by her feet would disrupt her resolution.
+“I got some light off-the-records advice, their availability for something more binding will line up with our schedule though.” She stepped slowly and carefully, as if any noise caused by her feet would disrupt her resolution.
 
-“Well that’s excellent. What was their immediate advice, I’m curious?” His eyes followed her hand as she tapped the remote, turning off the TV, before turning up to her. She briefly stood in front of him, their eyes locked, a smile began to form on his face. She climbed on his lap, closing his legs so she could straddle him, and pressed her lips up against his.
+“Well that’s excellent. What was their immediate advice, I’m curious?” His eyes followed her hand as she tapped the remote, turning off the TV. She briefly stood in front of him, their eyes locked, a smile began to form on his face. She climbed on his lap, closing his legs so she could straddle him, and pressed her lips up against his.
 
-They held each other in that position for some time, the first time that *Asuna* had kissed Hawthorn. The implication didn’t seem to be lost on Hawthorn, as he let the kiss linger softly as if it was the first time. No wigs, no costumes, just Asuna and Hawthorn.
+They held each other in that position for some time, the first time that *Asuna* had kissed Hawthorn. The implication didn’t seem to be lost on him, as he let the kiss linger softly as if it was the first time. No wigs, no costumes, just Asuna and Hawthorn.
 
 He pulled back briefly, “That’s a hell of a legal adviser, their portfolio must be very diverse.” He chuckled. Asuna smiled, then continued to chase the kiss. It deepened as they let themselves succumb to much more than simple love, letting passion guide them into a fittingly climactic end to an already energetic and emotional day.

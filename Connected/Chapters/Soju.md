@@ -1,6 +1,6 @@
 **Leo**
 
-Leo had let himself get dragged out a week after the run in with May. He didn’t play, but he watched. Just being around other people seemed to lift his mood a little bit. Besides, May had moved on. Cale said they needed closure and they had closure. He could be happy now, right?
+Leo had let himself get dragged out a few weeks after the run in with May. He didn’t play, but he watched. Just being around other people seemed to lift his mood a little bit. Besides, May had moved on. Cale said they needed closure and they had closure. He could be happy now, right?
 
 Right?
 
@@ -14,7 +14,7 @@ Murk approached, a phone loosely held to his ear, “Lion, K-barbecue. You in?�
 
 Leo considered, “Who’s going?”
 
-“Errar, Sneez, Bee, Ryu, Star, and a couple others I think.” He paused, “Oh man, you and Star. I’m sorry, I shouldn’t have suggested.” He turned to leave.
+“Errar, Sneez, Bee, Ryu, Star, and a couple others I think.” He paused, seeming to realize what he had just said “Oh man, you and Star. I’m sorry, I shouldn’t have suggested.” He turned to leave.
 
 “Nah it’s ok, I’ll be fine. Count me in.” Leo said. Murk grinned, and turned back to his phone.
 
@@ -28,7 +28,7 @@ He threw back a shot of soju. May held up her own shot glass, a gesture that see
 
 “How… how have you been?” She asked.
 
-“Just awful.” He said honestly. She looked away, poking a piece of kimchi on her plate.
+“Just awful.” He said honestly. She looked away, poking a piece of kimchi on her plate. He caught her hand going up to his back by reflex, but she caught herself and lowered it.
 
 Leo followed up, “That's not entirely true. Work is good. I should have listened to you sooner.”
 
@@ -38,7 +38,7 @@ May shook her head, “Nope, none of those conversations. Not now. We're here to
 
 “He's a tool.” Leo almost choked on a piece of radish. May chuckled, “He's just from a different world, you know? He's trying to be supportive but his idea of support is ‘you should focus less on your games and more on yourself’. That probably sounds familiar…” She trailed off, looking away.
 
-“Your words. None of that.” Leo poured this round. The server cut up the meat and distributed it. Leo instinctively traded his lean pieces for her fatty pieces, she didn't like those. It took a moment for him to realize what he was doing. Her hand moved up to her mouth, failing at covering a laugh.
+“None of that. Your words.” Leo poured this round. The server cut up the meat and distributed it. Leo instinctively traded his lean pieces for her fatty pieces, she didn't like those. It took a moment for him to realize what he was doing. Her hand moved up to her mouth, failing at covering a laugh.
 
 They joined the group conversation for a while, discussing what songs were rated the wrong level. Several people at the table would get very heated over this topic, although Leo knew it was much more subjective than they pretended it was. Cale had shown him the aggregated data. But it was less about being right than it was the engagement so Leo just joined the fun.
 
@@ -48,11 +48,17 @@ He turned to see May smiling at him, and he placed his hand on hers at the exact
 
 There was a little bit of wobbling involved with leaving the restaurant. May held Leo's arm for support as they followed their friends through the city. His mind felt focused despite the alcohol. It couldn't be this simple, could it? They just go back like nothing happened? All that time, all of those negative emotions… just… ignored and gone?
 
+“May, we need-” Leo started, breaking their very long silence.
+
+She cut in before he could say anything meaningful, “Please not tonight. I just want to hang out with you. I've missed you.”
+
+His heart flipped, “I missed you too.” This was all so familiar. He knew it. But what was he going to do, interrupt a night where they were finally letting themselves do what they knew they always wanted to do? Just to force a long conversation about dumb decisions made in the past?
+
 The lingering problems were still there, the disagreements they refused to acknowledge. His martyr syndrome, her tendency to overreact and box him into ultimatums. Their disputes still felt like they hung in the air like a guillotine. They were ultimately the same people.
 
 She didn't want to talk about those today, though. So he took a deep breath as they entered the karaoke bar.
 
-They kept progress on the soju here. Much of it was a blur, he remembered singing, then she sang… bottles for the group piled up on the counter. The chaos of music and flashing lights seemed to lean into the disorientation of inhebriation.
+They kept progress on the soju here. Much of it was a blur, he remembered singing, then she sang… bottles for the group piled up on the counter. The chaos of music and flashing lights seemed to lean into the disorientation of inebriation.
 
 Suddenly they were in the corner, kissing. Arms desperately wrapped around each other, not caring who else in the group saw or what they thought. They had been craving this touch for over a month.
 

@@ -6,7 +6,15 @@ Sho shot the others a glare, “You do realize we’re in here specifically beca
 
 “Whatever, they probably want to get rid of us anyway. Remember they laid off Itsuki and Daiki the other month? We’re not needed.” Ren leaned back. Sho sighed. He felt like a child in the principal’s office, it was embarrassing. They were better than this.
 
-The girl tapped away at her phone, not engaging as usual. Sho could not figure out what language she spoke, Kenji seemed to speak a bit of whatever it was. Portuguese or spanish maybe? Sho was unclear on the difference.
+The girl tapped away at her phone, not engaging as usual, though she stole a quick glance up at Sho with a smile. He smiled back.
+
+That hug from the other day was stuck in his head, it came at the perfect moment. It was his first year without parents visiting the cherry blossoms. He had been feeling… empty, lost? Not good, at the very least.
+
+And then *she* appeared.
+
+Her cheerfulness had seemed infinite. So unbound and free that with a single hug it had leaked into Sho and filled his empty heart with joy. Even before the hug… those eyes, so bright and wide with wonder… He could *not* get her out of his head, and they had not exchanged a *single* word.
+
+Sho could not even figure out what language she spoke, Kenji seemed to speak a bit of whatever it was. Portuguese or Spanish maybe? Sho was unclear on the difference.
 
 The door opened and Sora stepped out, looking almost haunted from what he probably had perceived as an interrogation. Kenji stepped out briefly and waved them all off.
 
@@ -14,13 +22,13 @@ The door opened and Sora stepped out, looking almost haunted from what he probab
 
 “We do, I asked.” Haruki added.
 
-They got up to leave, Sho assumed they would get ramen as usual, it was tradition any time they got called into the office. It was mostly a part time job, most of the coordination was done over phones telling them when and where to be. Office visits were rare.
+They got up to leave, Sho assumed they would get ramen as usual, it was tradition any time they got called into the office, which continued to be rare even with Kenji's increased role.
 
 Sho was the last one out, and paused to look back. The girl was still locked in her phone, but she looked up at him when she realized he was there. He smiled and waved her to follow. She seemed to consider for a moment, then got up and fell in step behind him with enthusiasm.
 
 They trailed a little behind the others.
 
-“I’m Sho.” He said in Japanese, figuring he’d be friendly. She didn’t immediately respond. He pulled out his phone, and opened a translator app, and typed in: “Hi, I’m Sho. I’m glad to meet you.” it translated into English and he handed it over.
+“I’m Sho.” He said in Japanese, figuring he’d be friendly. She didn’t immediately respond. He pulled out his phone, and opened a translator app, and typed in: “Hi, I’m Sho. I’m glad to meet you.” It translated into English and he handed it over.
 
 She tapped the language options and switched it from English to Spanish. She stared at it for a moment, and said the name out loud, “Sho.” He caught a smile, and she typed for a moment, switching the direction of the translations.
 
@@ -36,7 +44,7 @@ She typed out, “Wander. But spelled VVander.”
 
 “Neko? El gato?” She asked with a small laugh. Sho tilted his head. She made little paw movements with her hands accompanied by a small meowing sound. She didn’t seem embarrassed, it was very cute.
 
-Sho nodded, “Yes! Yes! Neko! Gato? Gato.” He returned the paw motions and they both laughed. She knew some Japanese, he was impressed someone was out here without knowing the language at all. It was rare to find someone who didn’t know Japanese or English, it must be difficult.
+Sho nodded, “Yes! Yes! Neko! Gato? Gato.” He returned the paw motions and they both laughed. So she knew some Japanese. He was impressed that someone was out here without knowing the language almost at all. It was rare to find someone who didn’t know Japanese or English, it must be difficult.
 
 They arrived at the ramen shop, Sora held the door open waiting for them. They were well behind, he cocked his head in curiosity at the smiles they wore.
 
@@ -44,15 +52,11 @@ They arrived at the ramen shop, Sora held the door open waiting for them. They w
 
 “Sorry! Sorry! No you did it right!” He said. She looked confused, so he pulled out the phone again.
 
-“I should not have laughed. You did it right. I apologise.” He wrote, passing it over. She smiled and shook her head and gave a thumbs up. They took their seats.
+“I should not have laughed. You did it right. I apologise.” He wrote, passing it over. She smiled, shook her head and gave a thumbs up. They took their seats.
 
-The others, naturally, immediately went into running their mouths about Mimi Galaxy. Sho sighed and shook his head. He wanted nothing to do with that conversation. The girl was reading the menu through her own translator app.
+The others, naturally, immediately went into running their mouths about Mimi Galaxy. Sho sighed and turned away from them. He wanted nothing to do with that conversation. The girl was reading the menu through her own translator app.
 
-Sho leaned back, looking up at the ceiling, doing his regular routine of mental reconsiliation. It had been almost six months since his parents had passed away. They had left him money, but not a significant amount. The house was at least taken care of, he had a place to stay, although it felt wrong to be there many times. Like it wasn’t his.
-
-He still wasn’t really sure what to do with himself. He just sort of kept momentum on his hobbies, rhythm games were a great escape, and found whatever part time jobs seemed interesting. Honestly it was likely not far off from what he would have been doing had his parents not met their end in a car accident. It just felt less… guided.
-
-A piece of him liked picturing that they got sent off to a magical world by that truck. Reincarnated, fighting some demon lord. But he had seen the bodies, unfortunately. There was no way to distance himself from that reality.
+The thought of what he wanted to do with his life still ate away at him. He had done some light career research but couldn't quite find a good fit. A lot of the interesting careers required a degree, and college was simply out of the question.
 
 He heard a tapping noise and looked down. Lara had been trying to get his attention. She pointed to the spice level meter on the side. Sho’s eyes widened in understanding, and pulled up his phone.
 
@@ -62,13 +66,13 @@ She nodded, typed, and pushed the phone back, “I don’t have much experience 
 
 He nodded, typing out, “Do two. One is nothing. Where are you from?”
 
-She had to think on this, he hadn’t expected this to be a hard question, eventually she pushed the phone back, “Santo Domingo originally. In the Dominican Republic. I lived in the United States only long enough to get citizenship, Los Angeles. That is home right now.” That explains why she speaks very little English. Enough to pass a citizenship test.
+She had to think on this, he hadn’t expected this to be a hard question, eventually she pushed the phone back, “Santo Domingo originally. In the Dominican Republic. I lived in the United States only long enough to get citizenship, Los Angeles. That is home right now.” That explains why she speaks very little English.
 
 The server came by, and everyone put in their orders. When it got to Lara she just pointed at the pictures, and held up two fingers for the spice level. Sho found himself smiling.
 
-“Sho, so what’s the deal with the girl?” Ren asked.
+“Sho, so what’s the deal with the girl?” Ren asked, noticing Sho's smile.
 
-“Spanish, she speaks spanish. And is from the Dominican Republic.” Sho said. Two of the guys grumbled, and the other two let out a little “yes!” and some yen was exchanged. Sho had not been aware there was betting going on.
+“Spanish, she speaks Spanish. And is from the Dominican Republic.” Sho said. Two of the guys grumbled, and the other two let out a little “yes!” and some yen was exchanged. Sho had not been aware there was betting going on.
 
 “Why’s she here?”
 
@@ -78,7 +82,7 @@ Sho typed out, “They had bets on what language you were speaking. What brings 
 
 This one really made her think. He could respect that. Honestly if someone asked him why *he* was in Japan he wouldn’t have a good answer beyond “because I’m here.”
 
-Lara finally typed out a few sentences and pushed it back, “I needed to get away from Family drama. So I travel, and I record videos on where I go. Right now I’m in Japan.”
+Lara finally typed out a few sentences and pushed the phone back, “I needed to get away from Family drama. So I travel, and I record videos on where I go. Right now I’m in Japan.”
 
 He nodded, his eyes meeting hers. It was hard to picture wanting to get *away* from family, but he suspected that he was biased on that front.
 
@@ -86,7 +90,7 @@ He nodded, his eyes meeting hers. It was hard to picture wanting to get *away* f
 
 He typed a simple word and pushed it over, “Videos?”
 
-Her eyes lit up, and she tapped through on her own phone. He watched as she opened OrangeBox, a popular video recording app, and clicked on her channel. She tilted the phone for him to scroll through.
+Her eyes lit up, and she tapped through on her own phone. He watched as she opened a video app, and clicked on her channel. She tilted the phone for him to scroll through.
 
 Montreal, Washington DC, Rome, Paris, Istanbul, then Tokyo were what he could make out, in order. He noted that her videos had a significant amount of views, especially for a non english channel.
 
@@ -98,11 +102,11 @@ She pointed downwards and nodded enthusiastically. He found that surprising, Tok
 
 The ramen got dropped off. The five boys all said “Let’s eat!” and dug in.
 
-Lara watched this, and tried to get out a “Itakdamas?”
+Lara watched this, and tried to repeat them “Itakdamas?”
 
-Sho laughed and typed it out on the phone in romaji.
+A few of the others laughed. He shot them a glare, and typed it out on the phone in romaji.
 
-“Itadakimasu!” She exclaimed. The boys all clapped lightly for her. She looked proud. Sho expected her to need help with chopsticks but she seemed to have that down pat. He supposed it was something you had to learn after a month in Japan.
+“Let's eat!” She exclaimed. The boys all clapped lightly for her. She looked proud. Sho expected her to need help with chopsticks but she seemed to have that down pat. He supposed it was something you had to learn after a month in Japan.
 
 They ate in silence for a while, she would occasionally mimic some way one of them ate their ramen. Piling up the ramen with various ingredients in the renge spoon seemed to be her favorite. He could see her face getting red from the spice, maybe even two was too much. She clearly was trying to act cool about it. He yet again found himself smiling.
 
@@ -154,7 +158,7 @@ He had always viewed rhythm games as a form of communication. You learned to rea
 
 So in his mind, right here, right now, they were reading and speaking the same language. They didn’t need a translator for this, it was magical. He found himself laughing with joy, and as the song ended he looked over and found her smiling too. He promptly put in another two credits, noting that she nodded excitedly.
 
-They played there for almost two hours, no breaks, or anything. Part of Sho weeped for his wallet, but this was worth it.
+They played there for almost two hours, no breaks, or anything. Part of Sho wept for his wallet, but this was worth it.
 
 Eventually the arcade closed, and they found themselves sitting on the front step.
 
@@ -176,9 +180,9 @@ A short subway ride later they stood on the outskirts of the city, fenced houses
 
 He showed her the access code that opened the door, and let them in.
 
-“I’m home!” He said out of habit, slipping off his shoes, although there of course was no one to greet them.
+“I’m home!” He said out of habit, slipping off his shoes.
 
-“Todoma?” She tried to repeat.
+“Todoma?” She tried to repeat, following his lead on removing shoes.
 
 “Ta. Dai. Ma.” He nodded.
 
