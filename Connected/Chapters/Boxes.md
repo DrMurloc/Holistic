@@ -1,6 +1,6 @@
-Aurora sat on the metro with her head leaning against the window, eyes focused on nothing in particular, she wore a content smile. Cale sat sprawled on the seat next to her, their hands overlapping on her leg. The city lights flashed by, a colorful mirage of energy and potential.
+Astrid sat on the metro with her head leaning against the window, eyes focused on nothing in particular, she wore a content smile. Cale sat sprawled on the seat next to her, their hands overlapping on her leg. The city lights flashed by, a colorful mirage of energy and potential.
 
-They had barely made the last train of the night. Aurora's head swam lightly, intoxicated lightly by both the alcohol and the day's events.
+They had barely made the last train of the night. Astrid's head swam lightly, intoxicated lightly by both the alcohol and the day's events.
 
 She had begun to panic after the ferris wheel. After she completely confirmed her suspicions, after that first compliment, she had been confident that he would just confess at the peak of the ride.
 
@@ -26,27 +26,27 @@ As soon as the doors started to close she pushed him against the wall and presse
 
 She found her hand sliding up the back of his shirt as he pulled her tighter against her. The kiss deepened, the elevator's passive whirring acting as the only supplement to their heavy breathing. *Shit I lost count, what floor are we on?*
 
-To her horror the door opened, and a small grey haired lady stood, eyes wide, staring at the two. Aurora promptly pulled back and straightened her skirt, blushing deeply.
+To her horror the door opened, and a small grey haired lady stood, eyes wide, staring at the two. Astrid promptly pulled back and straightened her skirt, blushing deeply.
 
-“Cale! Is that Aurora?” The lady asked. Aurora’s blush deepened, mixing with confusion.
+“Cale! Is that Astrid?” The lady asked. Astrid’s blush deepened, mixing with confusion.
 
-“Yes Miss Pearl.” Cale nodded, grabbing Aurora by the hand and dragging her off down the hallway. Aurora stumbled, attempting to look back at the kindly lady.
+“Yes Miss Pearl.” Cale nodded, grabbing Astrid by the hand and dragging her off down the hallway. Astrid stumbled, attempting to look back at the kindly lady.
 
 “She’s gorgeous, just as you said! Go get her, Cale!” The lady yelled down the hall.
 
 “Thank you, Miss Pearl.” Cale yelled back.
 
-“Could you… could you explain why a random old lady knows me? And seems to be interested in your sex life?” Aurora blushed harder at admitting the reality that tonight brought.
+“Could you… could you explain why a random old lady knows me? And seems to be interested in your sex life?” Astrid blushed harder at admitting the reality that tonight brought.
 
 “I have no comment on the latter. But as for the former… well. That's Miss Pearl. Her husband passed away two years ago. I uh… treat her to dinner every now and then. We talk about life. She has good stories.” Cale began fumbling with keys, very much in a hurry to get in.
 
-Aurora looked back again, a door popped open and a middle aged man popped his head out. “Cale got the girl?” Aurora’s mouth fell open.
+Astrid looked back again, a door popped open and a middle aged man popped his head out. “Cale got the girl?” Astrid’s mouth fell open.
 
 “Cale-” She started but he quickly pulled her in and flipped on the lights.
 
 “OK so one or two people I've talked to about you. A lot. Some of us don't have a brother to confide in.” Cale said, latching the door closed.
 
-Aurora was not listening. She stood staring over the hollow room, boxes lined neatly along the sides. Several times tonight she had needed to acknowledge the fact that she very nearly lost Cale for good. But the way this room was so… ready. She had no choice but to confront that because of her own stupid stubbornness she had almost pushed away the most important person in her life for good.
+Astrid was not listening. She stood staring over the hollow room, boxes lined neatly along the sides. Several times tonight she had needed to acknowledge the fact that she very nearly lost Cale for good. But the way this room was so… ready. She had no choice but to confront that because of her own stupid stubbornness she had almost pushed away the most important person in her life for good.
 
 Her legs felt wobbly, her throat caught on a breath. She fell to her knees, tears streamed down her cheeks.
 
@@ -58,15 +58,15 @@ They both laughed, a broken sound with multiple layers of mixed emotions.
 
 “No. Not strong. I just learned to build my own armor from someone I care deeply about.” Cale took a deep breath.
 
-“You just… you set this all up. You took the initiative. I just spent all day being my stubborn old self.” Aurora finally said, her voice clearing up.
+“You just… you set this all up. You took the initiative. I just spent all day being my stubborn old self.” Astrid finally said, her voice clearing up.
 
 Cale laughed, “Oh man. You have no *idea* how many people it took to convince me to talk to you before I left. I was ready to ditch and hate myself forever for your sake.”
 
-Aurora cocked her head, “Cale, how many people have you talked to about us?”
+Astrid cocked her head, “Cale, how many people have you talked to about us?”
 
 He ignored the question, “Ultimately it was Miss Pearl. She guilt tripped me. Told me to do it in honor of her dead husband. Clever old coot… She even came up with the whole amusement park plan.”
 
-Aurora found herself laughing, “That old lady? I'll have to thank her somehow, I suppose.”
+Astrid found herself laughing, “That old lady? I'll have to thank her somehow, I suppose.”
 
 “Make her some of your cheese bread. But without the pockets of hot sauce you so lovingly surprised me with that one time. It's one of her favorite stories.” Cale smiled, moving his arm from her back and down to her hand. She leaned against him, a head on his shoulder.
 

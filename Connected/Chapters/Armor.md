@@ -1,8 +1,8 @@
-**Aurora**
+**Astrid**
 
-Aurora sat on the metro with head leaning against the window, eyes focused on nothing in particular. An air of wistfulness hung like fog. The city flashed by, a confusing mess of colors and shapes. Her brother had asked her to meet him at the amusement park. “It’s urgent.” He said, providing no further explanation.
+Astrid sat on the metro with head leaning against the window, eyes focused on nothing in particular. An air of wistfulness hung like fog. The city flashed by, a confusing mess of colors and shapes. Her brother had asked her to meet him at the amusement park. “It’s urgent.” He said, providing no further explanation.
 
-She knew what this was. Her dumb brother was trying to get her back to hanging out with his idiot friend, Cale. Ten years… at some point Aiden needed to face the facts that Cale and her would never get along, the thought of them being romantically involved was laughable. As much as that fact hurt her deeply, it was the truth.
+She knew what this was. Her dumb brother was trying to get her back to hanging out with his idiot friend, Cale. Ten years… at some point Leo needed to face the facts that Cale and her would never get along, the thought of them being romantically involved was laughable. As much as that fact hurt her deeply, it was the truth.
 
 She wondered how Cale was doing, she hadn’t heard from him much in the years since college. In high school the trio had been thick as thieves, even going on family trips with each other. Well, if two of the thieves would break out into rather heated debates over if a snake was a python or a cobra. The sign in front of the exhibit that both of them refused to acknowledge had posted, in very large plain-to-read print, “mamba”.
 
@@ -10,23 +10,23 @@ A roller-coaster came into view as the buildings began to fade - a dive coaster,
 
 She smiled. Who knew, maybe today would be different. People could change… hypothetically. And even if he hadn’t, free tickets are free tickets.
 
-She decided right there to make the best out of the day no matter what it threw at her: she loved the amusement park. And it was a welcome escape from the tensions leading up to a big career change. With Aiden as a mediator things often sorted themselves out. It’s not like Aiden would just dump her with Cale and leave, right?
+She decided right there to make the best out of the day no matter what it threw at her: she loved the amusement park. And it was a welcome escape from the tensions leading up to a big career change. With Leo as a mediator things often sorted themselves out. It’s not like Leo would just dump her with Cale and leave, right?
 
-She sighed softly. She almost wished he would just leave them. With how rarely they got to see each-other anymore, she had begun to miss their fights. The way he blushed when she embarrassed him… she found herself smiling again. What are the chances… After all this time apart maybe they could finally get along. She actually laughed out loud at the concept, getting a look from other passengers. *Like that will ever happen.*
+She sighed softly. She almost wished he *would* just leave them. With how rarely they got to see each-other anymore, she had begun to miss their fights. The way he blushed when she embarrassed him… she found herself smiling again. What are the chances… After all this time apart maybe they *could* finally get along. She actually laughed out loud at the concept, getting a look from other passengers. *Like that will ever happen.*
 
 **Cale**
 
-Ten minutes later Cale watched Aiden leave, a hand up in the air as if to wish them luck. Although the air itself was fairly moderate, Cale's short curly black hair felt like it was baking in the sun leaving him with the occasional need to wipe sweat off his glasses. He stood casually, leaning back on a foot, his willowy frame carried a confidence that masked his inner uncertainty.
+Ten minutes later Cale watched Leo leave, a hand up in the air as if to wish them luck. Although the air itself was fairly moderate, Cale's short curly black hair felt like it was baking in the sun leaving him with the occasional need to wipe sweat off his glasses. He stood casually, leaning back on a foot, his willowy frame carried a confidence that masked his inner uncertainty.
 
-Aurora stood nearby studying the two tickets she had been handed, coming to terms with the implications of what had just transpired. Cale held his breath, the next few moments held a lot of power over the direction of his relatively young life.
+Astrid stood nearby studying the two tickets she had been handed, coming to terms with the implications of what had just transpired. Cale held his breath, the next few moments held a lot of power over the direction of his relatively young life.
 
-Distant screams and yells of joy, occasionally surging alongside the noise of a roller coaster car passing, filled the otherwise silent moment as the reality of the situation seemed to set in on Aurora. She glanced up at Cale, and back to the tickets.
+Distant screams and yells of joy, occasionally surging alongside the noise of a roller coaster car passing, filled the otherwise silent moment as the reality of the situation seemed to set in on Astrid. She glanced up at Cale, and back to the tickets.
 
-“He's really doing this?” She asked with a hint of resignation, not necessarily seeming interested in an answer. Cale's anticipation peaked as Aiden disappeared down the escalator. She very well might just leave… It was a major flaw in his plan. Cale suspected she would just ditch him at the park gate. Aiden technically had not demanded that they spend the day together, it would have been too telling.
+“He's really doing this?” She asked with a hint of resignation, not necessarily seeming interested in an answer. Cale's anticipation peaked as Leo disappeared down the escalator. She very well might just leave… It was a major flaw in his plan. Cale suspected she would just ditch him at the park gate. Leo technically had not demanded that they spend the day together, it would have been too telling.
 
 The girl turned sharply, her blonde ponytail framed by a blue ribbon bobbing dramatically as she walked towards the gate alone. *There it is, I really should have known better. This was a dumb idea.* Cale sighed and pulled out his phone, typing up a message and preparing to take the life changing path he knew had been the inevitable option.
 
-Aurora stopped and looked sharply back at him, “Do you want to get this over with or do you want to stand there wasting your life farming your dumb gacha games?”
+Astrid stopped and looked sharply back at him, “Do you want to get this over with or do you want to stand there wasting your life farming your dumb gacha games?”
 
 Cale froze, literally one button-press away from sending the deterministic message. His eyes slowly rose to meet hers. Her piercing blue eyes seemed to challenge him to even contemplate the audacity of leaving. An unwitting smile took over his face as he put the phone away, leaving the message as drafted.
 
@@ -38,15 +38,15 @@ Her eyes rolled, “That smile… Please tell me you don't think this is a date.
 
 “I would never.” She said without as much of a glance.
 
-“Aurora, you literally once told me to meet you and my friends in the monkey house at the zoo. Just for me to realize my human friends weren’t actually at the zoo that day.” Cale grinned, it had been clever. Even if it had taken him a few weeks to get the joke. He caught a flicker of a smile on her face.
+“Astrid, you literally once told me to meet you and my friends in the monkey house at the zoo. Just for me to realize my human friends weren’t actually at the zoo that day.” Cale grinned, it had been clever. Even if it had taken him a few weeks to get the joke. He caught a flicker of a smile on her face.
 
-“To be fair, when Aiden and I eventually showed up you seemed to be enjoying yourself, making faces with your primate relatives. Regardless, Aiden spent a lot of money on two full day fast-passes. Even if they weren't originally meant for us it would be rude to let them go to waste.”
+“To be fair, when Leo and I eventually showed up you seemed to be enjoying yourself, making faces with your primate relatives. Regardless, Leo spent a lot of money on two full day fast-passes. Even if they weren't originally meant for us it would be rude to let them go to waste.”
 
 Of course Cale had been the one to buy them. They had, in fact, been expensive, but this was an all-in move. He needed to actually try or else he would live with regret for the rest of his life.
 
-“I hope Harin is OK. She sounded pretty sick when she called.” Cale lied as they approached the bag check. They were through shortly, their tickets exchanged for purple arm bands that carried a feel of exclusivity. Of course fast-pass wouldn't be no lines, but it meant they could realistically expect more than two rides in one day.
+“I hope May is OK. She sounded pretty sick when she called.” Cale lied as they approached the bag check. They were through shortly, their tickets exchanged for purple arm bands that carried a feel of exclusivity. Of course fast-pass wouldn't be no lines, but it meant they could realistically expect more than two rides in one day.
 
-Aurora scanned the park, then looked down at a map she had grabbed by the entrance. Cale walked up beside her to look over her shoulder at the map. He caught a quick glance from her as his presence invaded her space, but she did not otherwise protest.
+Astrid scanned the park, then looked down at a map she had grabbed by the entrance. Cale walked up beside her to look over her shoulder. He caught a quick glance from her as his presence invaded her space, but she did not otherwise protest.
 
 “So what's the agenda?” He asked.
 
@@ -66,19 +66,19 @@ He had always suspected they both enjoyed the bickering more than they should. H
 
 “A carousel?” He asked.
 
-“Of course it is the carousel, idiot.” She exclaimed, he could feel the eye roll from here. He could see her glance back, waiting for the retort. He had to fight it back, did she expect him to read her mind? But he simply smiled. This seemed to confuse her again. *She’s definitely fishing. Should I cave? Does she want to fight?*
+“Of course it is the carousel, idiot.” She exclaimed, he could feel the eye roll from here. She glanced back, waiting for the retort. He had to fight it back, did she expect him to read her mind? But he simply smiled. This seemed to confuse her again. *She’s definitely fishing. Should I cave? Does she want to fight?*
 
 He let the moment fade, then cautiously asked, “How have you been doing? It’s been a few months.”
 
-“I… I’ve been good. Thank you. Well, as good as one could be being stuck in a Starbucks with a Masters in Corporate Law.” She paused. Would *she* just tell him about her new job? Aiden had mentioned it as a potential ice breaker but hadn't clarified details.
+“I… I’ve been good. Thank you. Well, as good as one could be being stuck in a Starbucks with a Masters in Corporate Law.” She paused. Would *she* just tell him about her new job? Leo had mentioned it as a potential ice breaker but hadn't clarified details.
 
-She seemed to decide against it, “It’s been quiet. Aiden is always out with Harin nowadays, and the rest of my friends are off travelling, having babies, and generally being interesting.” She looked back at Cale, “Well with the exception of one.”
+She seemed to decide against it, “It’s been quiet. Leo is always out with May nowadays, and the rest of my friends are off travelling, having babies, and generally being interesting.” She looked back at Cale, “Well with the exception of one.”
 
 Cale grinned, “Aw, I’m a friend! When did I get a promotion?”
 
 “It’s unfortunately a title that really puts the ‘a friend of a friend’ phrase to the test, or ‘a friend of a brother’ in this case. Regardless, it’s probationary at best.” She turned forward again. Cale found himself chuckling. This was them. He had missed this.
 
-The fast pass line for the carousel was empty so they only had a minute wait, during which time Aurora crossed her arms and tapped her foot as if every second waiting was unbearable.
+The fast pass line for the carousel was empty so they only had a minute wait, during which time Astrid crossed her arms and tapped her foot as if every second waiting was unbearable.
 
 “Which ones are we going for?” Cale asked, although he knew the answer. A white porcelain horse with blue ribbons stood out as if it had been put there for her.
 
@@ -88,13 +88,13 @@ The fast pass line for the carousel was empty so they only had a minute wait, du
 
 He felt he *could* be a bit more forward with pleasantries, he just needed to be careful. Could he flirt? It felt risky. But today was all about risks. His life had been one giant ball of spontaneity and follow-through that had seen him become very successful for a twenty five year old. He had just never applied that skill on this front before.
 
-She ran toward the horse he had identified. He sprinted ahead of her and offered a hand to help her up; it went ignored.
+As the gate opened, she ran toward the horse he had identified. He sprinted ahead of her and offered a hand to help her up; it went ignored.
 
 “It's fitting.” He said, slowly working his way to the black and red stallion next to her.
 
 “Are you saying I look like a horse?” She growled.
 
-“I’m simply saying you look pretty today. The ribbon is new, I like it.” Cale pulled himself up, and looked ahead. Was that too much? *If I pushed too much she would in fact clam up.*
+“I’m simply saying you look pretty today. The ribbon is new, I like it.” Cale pulled himself up, and looked ahead. Was that too much? *If I push too much she would in fact clam up.*
 
 “Well if…” She started, and cut herself off. She had clearly expected a different response. The fact that they could predict each other's responses had always delighted and infuriated him. He had deeply regretted every time he had stooped to calling her ugly though. He could remember every single instance still, and they haunted his dreams.
 
@@ -114,13 +114,13 @@ The ride began to slow, the rest of the world becoming more concrete and remindi
 
 He slid off his horse just before the ride stopped, and extended a hand to help her down, her horse was at the peak of its rotation. She studied his hand for a moment, then her eyes narrowed and shifted to his.
 
-“You seem intent on making this a date.” She observed, not immediately looking to get down with or without help.
+“You seem intent on making this a date.” She observed, not immediately looking to get down, with or without help.
 
 “I have no clue what you are referring to, I'm just trying to get you off of that high horse of yours.” Cale said with a grin. Her fierce look wavered for a brief moment before she laughed, a wide smile breaking out over her face only for the briefest moment before she reeled herself back. The smile did linger, however, in a much weaker state.
 
 “That was clever. Monkeys with typewriters and Shakespear I suppose.” She accepted his hand, shifting her legs with just the hint of awkwardness over the side of her horse such that her skirt didn't reveal anything. Cale revelled in the softness and delicateness of her fingers. Had they ever touched hands before? I mean he had his fair share of punches but that wasn't quite the same.
 
-Once she was down they both studied their held hands for a moment. Aurora removed hers, seeming almost reluctant. *My theory seems to hold true, she has SOME sort of romantic feelings the same way I do… Do I change the game around that? It's too early still I think, keep the momentum, she's enjoying herself… break that armor down…*
+Once she was down they both studied their held hands for a moment. Astrid removed hers, seeming almost reluctant. *My theory seems to hold true, she has SOME sort of romantic feelings the same way I do… Do I change the game around that? It's too early still I think, keep the momentum, she's enjoying herself… break that armor down…*
 
 “The priorities have changed.” She said as she returned to her brisk pace through the park. He found himself scurrying again to keep up a few steps behind her.
 
@@ -134,23 +134,23 @@ The fast-pass line for the ferris wheel was about ten minutes according to the s
 
 “I heard you finally scored a career job.”
 
-Aurora smiled, “Paralegal. I'm…” she paused, studying him briefly, seeming to calculate how much she wanted to say, “I'm excited and nervous. It's a well known large firm, there will be a lot of competition for promotions.”
+Astrid smiled, “Paralegal. I'm…” she paused, studying him briefly, seeming to calculate how much she wanted to say, “I'm excited and nervous. It's a well known large firm, there will be a lot of competition for promotions.”
 
 “That's amazing! I've found the big companies may be the slower burn on early growth but the truly ambitious have a much higher ceiling. I'm sure, given that context, you'll do great.” Cale smiled.
 
-Aurora furrowed her brow, “Cale that was… actually insightful.” She looked him over, seeming to re-scan him to verify he was the same person. He wore his normal jeans and a playful but well designed t-shirt as always, he wasn’t sure she would pick up on the designer glasses or shoes.
+Astrid furrowed her brow, “Cale that was… actually insightful.” She looked him over, seeming to re-scan him to verify he was the same person. He wore his normal jeans and a playful but well designed t-shirt as always, he wasn’t sure she would pick up on the designer glasses or shoes.
 
 “I mean we get a lot of interviews from people at big companies looking to advance careers by hopping around because it's so hard to grow within a single company. Granted software is likely very different from Legal, so who knows.” Cale looked up in thought, what *would* the nuance of the Legal industry be… it was much more established, one of the oldest professions in the book, it would likely have much better defined career paths.
 
 “I'm sorry, I don't believe I ever caught what *you* do? I thought you were a junior engineer.” They stepped forward with the line, about halfway through.
 
-“There's a pretty good reason why you nor Aiden know what I do.” Cale grinned.
+“There's a pretty good reason why neither you nor Leo know what I do.” Cale grinned.
 
 “And what is that?” He could see he had her interest. Was he actually going to break his five years of hiding his success from people who weren't his parents? Would it help him here?
 
 “It's because I never told you.” His grin turned playful.
 
-Aurora gave him a flat look, and punched him in the shoulder. *I should have seen that coming*. “You're an idiot.” She said simply.
+Astrid gave him a flat look, and punched him in the shoulder. *I should have seen that coming*. “You're an idiot.” She said simply.
 
 “This has been established. And be careful with the aggravated battery, Miss Legal.”
 
@@ -162,7 +162,7 @@ For a full minute they stood in silence. He could see the cogs whirring in her h
 
 He hesitated, but caved, “Director of Engineering.” She blank, and tilted her head trying to draw a connection from the moronic Cale she knew to someone capable of holding such a title.
 
-“Your ten person engineering team, you run that now?” There was a touch of respect. That was a new feeling, respect from Aurora?
+“Your ten person engineering team, you run that now?” There was a touch of respect. That was a new feeling, respect from Astrid?
 
 Cale looked away and placed a hand on the back of his neck, “You know how I said it's difficult to grow in a large company? You know what the jackpot is? When you ride the waves of a small company that becomes big.”
 
@@ -178,7 +178,7 @@ Her jaw dropped slightly open, he took a mental snapshot of the moment. It was p
 
 She studied him top to bottom again. There it was. She was analyzing a shift in power dynamic. He had been “behind” her his entire life, between grades and jobs, and while she had never used *that* as a part of teasing she had clearly enjoyed the “upper hand”.
 
-Cale sighed, “Aurora, I didn't tell you two for a reason. I'm a very different person at work and I like keeping who I am there and who I am out here separated. Please don't act differently with me because of this.”
+Cale sighed, “Astrid, I didn't tell you two for a reason. I'm a very different person at work and I like keeping who I am there and who I am out here separated. Please don't act differently with me because of this.”
 
 She nodded slowly, “Noted, although I am more trying to figure out what other secrets you may be hiding. I underestimated your ability to not run that loud mouth of yours.”
 
@@ -186,33 +186,33 @@ He smiled softly to mask an inner wince, his phone feeling like a lead brick.
 
 They stepped forward. It was their turn. To help the line speed up it seemed they were pairing couples up. Cale frowned, that wouldn't do…
 
-He climbed into the next car, and turned to help Aurora in. She accepted the hand, lifting herself in. Then she immediately turned and closed the door, locking it shut. The girl in the couple that came to join them started to protest but Aurora shot her a very assertive look, daring them to challenge her, and the couple just moved to the next car. They were left alone.
+He climbed into the next car, and turned to help Astrid in. She accepted the hand, lifting herself in. Then she immediately turned and closed the door, locking it shut. The girl in the couple that came to join them started to protest but Astrid shot her a very assertive look, daring them to challenge her, and the couple just moved to the next car. They were left alone.
 
-“You can kill with those eyes, Aurora. Be careful, the less experienced may be too weak for your overwhelming glare.” Cale laughed, sprawled on his side of the car. Aurora remained quiet, her hands folded on her lap, looking out the side as they slowly began to inch up.
+“You can kill with those eyes, Astrid. Be careful, the less experienced may be too weak for your overwhelming glare.” Cale laughed, sprawled on his side of the car. Astrid remained quiet, her hands folded on her lap, looking out the side as they slowly began to inch up.
 
-The park grew distant beneath them. The city skyline drew a structured elegance sprawling out in one direction, a large lake lined by distant mountains painting a serene and organic beauty in the other. Two starkly different landscapes that seemed to converge and marry at this one park.
+The park grew distant beneath them. The city skyline drew a structured elegance sprawling out in one direction, the ocean extended in another with a serene organic beauty. Two starkly different landscapes that seemed to converge and marry at this one park.
 
 “It's a beautiful view.” She said softly as they reached the top.
 
 “You're setting me up. You can't make it that easy.” Cale smiled.
 
-“Say the damn cheesy line, Cale.” Aurora growled.
+“Say the damn cheesy line, Cale.” Astrid growled.
 
-His eyes softened as he drank in the image of her sitting there, looking out over the lake. A few stray strands of hair had escaped her ribbon and framed her face. That smile… His heart skipped a few beats. If today yielded not a single other result, this… this was worth it.
+His eyes softened as he drank in the image of her sitting there, looking out over the ocean. A few stray strands of hair had escaped her ribbon and framed her face. That smile… His heart skipped a few beats. If today yielded not a single other result, this… this was worth it.
 
 “The view is in fact beautiful.” She didn't need to turn to look at him, she knew exactly where he was looking. Her face filled with a deeper red than before, her fingers fidgeted with her skirt, but her smile remained.
 
 They made a few more rotations. Neither dared break the moment, it was wonderful. A distinct stark contrast to their entire life spent fighting at every turn about the most trivial of topics.
 
-When the cart came to a stop Cale let himself out first, then offered a hand up to the still blushing Aurora. She regained her composure very briefly, her smile fading slightly, then accepted his hand. This time she did not let go as they ventured back into the park.
+When the cart came to a stop Cale let himself out first, then offered a hand up to the still blushing Astrid. She regained her composure very briefly, her smile fading slightly, then accepted his hand. This time she did not let go as they ventured back into the park.
 
 Cale's breath caught. Was this it? Did he do it? Was this enough for him to make up his mind? He pushed the thought out, it was a decision for later still. Right now he had momentum to keep.
 
 “Where to-”
 
-“This still isn't a date.” Aurora said as the two aimlessly walked in a direction.
+“This still isn't a date.” Astrid said as the two aimlessly walked in a direction.
 
-“Of course not. That would be unheard of, Aurora and Cale on a *date*.” Cale smiled, squeezing her hand. She gave her hand a look as if it had gone rogue and made its own decisions.
+“Of course not. That would be unheard of, Astrid and Cale on a *date*.” Cale smiled, squeezing her hand. She gave her hand a look as if it had gone rogue and made its own decisions.
 
 “I don't… I don't know *what* this is.” She admitted.
 
@@ -246,21 +246,21 @@ Cale grinned, improving to a new iteration “Tell me, if I asked you to get me 
 
 “Agreed.” Cale nodded.
 
-It took a few moments for them to realize what had happened, the moment hung in the air as they slowly began to remember that there was an entire park around them. Cale's mouth hung open, Aurora straightened herself up, smoothing out wrinkles in her skirt. Her face slowly returned to a normal pale color.
+It took a few moments for them to realize what had happened, the moment hung in the air as they slowly began to remember that there was an entire park around them. Cale's mouth hung open, Astrid straightened herself up, smoothing out wrinkles in her skirt. Her face slowly returned to a normal pale color.
 
 “Did we just… agree?” Cale asked.
 
-“It all seems rather pedantic in retrospect.” Aurora offered. Both of their gazes turned to their hands which still clasped with intertwined fingers.
+“It all seems rather pedantic in retrospect.” Astrid offered. Both of their gazes turned to their hands which still clasped with intertwined fingers.
 
-“I'm going to miss that one. Five years…” Cale said, his eyes drifted back up to Aurora's. She looked thoughtful for a moment, and they continued walking their path towards anywhere.
+“I'm going to miss that one. Seven years…” Cale said, his eyes drifted back up to Astrid's. She looked thoughtful for a moment, and they continued walking their path towards anywhere.
 
 “If you really think about it though,” she began, “Cereal would be more of a stew than a soup.”
 
 “Isn't a stew more about the stewing process? I hope you aren't letting your cereal soak long enough to be considered stewed.”
 
-“Apparently Mr. Director here also has a depth of knowledge on categorical culinary nuance.” Aurora smiled. Cale mirrored the smile. No matter what happened today he hoped they would never lose this.
+“Apparently Mr. Director here also has a depth of knowledge on categorical culinary nuance.” Astrid smiled. Cale mirrored the smile. No matter what happened today he hoped they would never lose this.
 
-Cale’s mind returned to planning. What did he need from today? Could he define an achievable goal at this point? He needed her to admit vocally an interest. The hand holding was nice, amazing even, but he concluded it wasn’t the commitment he needed.
+Cale’s mind returned to planning. What did he need to call this a success? Could he define an achievable goal at this point? He needed her to admit vocally an interest. The hand holding was nice, amazing even, but he concluded it wasn’t the commitment he needed.
 
 Could he just tell her he loved her? He pictured her punching him in the shoulder, calling him an idiot, and leaving. No… she still wore much of her emotional armor. One way or the other it needed to be on her terms, which meant he needed to just keep chipping away.
 
@@ -268,7 +268,7 @@ Could he just tell her he loved her? He pictured her punching him in the shoulde
 
 “I have no Idea, I thought you were leading me.” She responded. The two looked up, they stood in front of The Vortex, it described itself as the world's tallest and longest dive coaster. Cale had no clue what that meant.
 
-“Really? The Vortex? You *are* full of surprises today” Aurora dragged him into line before he could object. It was around lunchtime and the lines were short. This gave Cale much less time to mentally prepare.
+“Really? The Vortex? You *are* full of surprises today” Astrid dragged him into line before he could object. It was around lunchtime and the lines were short. This gave Cale much less time to mentally prepare.
 
 “So when it says dive coaster… this isn't underwater or something is it?” He asked nervously.
 
@@ -292,7 +292,7 @@ She turned to him, head cocked, “Wait, how many coasters have you ridden?”
 
 Caren pretended to think, nodding and bobbing his head slightly from side to side. “Well, then it would probably add up to a grant total of zero.”
 
-Aurora's hand went to her mouth to hide a snicker. Her eyes flashed momentarily with a realization, but it faded immediately back to amusement. What in the world was that? She then seemed to conclude that she didn't care about propriety with him and full out laughed. He blushed, shrinking slightly.
+Astrid's hand went to her mouth to hide a snicker. Her eyes flashed momentarily with a realization, but it faded immediately back to amusement. What in the world was that? She then seemed to conclude that she didn't care about propriety with him and full out laughed. He blushed, shrinking slightly.
 
 “I don't do amusement parks often.” He admitted.
 
@@ -300,15 +300,15 @@ Aurora's hand went to her mouth to hide a snicker. Her eyes flashed momentarily 
 
 “You mean intense like the great spork debacle of 2020, or intense like the camping trip?”
 
-“It was the *fork* debacle of 2020 and you know it. But “intense” like I'm concerned about the health of your heart. I'd ask about how your dietary health is but based on your reaction to losing that game of monopoly the other month I'm assuming your sodium levels are rather high.” Aurora smiled.
+“It was the *fork* debacle of 2020 and you know it. But “intense” like I'm concerned about the health of your heart. I'd ask about how your dietary health is but based on your reaction to losing that game of monopoly the other month I'm assuming your sodium levels are rather high.” Astrid smiled.
 
-“Aurora! Did you just call me salty? I'm proud my gaming lingo is rubbing off on you. Now if only you'd listen to some sense on that collection of weeds you keep.” Cale squeezed her hand. These back and forths today felt different. They were lighter, there were no jagged spikes in the insults covering up a desire for connection. Just the connection itself.
+“Astrid! Did you just call me salty? I'm proud my gaming lingo is rubbing off on you. Now if only you'd listen to some sense on that collection of weeds you keep.” Cale squeezed her hand. These back and forths today felt different. They were lighter, there were no jagged spikes in the insults covering up a desire for connection. Just the connection itself.
 
 “Indoor gardening is a valid hobby! And… you know what, no. You lost your chance to work your way up. I hope you scream to death.”
 
 *Can you scream to death? That’s not a real thing, right?* He held the question back. They were at the front of the line now. Cale eyed the hanging seats with slight anxiety. “Those are well tested right?”
 
-“Sometimes. This one probably is. I mean it runs thousands of times a day.” She said as they reluctantly let go of hands so they stepped into the next car that arrived. She of course had made them line up for the very front car.
+“Sometimes. This one probably is. I mean it runs thousands of times a day.” She said as they reluctantly let go of hands so they could step into the next car that arrived. She of course had made them line up for the very front car.
 
 “I guess that's fair.” His anxiety was relieved a little bit. There was a logical comfort in statistics, even if not emotional comfort. He couldn't really see her well anymore, but his hand managed to find hers again out of sight under the harnesses.
 
@@ -332,10 +332,10 @@ The coaster stopped, barely hanging over the top of the drop, the two got a full
 
 “Did it break? Oh god it broke. We're going to die aren't we?” Cale's thoughts raced. Last thoughts… last words… this was it…
 
-His mouth blurted out, “Aurora, I've always loved you!”
+His mouth blurted out, “Astrid, I've always loved you!”
 
-Just then the coaster dropped. He screamed, Aurora laughed. *Laughed*? There was too much glee in that laugh. Had he been manipulated? He didn't have time to think it through, the feeling of free fall overtook him, the ground rushing up.
+Just then the coaster dropped. He screamed, Astrid laughed. *Laughed*? There was too much glee in that laugh. Had he been manipulated? He didn't have time to think it through, the feeling of free fall overtook him, the ground rushing up.
 
-Just before they hit the ground, the coaster gracefully arched up into a wide loop. *It's not going to make it…* it slowed, and his body felt like it was floating, hanging upside down. He briefly leaned forward and looked over at Aurora, she was looking directly at him, a wide open mouth grin with glistening eyes. She had clearly gotten something she had wanted. He cursed himself… he may have lost control of all of his plans in one simple sentence. But… this was a good thing, right?
+Just before they hit the ground, the coaster gracefully arched up into a wide loop. *It's not going to make it…* it slowed, and his body felt like it was floating, hanging upside down. He briefly leaned forward and looked over at Astrid, she was looking directly at him, a wide open mouth grin with glistening eyes. She had clearly gotten something she had wanted. He cursed himself… he may have lost control of all of his plans in one simple sentence. But… this was a good thing, right?
 
 His brain was snapped back to the coaster as it dropped down the other side of the loop, his anxiety had… changed, though. He found himself laughing along with her. The coaster went through another smaller vertical drop, another few graceful loops, and they slowly returned to the station.

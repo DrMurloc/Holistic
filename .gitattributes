@@ -1,0 +1,6 @@
+# Markdown is generated with LF endings and compared by blob hash to decide whether a chapter
+# actually changed. If CRLF ever got stored, every chapter would look edited on every sync.
+*.md text eol=lf
+
+# Word files are zip archives. Git must never rewrite bytes inside them.
+*.docx binary

@@ -1,8 +1,8 @@
-Almost an hour later they found themselves in the city, a short metro ride from the park. Cale had in fact, to Aurora's horror, pulled a blazer out of a locker in the metro and threw it over his t-shirt.
+Almost an hour later they found themselves in the city, a short metro ride from the park. Cale had in fact, to Astrid's horror, pulled a blazer out of a locker in the metro and threw it over his t-shirt.
 
 Cale turned them in through two tall glass doors. “Harmony”, a Korean Italian fusion restaurant. The interior was a modern lounge aesthetician, dimly lit with a live jazz band playing in the corner.
 
-“Cale, everyone in here is dressed much nicer than me…” Aurora said softly while they waited for the host stand to clear.
+“Cale, everyone in here is dressed much nicer than me…” Astrid said softly while they waited for the host stand to clear.
 
 “Don't worry about them. It sucks for them that even with multi million dollar dresses and makeup they're still not even half as beautiful as you.” He whispered back.
 
@@ -10,13 +10,13 @@ She gawked at him, “Look you don't need to return him. But whatever you did wi
 
 “A mister… Drab, I assume. And company.” A voice greeted them.
 
-“Your assumption would be accurate.” Cale smiled. Aurora seemed to cower, expecting to be scrutinized for her casual outfit, though no such scrutiny came. They were led to a table in the far back, a rather intimate and secluded corner. Two glasses and a bottle of champagne on ice already sat on the table.
+“Your assumption would be accurate.” Cale smiled. Astrid seemed to cower, expecting to be scrutinized for her casual outfit, though no such scrutiny came. They were led to a table in the far back, a rather intimate and secluded corner. Two glasses and a bottle of champagne on ice already sat on the table.
 
 “Wait, did you say million dollar dresses? An exaggeration, right?” She asked, sitting when the server pulled the seat out for her. Cale thanked the man and sat when he was offered the same.
 
 “Most of them probably are only several thousand. Two Michelin stars gets you quite the attention though. I had to book this a month out, and even then I got lucky that they had a cancellation.” Cale smiled as the champagne was de-corked with a loud *pop*. A glass was poured for both of them.
 
-“You… a month out? Wait, you had it booked for one person. Cale, you never answered. What changed?” Aurora's face furrowed with concern. She was too clever. He looked at his phone, 7:03PM. The decision was made.
+“You… a month out? Wait, you had it booked for one person. Cale, you never answered. What changed?” Astrid's face furrowed with concern. She was too clever. He looked at his phone, 7:03PM. The decision was made.
 
 He raised a glass, “To new beginnings.” He said. She stared at him, not responding. He wasn't going to be able to distract her again…
 
@@ -30,7 +30,7 @@ He sighed and put the glass down, “I had a Job offer. A very good one.” She 
 
 “And honestly, I needed to get away. This-” Cale gestured between them, “-whole thing was not… healthy… for me.“ The server approached with the first course, Cale shook his head and gave him a “5 minutes” sign. The server nodded in understanding and left.
 
-“I… I didn't realize this was affecting you that much… I’m… sorry…” Aurora said, looking away for a moment. She then looked back, head tilted. “But, you used past tense. Had.”
+“I… I didn't realize this was affecting you that much… I’m… sorry…” Astrid said, looking away for a moment. She then looked back, head tilted. “But, you used past tense. Had.”
 
 “The job offer, and coincidentally a pretty decent offer on my condo, expired exactly…” Cale checked his phone, “Eight minutes ago.”
 
@@ -38,7 +38,7 @@ The two went silent. Music filled the gap, as well as the ambient noise of the t
 
 “You are…” She started, slowly returning them to real time. He could see she was fighting back a smile, “an absolute, bonafide, moron.” Cale smiled and leaned back, crossing his arms.
 
-She continued, “Legends will be written about your stupidity. A case study for all future Neanderthals to learn from.” A few tears escaped her eyes, a contrast to the smile that was escaping her best attempts to hide it.
+She continued, “Legends will be written about your stupidity. A case study for all future Neanderthals to learn from.” A few tears escaped her eyes, a contrast to the smile that was evading her best attempts to hide it.
 
 “You have more, come on you can do better than that. I believe in you.” Cale nodded, his own smile forming.
 
@@ -64,17 +64,17 @@ The server came by again and Cale nodded and the small plates were placed. “Pa
 
 She stared at her glass for a moment. Her chest rose then fell with a deep breath, finally raising her glass and clinging against his, “To new beginnings, long overdue.”
 
-They drank, it was a perfectly crisp brut, Cale was no champagne expert but found himself enjoying it. Aurora seemed to have a similar reaction.
+They drank, it was a perfectly crisp brut, Cale was no champagne expert but found himself enjoying it. Astrid seemed to have a similar reaction.
 
 “I'm afraid to ask how much I'm costing you. I would offer to split but there's no world in which I could afford it.” She admitted, reaching to take her first bite of her wafer.
 
 “Less than it would have cost to move, I'll tell you that.” His smile faded to a frown as he had a realization, “I'm going to need to unpack…” Cale sighed and similarly began to poke at his meal, realizing how hungry he was.
 
-They both slowly made their way through their first plate, letting everything sink in. Aurora avoided eye contact, something was eating away at her. Cale moved his head, trying to intercept her gaze.
+They both slowly made their way through their first plate, letting everything sink in. Astrid avoided eye contact, something was eating away at her. Cale moved his head, trying to intercept her gaze.
 
 Their empty plates were replaced with the next course, “Hwe Crudo, served with a yuzu garlic gremolata.”
 
-Aurora's eyes finally met his. “You didn't think today would go well. You were packed and ready to go, the reservation was for one person…”
+Astrid's eyes finally met his. “You didn't think today would go well. You were packed and ready to go, the reservation was for one person…”
 
 Cale smiled, his turn to look away. He placed one of the pieces of fish in his mouth, it was delicious but his mind was elsewhere.
 
@@ -90,41 +90,41 @@ The server topped them off on champagne.
 
 “No. You're an amazing person Cale, always have been. And I'm finding more and more how much I underappreciated that. Don't let our past poor communication skills impact your self confidence.” He wavered, and met her eyes.
 
-“Aurora, that almost sounded sincere.” He teased, she narrowed her eyes so he followed up, “I kid. My apologies. It… means a lot. Really, especially coming from you, who also means a lot.” They emptied their plates as the music shifted into a more upbeat and lively rhythm. An old couple took to dancing in an open space near the band.
+“Astrid, that almost sounded sincere.” He teased, she narrowed her eyes so he followed up, “I kid. My apologies. It… means a lot. Really, especially coming from you, who also means a lot.” They emptied their plates as the music shifted into a more upbeat and lively rhythm. An old couple took to dancing in an open space near the band.
 
 “Gochujang burrata with charred scallions, served with a soy-balsamic reduction.”
 
 Cale took a deep breath and released it, trying to clear himself of the tension of the day. This *had* been the better outcome. The alternative was him running away from his feelings, not resolving them. He would have lived with that regret for years, if not his whole life.
 
-“Hold on, Aiden is asking how it's going, I swear I'm not being rude.” She said, typing away at her phone.
+Astrid pulled her phone out, “Hold on, Leo is asking how it's going, I swear I'm not being rude.” She said, typing away.
 
 “My word, giving another man attention while I wine and dine you?” Cale said in a pretentious accent. He got out of his seat and kneeled next to her, then held up his phone to get a good angle with both of their faces, the champagne, and as much of the restaurant as he could in the background.
 
 She smiled and turned to him, nodding her head forward and he went in for the kiss, taking the picture. They lingered slightly longer than they needed to, hands lightly clasped on her lap.
 
-“That'll make quite the conversation piece for the family.” She said as he returned to his seat, sending the photo to Aiden.
+“That'll make quite the conversation piece for the family.” She said as he returned to his seat, sending the photo to Leo.
 
 “Your mom hates me. I hope I don't get you removed from the inheritance.” He returned to the burrata on his plate.
 
-“She doesn't *hate* you… well… she just doesn't want you around me. Or Aiden. And wishes we had never met, ok yeah that's going to be a fun conversation. Your cousin is going to have a field day though.” Aurora laughed, popping her entire burrata in her mouth at once.
+“She doesn't *hate* you… well… she just doesn't want you around me. Or Leo. And wishes we had never met, ok yeah that's going to be a fun conversation. Your cousin is going to have a field day though.” Astrid laughed, popping her entire burrata in her mouth at once.
 
 “What, Zoey? I mean it'll just confirm her conspiracy to some extent. I mean to her point maybe we *should* have been secretly dating this entire time.” Cale leaned back and smiled, having finished his current plate.
 
 “On that note…” he went ahead and fired off the picture to his cousin. It would make her day.
 
-“I mean… that camping trip… I think we almost did.” Aurora blushed.
+“I mean… that camping trip… I think we almost did.” Astrid blushed.
 
 Their plates were swapped, “Soondubu ravioli in an anchovy dashi brown butter sauce”.
 
 Cale cocked his head, “How so? You mean when we were stuck in the tent with pouring rain and spent an hour fighting about whether brown or black bears were native to North America? The funny thing is we had our phones right there. Could have just looked it up.”
 
-“I almost kissed you just to end the argument.” Aurora admitted.
+“I almost kissed you just to end the argument.” Astrid admitted.
 
 Cale’s eyes widened with a grin. “I had a very similar thought myself, to be honest. Man, so close but so far. Not sure we would have worked well back then though.” He chuckled, popping a ravioli into his mouth.
 
 “Absolutely would not have. We acted like eight year olds until we were twenty two. And then honestly I think we just saw each other less so it gave us time to simmer.” Nostalgia played across her face. They basked in this moment, eyes drinking in each other like a limited resource. It was a shame the table was between them, he could think of nothing he wanted more than to return to that silly swan boat.
 
-His phone vibrated and he stole a glance. Aiden had responded, “You are NOT allowed to ruin this! (Congratulations!!!!!!!!!!1111!!!1one!!)”
+His phone vibrated and he stole a glance. Leo had responded, “You are NOT allowed to ruin this! (Congratulations!!!!!!!!!!1111!!!1one!!)”
 
 As he watched another message appeared, “Wait, that place looks REALLY nice. No making moves on the first date!” Followed by one more, “Wait this is my sister, no making moves at all! What are you doing? This wasn't part of the agreement!”
 
@@ -132,25 +132,25 @@ Cale chuckled and pocketed the phone.
 
 “What's so funny?” She asked.
 
-“Aiden being dumb.”
+“Leo being dumb.”
 
 Her own phone vibrated and she checked it. She blushed slightly, putting the phone away, “I'm going to just put this on silent.”
 
 The server interrupted the awkward moment, “Black cod alla jjigae”.
 
-Cale, thankful for a distraction, eyed the bowl placed in front of him, then looked up at the server, “Now would you consider this a soup or a stew?” He could make out Aurora covering her face which began to turn red
+Cale, thankful for a distraction, eyed the bowl placed in front of him, then looked up at the server, “Now would you consider this a soup or a stew?” He could make out Astrid covering her face which began to turn red
 
 “Jjigae is literally translated as ‘stew’ as I understand it.” The server responded.
 
 “Ah, yes. So, enlighten me. I was only there for a week so I may misremember, but if one was to refer to a bowl of cereal as jjigae…” Cale raised an eyebrow.
 
-The server looked between Cale and Aurora for a brief moment. She peaked out between two fingers, glaring at Cale.
+The server looked between Cale and Astrid for a brief moment. She peaked out between two fingers, glaring at Cale.
 
 “They would be wrong, sir.” The server said flatly, he carried just the faintest smile of understanding.
 
 “Thank you! A rather appreciated insight into international culture, you are of great help!” Cale exclaimed.
 
-“Idiot.” Aurora said once the waiter had left, although she was clearly repressing laughter.
+“Idiot.” Astrid said once the waiter had left, although she was clearly repressing laughter.
 
 “If you really want to own the trope you can just call me baka.” He winked.
 
@@ -190,15 +190,15 @@ She chugged the rest of her champagne, Cale poured her another glass, noting tha
 
 Their plates were switched, “Freshly imported hanwoo short rib ragu tagliatelle, in a spicy-sweet gochujang ragu.”
 
-“I saw a soju based drink with yuzu and egg white on the website.” Cale said to the server. Aurora perked up with a tilted head.
+“I saw a soju based drink with yuzu and egg white on the website.” Cale said to the server. Astrid perked up with a tilted head.
 
 “The Yuzu Blossom?” The server clarified.
 
-Cale looked to Aurora who nodded enthusiastically. “Yes, two of those please.” The server left.
+Cale looked to Astrid who nodded enthusiastically. “Yes, two of those please.” The server left.
 
 “Are you familiar with Hanwoo?” He asked. She shook her head, “Very similar to wagyu. I'm surprised they import it, freezing this stuff would be sacrilegious so there's a lot of money that went into getting this here… Likely is the majority of the bill.”
 
-He took a bite, his eyes closing as the tender meat melted in his mouth. His eyes opened in time to see Aurora's eyes widen in shock, mouth frozen mid-chew. He tilted his head, seeing that enjoyment on her face… it filled him with pride.
+He took a bite, his eyes closing as the tender meat melted in his mouth. His eyes opened in time to see Astrid's eyes widen in shock, mouth frozen mid-chew. He tilted his head, seeing that enjoyment on her face… it filled him with pride.
 
 He wasn't alone anymore. The realization crashed in on him. How had that not clicked until now. *His* experiences were now *their* experiences. And that was *delightful*. This moment, they shared it. It would take him some getting used to but he welcomed this change.
 
@@ -210,9 +210,9 @@ His brows furrowed, rethinking plans, “When do you start your new job?”
 
 “A little more than three weeks. I honestly forgot about it in the midst of everything today. I have to say I'm a little blindsided.”
 
-“Let me make that worse for you. Want to go to Osaka? Call it a celebration. For your new career.” He pulled open his flight app, ignoring a series of messages from Zoey which contained many celebratory gifs and a mass of messages from Aiden that just contained the word “Bro?” with varying amounts of Os. There was another seat open… still cheaper than needing to move. He reckoned he would ride that rationalization for a few months.
+“Let me make that worse for you. Want to go to Osaka? Call it a celebration. For your new career.” He pulled open his flight app, ignoring a series of messages from Zoey which contained many celebratory gifs and a mass of messages from Leo that just contained the word “Bro?” with varying amounts of Os. There was another seat open… still cheaper than needing to move. He reckoned he would ride that rationalization for a few months.
 
-He heard a fork drop, getting the attention of a few neighboring tables. Aurora’s mouth hung slightly open, eyes trained on him.
+He heard a fork drop, getting the attention of a few neighboring tables. Astrid’s mouth hung slightly open, eyes trained on him.
 
 “Sorry, you clearly hate Japan.” he chuckled.
 
@@ -246,7 +246,7 @@ She took a deep breath, “It would truly be an idiotic and spontaneous move.”
 
 Their Yuzu blossoms were dropped off. She contemplated hers for a moment, then took a sip, and smiled. “Fine.”
 
-“That must be a really good drink to win you over like that” he teased. He pressed the confirm button on his app, “I hope I spelled your last name right. Otherwise a completely different Aurora is going on this flight with me.”
+“That must be a really good drink to win you over like that” he teased. He pressed the confirm button on his app, “I hope I spelled your last name right. Otherwise a completely different Astrid is going on this flight with me.”
 
 “Wait, just like that?” She said with disbelief.
 
@@ -254,7 +254,7 @@ Their Yuzu blossoms were dropped off. She contemplated hers for a moment, then t
 
 She stared, mouth hanging slightly open. He began to work on his last courses, avoiding eye contact with a faint smile. *Ok but that Yuzu Blossom is in fact really good.*
 
-Suddenly Aurora broke out into laughter. It got a number of looks from other tables. Cale started working on his tiramisu, amused and soaking in her joy. She paused briefly, her eyes finally landing on him. She started to say something but interrupted herself with another round of laughter.
+Suddenly Astrid broke out into laughter. It got a number of looks from other tables. Cale continued working on his tiramisu, amused and soaking in her joy. She paused briefly, her eyes finally landing on him. She started to say something but interrupted herself with another round of laughter.
 
 “What, did you remember that time I got my arm stuck in the vending machine?” He said between bites. This got a whole new round of laughter from her, complete with a wider smile from him.
 
@@ -262,9 +262,9 @@ She pointed at him, “You… you… it was even the *wrong* vending machine. Th
 
 “You told the fire department you thought I was a homeless orphan, if your dad didn't show up they likely would have whisked me off to the local homeless shelter.” He found himself laughing too.
 
-The tables that were chuckling began to laugh harder, Aurora was in tears. Cale stood up and bowed several times, “I did in fact get the drink I wanted in the end. If anyone was curious.” Aurora almost fell out of her seat, covering her face in embarrassment.
+The tables that were chuckling began to laugh harder, Astrid was in tears. Cale stood up and bowed several times, “I did in fact get the drink I wanted in the end. If anyone was curious.” Astrid almost fell out of her seat, covering her face in embarrassment.
 
-Cale took his seat and took a *long* drink, returning to his tiramisu. The tables surrounding them returned to their passive chatter. He had gotten used to public humiliation very, *very*, early in his relationship with Aurora. It was one of the perks of hanging out with her.
+Cale took his seat and took a *long* drink, returning to his tiramisu. The tables surrounding them returned to their passive chatter. He had gotten used to public humiliation very, *very*, early in his relationship with Astrid. It was one of the perks of hanging out with her.
 
 She eventually composed herself, a few attempts at talking resulted in residual giggles. Her face remained bright red.
 
@@ -302,4 +302,4 @@ Cale handed the server the credit card subtly when he came back to check on them
 
 “What a day.” she agreed. They paused outside, the city lights casting their shadows in every direction. They held each other and kissed, a long, soft kiss. A kiss they had waited ten years for. A kiss that very nearly never happened. A kiss that would define the start of their new lives.
 
-**Aurora**
+**Astrid**
