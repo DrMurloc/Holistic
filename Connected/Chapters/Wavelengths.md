@@ -1,227 +1,601 @@
 **Astrid**
 
-Astrid dragged Cale through the front gate, trailed shortly behind by a Zoey who twirled and skipped in delight as the sounds of the park became more prominent. Many trees had begun their transition into a golden brown, painting a very different park than the one they stepped into almost six months earlier.
+"Couldn't quite get a ring on it. Those carnival games are deceptively hard," Cale exclaimed.
 
-It was nice to have Zoey out, Astrid had always been fond of Cale’s cousin. She had gotten mixed answers from Zoey and Cale on *why* she was out, but those two were always weird around each other. Cale played into Zoey’s crazy stories a bit *too* much.
+"You just gotta really commit, Cale. They're games of skill. You'll get it next time," Zoey responded.
 
-“So are we just repeating last time?” Cale asked, curious. She had requested they come out on the last day the park was open. It felt fitting.
+Zoey, Astrid, and Cale stood in the packed line for the Breaking Point. It moved slowly, giving Astrid plenty of time to exercise her sighs, eye rolls, and groans.
 
-“You want to make out in the haunted house in front of your cousin?” Astrid laughed.
+Astrid couldn't even begin to understand whatever dumb game they were playing.
 
-“I’ll close my eyes. Only a little peeking.” Zoey said, skipping past them and turning backwards to walk in front of them. Multiple people needed to jump out of her way.
+"Did you just 'skill issue' me, Zoey?"
 
-“Does that please the court?” Cale bumped into Astrid’s shoulder.
+"Maaaaaaybe." Zoey giggled.
 
-“Of course it doesn’t please the court! We aren’t kissing in front of your cousin.” Astrid laughed, they were ridiculous.
+Cale nodded as they shuffled forward.
 
-Zoey pouted, “I bet you will.”
+A calm fall breeze carried several leaves through the winding queue.
 
-Astrid shook her head, “Zoey, you are so weird.”
+"Respect. Regardless, are you going to be OK on this coaster, Zoey? It really gets the heart pumping; really think about it, it's a big decision."
 
-“Naina says it’s to cover up insecurities.” Zoey nodded as if this explained anything.
+"I vow to do my best." Zoey beamed.
 
-“Who’s Naina?” Astrid asked. Cale snorted out a laugh he tried to suppress, catching looks from both Zoey and Astrid.
+"How about you, Astrid? Feeling the anticipation? It's OK, you can take a moment to answer if you need." Cale bumped into Astrid's shoulder.
 
-“Cale? Who’s Naina?” Astrid asked, Zoey’s eyes narrowed at him as well.
+Astrid gave her eye-rolls another rep over crossed arms. "I swear you two are on a wavelength that humanity's most advanced instruments couldn't detect."
 
-Cale composed himself, “No clue. I just thought whoever they are, their analysis was spot on.” Zoey seemed to accept this, but Astrid made a mental note to dig in later. She could tell by his eyes he was hiding something.
+This earned grins from both of them, which in response earned a groan from Astrid.
 
-“Regardless, with our third wheel here, we definitely need a modified agenda. Do you want to get your heart attack out first or last?” Astrid asked. Zoey beamed at being called a third wheel.
+She was helpless with them.
 
-Cale and Zoey exchanged a glance, then both responded at the same time, “First.” Astrid rolled her eyes, those two…
+Cale, alone, could already play her like a video game. Combined? They were unstoppable and insufferable.
 
-They headed towards the large coaster, Astrid’s fingers scratched Cale’s hand softly as Zoey ran ahead. Cale squeezed her hand back. He seemed… tense, though. Astrid leaned to try and catch his eyes but he avoided her look.
+"So the haunted house is after this, right? Repeat performance?" Cale placed an arm around Astrid's waist, forcing her arms to melt out of their crossed positions as she leaned into him.
 
-It had been an interesting five months. They found a good pace for each other, and for work. Early on they had some hiccups, the words ‘emotionally unavailable’ were used in both directions a few times. But they were here. And they loved each other more than ever.
+"I'm not making out in a room alone with your cousin, Cale." Astrid snorted.
 
-They got in line, no fast passes so it would be quite the wait. Astrid pulled out her phone and started checking emails. She had off today, but they were both avidly workaholics. She suspected they would eventually need to find better boundaries on work but they both were in critical key points of growth.
+"Please! I'll only peek a little!" Zoey stated, with wide, pleading eyes.
 
-Many discussions on the topic and they concluded that there would just be some ebb and flow to work boundaries for a while. They were pretty good at not letting it interfere with any activity they actually identified as important though. Waiting in a roller coaster line would not be one of those important activities.
+Another eye roll.
 
-After some time she noted that Cale did *not* have his phone out though. Zoey was nose deep in hers. He just sort of stared at the coaster.
+Astrid was concerned her eyes would get stuck at this rate.
 
-Astrid leaned in, “Cale, is everything ok?”
+"No, Zoey, go get your own boy to kiss."
 
-She watched as he put on his fake grin, “Of course. Just contemplative as always”
+This saw both Cale and Zoey get quiet.
 
-“Not re-contemplating the statistical likelihood of us dying on this coaster again, I hope.”
+The line moved forward again as Astrid picked up on averted gazes on the uncharacteristically silent duo.
 
-“Well now I am. Thank you.” He laughed weakly.
+What...
 
-“You’re welcome. Glad to be of assistance.” She bumped his shoulder, and frowned when his reactionary smile wasn’t quite right. Something was definitely on his mind.
+Had Astrid said something wrong?
 
-She let it drop, he would talk about it when he was ready. They’d been through this, she didn’t need to push. She just didn’t like seeing him like that, especially not on a day like this that was meant to be more carefree. She had seen this specific look before… When was it?
+"Or girl. You don't know, Astrid." Cale only added another layer of awkwardness.
 
-They slowly neared the front, and Zoey suddenly said, “I need to use the restroom! Hold my spot!” and began to bump her way out of the line.
+"What... Wait, Zoey, is there a girl?" Astrid raised an eyebrow.
 
-“Zoey I don’t think that’s how it works!” Astrid called out, but the girl didn’t respond. Cale just kept the thousand yard stare at the coaster. It was unnerving.
+"Wait, Cale, what do *you* know?" Zoey avoided the question, focusing on Cale with uncharacteristically narrowed eyes.
 
-As they approached the last segments of the line, Cale positioning them to be in the front cart again, Astrid remembered where she knew that look. It was the same one he had right after the Haunted House the first time. He had been seriously weighing two life paths… Their conversations had been sparse this last week, was he worried about them again? She thought they had moved past that.
+"Ask Astrid, I know nothing, this brain is empty. 'Monkey smashing a typewriter against a wall' is, I think, the current iteration of the metaphor." Cale's armor flashed to full intensity, beaming smirk and all.
 
-Had he brought Zoey as a mediator in case things went poorly? That didn’t seem quite right. He was more confident than that. Why *was* Zoey here?
+Astrid and Zoey exchanged a glance, and Astrid merely shook her head. They'd get nothing from him in that state.
 
-They latched into the seats, and Cale took a deep breath. Astrid tried to look over but couldn’t make out his face well.
+Another shuffle forward, leaving them at the bottom of the metal steps leading up to the platform.
 
-“Astrid, I’ve been thinking.”
+"I don't know, Zoey, this line feels like it lasts forever." Cale shook his head, shifting back to whatever dumb game they had been playing earlier.
 
-“Wait, Cale, no, not here.” She said, they would talk it out, they always talked it out, and they always ended up happy. But she couldn’t have it be a place so full of good memories.
+Zoey contemplated, her hips swaying in a rhythm only she could hear.
 
-“No, it needs to be here.” He said as the cart began to move. She leaned forward even more, he was looking straight ahead.
+"Well, it's good talking time. Really helps us bond, you know," she added with a giggle.
 
-“Why? What’s wrong?”
+"What are you two doing?" Astrid finally asked, stepping out of Cale's embrace to face them both, arms returning to their crossed positions.
 
-“I just, I need something different.” He said. Wait, this was new, something different? He had never mentioned that as a problem before. Was he bored of her? None of this made sense, why would he bring up something new *here*? They were better than that.
+"Nothing!" They both exclaimed with grins.
 
-“You could have picked a better time to break this to me.” Astrid said, her heart pounded.
+Astrid stared blankly, feeling like a deer caught in the headlights of those grins.
 
-“Almost six months, Astrid. It was beautiful.” *Was*… She felt tears welling up.
+Zoey continued, "I *do* want to introduce Astrid to Naina, though. She's a real diamond in the rough."
 
-“Cale, we’ll be fine. Tell me we’ll be fine. Please. Whatever you’re going through, we’ve been through harder.” The coaster neared the top.
+"More like a sapphire," Cale noted, and Zoey's eyes went wide with a poorly repressed squeal.
 
-“Fine isn’t good enough.” He paused, “Because simply being with you exceeds ‘fine’ by multitudes. And I want that to last forever.”
+Were they talking about Zoey's girlfriend? Cale clearly knew something was going on there, but Zoey didn't know he knew?
 
-“What?” Was all she could get out, as the coaster came to a stop, hanging down slightly over the park.
+Astrid was *very* lost in this game.
 
-Over a hundred people stood beneath them in one organized mass, holding signs above their heads that spelled out “Astrid, will you marry me?”
+Suddenly Zoey perked up, "Oh, I need to use the restroom. Hold my spot."
 
-The realization of what he had just done hit her. She looked over briefly, barely able to make out the edge of a wide grin.
+She pushed back through the queue, not quite waiting for people to make way for her.
 
-Then the coaster dropped, the screams behind them were not able to cover up the one single word that she shouted with her full body for the entire first plunge: “Idiot!”
+"Zoey! That's not... how that... works..." Astrid's voice trailed off as Zoey disappeared into the masses.
 
-Cale was laughing, she was stuck between crying and laughing. The first loop came and they hovered for a moment, briefly leaning forward and meeting eyes. Tears clung to her cheeks, slowly drifting off as the car began to fall down the other side of the loop.
+"Only you and me. My condolences," Cale stated.
 
-The rest of the ride was a blur, she barely registered it. When the ride came to a stop, she unfasted immediately.
+"Does she have a girlfriend?" Astrid asked, latching onto his arm as she turned back to the front.
 
-“Idiot! Baka! Idiota!” She shouted.
+Cale's head bobbed back and forth, mouth working through several false starts before he answered, "It's... complicated. You'll meet her at Christmas, assuming her current plans go through. It'll make sense."
 
-“Oh I love the classics, I never get to hear this anymore.” Cale laughed, stepping with her to the side of the ride.
+"What kind of girl manages to fall for Zoey?"
 
-“Ilithios! Babo! Salak!”
+"Oh, you have no idea, it's quite perfect, trust me. Spoilers, though. You'll love Naina."
 
-“Oh man, still full of surprises.”
+They stepped forward and up the metal stairs, enveloping them in shade and the occasional ignored mumblings of the ride coordinator over the intercom.
 
-“Bai chi! Ablat! Idiottii!”
+"What game were you even playing? I swear, you two just sometimes play games without even having rules."
 
-“How many languages did you learn just to remind me of something we established long ago?”
+"Drives you crazy, doesn't it?" Cale winked.
 
-“Clearly not enough. Here let me hit the easy languages for your neanderthal mind: idiot, idiot, idiot, idiot, idiot, idiot, idiot, idiot, idiot, idiot…” She looked up and counted briefly, “idiot… idiot.”.
+Was that the game?
 
-“How long have you been holding onto that one?” Cale laughed.
+Just confuse everyone around them while maintaining an unspoken alignment?
 
-“Ever since you forced me to use all my good ones at Harmony.” She admitted through a wide grin.
+Zoey and Cale had spent a solid 10 minutes at lunch just moving various items around a table and spouting random responses like "check" and "you can't do that on Saturdays," while pretending to contemplate every move as if it were profound.
 
-He shook his head, fighting back his laughter, and got down on a knee, taking out a small case. Her hand went to her chest, was she really going to be this cliche? But her heart… it actually felt like it would beat out of her chest.
+Astrid always felt like the punchline around those two.
 
-“Astrid Summers, will you marry me?” He opened the box to a radiant sapphire gemmed silver ring.
+"So you're proposing that we all exist for purely your amusement?" Astrid asked.
 
-“Lame. Try again.” She raised an eyebrow, he grinned.
+Cale winked and shot her a finger gun. "Good one, see! You know the rules!"
 
-“Astrid Summers, would you do me the honor of putting up with this monkey and his clearly broken typewriter forever?”
+What?
 
-“Yes. Oh my god yes. You will make my therapist so happy. We’ll be seeing his grandchildren through college.” She extended her hand, and he slipped the ring on. He moved her to the railing that overlooked the crowd on the streets, and held up her hand. The crowd, both on the ground and in line, all erupted into cheers, and she kissed him. *Hrm. Zoey was right.* She had noted the girl hopping for joy holding her chest at the front of the crowd.
+As they stepped up against the gates at the front of the line, Astrid's mind rapidly fired on everything that had been said.
 
-They moved down the exit afraid from the ride, she held his arm tightly, holding her hand up, unable to take her eyes off the ring, “I’m afraid to ask who all these people are.”
+Was it her admitting she was just a pawn?
 
-“Volunteers.” He said simply.
+That didn't fit right with Cale's sense of humor.
 
-“Clearly Zoey is right, you *are* an international super spy. When do you have time to meet all these people?” She wiggled her finger around, the sapphire glimmered in the sun, sending a whole new wave of delight through her.
+Or was this *really* just "no rules" while pretending like there are?
 
-Cale just chuckled, “Both of our parents are here by the way. Who knows which of mine will actually show. Leo and May are hypothetically out there somewhere, hopefully not blowing up over a disagreement on cotton candy color. We have a dinner scheduled tonight, greek tapas.”
+"It's a fun game, satisfying, really. Proves you have a good bond with the person."
 
-“You made the reservation for more than one person, I’m hoping?” She bumped into his shoulder and he laughed. They emerged from the exit, the crowd was shaped in two lines that curved away from the exit, giving them only one path to follow.
+There had to be something specific about the words.
 
-“Wait, are they guiding us somewhere?” She looked over to Cale.
+Astrid barely registered the action of getting into the next car that approached, her brain spinning and revisiting every sentence she could remember.
 
-Cale was equally confused, “They were supposed to disperse. What…” At the front of the crowd was a beaming girl with black and pink hair, hands held behind her back.
+Cale leaned back in his seat, preventing Astrid from being able to read his face further.
 
-“Zoey, what did you do?” Cale said.
+"Could I get your hand?" Cale asked.
 
-She just continued to grin, and gestured down the people-lined aisle. They began to walk, the occasional hand was offered out to be shaken, the showering of “congratulations” was almost overwhelming.
+Oh, right, coasters scared him.
 
-Astrid realized what was happening, “Oh no.”
+Her hand found his under the restraints as the car clicked ever so slowly up the track. The clacking of the chain gave her spinning thoughts something to anchor around.
 
-“What?” Cale asked.
+Wait.
 
-“I swear to god, that girl.” Astrid began to blush, seeing the sign appear.
+Why would Cale correct Zoey on a gemstone?
 
-Cale followed her gaze, and laughed, grabbing her hand and pulling her forward. At the end of the aisle was a tunnel. And in that tunnel bobbed a tacky swan boat.
+That felt specific; the others had all been... more... generic.
 
-“Zoey is a brat.” Astrid said, not even trying to hide her smile as they lowered themselves into the boat.
+He had just asked for her hand.
 
-“You know you love her.” Cale followed. It wasn't long before they were wrapped around each other, lost in a moment of passionate nostalgia.
+Astrid's heart thudded as her eyes went wide.
+
+"Man, there's really no going back at this point, this ride is quite the-"
+
+"Engagement." Astrid finished his sentence as they came to the peak of the first hill.
+
+"Damn, almost made it the whole way."
+
+Cale's hand squeezed hers, and she realized something hard and circular was trapped between their grasping hands.
+
+The *idiot!* He brought... on a *coaster*?
+
+Her vision tunneled as skin erupted in oversensitized awareness.
+
+Cale was proposing.
+
+The thought was only cemented as they crested the top of the hill, tilting forward to reveal a plaza packed to the *brim* with people.
+
+The people were the least interesting part.
+
+What really caught Astrid's eye was the signs they held that spelled out "Will you marry me, Astrid?"
+
+Any pretense of rational thought crumbled and fell to the distant park grounds. It was fortunate she was strapped into a ride, as she would have otherwise collapsed from weak knees.
+
+"You *idiot*!" Astrid yelled, though her face *beamed*.
+
+"You know it!" Cale responded with a laugh.
+
+"You *absolute* buffoon!"
+
+She slipped the ring on, not willing to let this idiot's poor planning lose the precious object.
+
+"So what do you say? Can you bear this primate's presence for eternity?"
+
+The ride came to a stop, hovering just over the crowded plaza.
+
+The question loomed over the park.
+
+For the briefest nanosecond that dragged to eternity, there was nothing but silence.
+
+And then they dropped.
+
+Astrid's voice carved out through the howl of rushing air. "Of course, the answer is 'yes', you idiot!"
+
+Tears filled her eyes, drifting backwards.
+
+The feeling of free fall was far from the primary exhilaration that filled Astrid's body.
+
+Cale wanted her... *forever*.
+
+The ground rushed up at them, but she barely noticed.
+
+Cale.
+
+The man who had devoted *four years* to fundamentally changing himself... for *her*. The man who had, from day one, seen through layers of her that she hadn't even known existed. The man who could effortlessly bring a vibrant glow to even the most colorless of days.
+
+The coaster pivoted up, slowing into the large loop, and time and gravity came to a crawl.
+
+They leaned forward, meeting eyes.
+
+Tears drifted up both of their faces, disappearing into their hair or dripping off their foreheads to the distant ground.
+
+"Baka," Astrid stated, earning a broad grin from him.
+
+"You've already used that one," Cale noted as they began to drift forward.
+
+Oh, he wanted new?
+
+She was ready for this.
+
+"Idiota!"
+
+The sounds of screams and yells from behind them were poor competition for Astrid's stark exclamations.
+
+"Oh! Spanish! Excelente!" Cale laughed back.
+
+"And Italian and Portuguese, you babo."
+
+The ride spiraled through more loops, though Astrid barely registered them.
+
+"How many-" Cale started.
+
+"Ilithios! Salak!" Astrid yelled.
+
+"Oh, let's go! Come on, Astrid!"
+
+"Bai chi! Ablat! Idiottii!"
+
+The ride went into a large outward spiral.
+
+"How many languages did you learn for this?"
+
+"Clearly not enough. Here, let me hit the easy languages for your neanderthal mind: idiot, idiot, idiot, idiot, idiot, idiot, idiot, idiot, idiot, idiot…" She looked up as she did some quick counting. "idiot… idiot."
+
+The ride went through one last loop and came to a screeching stop.
+
+"God, I love you," Cale exclaimed as they pulled into the station.
+
+"You'd better, I'm keeping this ring either way," Astrid growled, running her thumb over the gem-studded circlet.
+
+Sapphire.
+
+He had said sapphire.
+
+The restraints unlocked, and Astrid practically teleported out of her seat, looking down at the symbol of commitment.
+
+It was perfect.
+
+Her eyes rose to Cale's, her heart firing off in a whole new wave of thunderous volleys. His legs were shaking, whether from the ride or the proposal —it was unclear.
+
+He was perfect.
+
+In either case, Astrid embraced the idiot and captured his lips with hers. The action prompted a round of applause from the other riders.
+
+They barely registered, merely white noise outside the fuzzy edges of her awareness.
+
+Astrid was not entirely sure when they broke apart or when they descended the stairs out of the ride. The ragged thread that slightly resembled "focus" remained on the ring on her finger.
+
+It felt so... so... real.
+
+Cale's voice cut through from beyond the darkened corners of her vision. "She said yes! And she said no take-backsies!"
+
+Astrid's hand was raised above their heads, and she looked up to find a large crowd *roaring* with applause. Her rebooting mind could make out friends and family, though most of the faces were unfamiliar to her.
+
+Astrid briefly contemplated how much effort he put into organizing this, but decided she didn't care.
+
+None of them mattered.
+
+Her arms wrapped around the only person here who mattered, and she kissed him again.
+
+It earned another eruption of applause and cheers.
+
+"Astrid!" Zoey's voice approached, briefly taking hold of Astrid's single functioning brain cell.
+
+What...?
+
+Zoey was gesturing; the crowd had formed a kind of tunnel that matched Astrid's vision.
+
+Astrid looked to Cale, who merely shrugged.
+
+So they followed it.
+
+As they trekked along the seemingly endless line of people, the edges of the world began to creep back into vision.
+
+They came to a stop as the sign came into view.
+
+*"Tunnel of Love."*
+
+"Zoey..." Astrid groaned, though the corner of her lips turned up.
+
+"I mean, it's tradition, at this point, right?" Cale noted.
+
+"I don't think one time makes tradition." Despite her words, the two strolled toward the disgustingly romantic ride.
+
+"That's one hundred percent! Clearly tradition. We have no choice in the matter."
+
+"Cale, please. You need at least three times before tradition is established, idiot."
+
+They shared several brief smiles and waves with friends who passed. Astrid gave Leo and May an especially warm smile.
+
+"Where in the rule book does it say that? Can't you establish a tradition intentionally?"
+
+"Are you implying we're intentionally walking into this... this... poor investment of a ride?" Astrid gestured to the distant swan boat as they walked through the empty queue.
+
+"No, clearly not, we're being forced. Zoey wouldn't let us leave."
+
+The attendant perked up as they passed. "Oh, hey! It's you guys!"
+
+Astrid glared, causing the attendant to step back.
+
+"Astrid! We talked about that glare, careful! Can't just swing that thing around!"
+
+The two settled into the tacky boat, finding themselves instantly melting into an embrace, living a new form of what felt like a distant memory. The sloshing of over-chlorinated water against the rounded walls almost felt comforting.
+
+It was five laps before Astrid decided they should probably mingle with the friends and family that had gathered for them.
+
+It was another three before they actually got off.
 
 **May**
 
-With their role in the day done, May and Leo wandered the park. The crowd from the proposal had dispersed and activity returned to its standard flow. Coordinating them with Zoey had been like herding cats.
+"So when are *you two* getting engaged?" Zoey... frolicked?... in circles around May as they paced through the park.
 
-Neither Leo or May were really into rides, but the romantic energy of the proposal seemed to have left both of them thinking.
+The crowds had re-dispersed, pretending like the most absurdly overengineered proposal hadn't just happened.
 
-“May-”
+May had desperately looked for a reason to be mad at Cale, but even she had to admit that Astrid *never* looked happier. Maybe the turdclown knew what he was doing... sometimes.
 
-“Leo-” They both said at the same time, she chuckled and let him start.
+Zoey and May had been ditched as fourth- and fifth-wheels while the "core three" got some quality time. It had been a monumental moment for Astrid, Cale, *and* Leo, one that had been years in the making.
 
-“Should we… Try how things used to be again?” Leo asked. She grinned, they *had* been thinking the same.
+May finally responded, using her soft-spoken teacher's voice, "It's not that simple, Zoey. We have some things to sort out."
 
-They saw each other only once or twice a week since that hook up. But every time it seemed like they just positioned themselves for another hookup. It was hard to call what they were doing “dating”.
+May didn't really want to dive into the nuance with this girl.
 
-“Like don't get me wrong… the… you know… has been amazing.” He looked around, checking that no one was close enough to hear.
+Zoey had never struck May as particularly clever.
 
-“Hell yeah it has.” She raised a hand and he high fived her with a laugh.
+To May's knowledge, Zoey had never been in a relationship. How could May explain to her the complexities of... well, whatever the hell was wrong with them?
 
-“But we never talk anymore.”
+"That's what Cale told me for years about Astrid." Zoey switched to a backwards walk, an innocent smile spreading from ear to ear.
 
-While she contemplated how to answer, May's eyes fell on an old Dance Groove cab in one of the arcades facing the street. Meganova… Good mix.
+May studied that smile and narrowed her eyes. She had seen that exact expression dozens of times on her students when they were trying to get something they wanted.
 
-Leo followed her gaze, “Well, I know how you are killing time until dinner.” She walked up, testing the pads. Not super sensitive, three dead sensors. But pretty good for something this public and old. Leo pulled a chair from inside the arcade over and plopped down nearby while May fished out some cash and started up the game.
+"What are you saying, Zoey?"
 
-“Why *don't* we talk?” She finally asked. This game's skill cap was low, and she was playing more for nostalgia than performance so splitting attention wouldn't be hard.
+"I'm not saying anything."
 
-Leo thought while the music started, old JPop. Her feet fell into a steady rhythm, she felt like she was mentally brushing cobwebs off this dated chart. The motions were familiar though, even if janky.
+This girl.
 
-“I mean, we never had closure. I don't know about you but that last fight we had still feels like it's hovering over me.” His eyes drifted behind her, she could make out some silhouettes in the reflection on the screen. She didn't care if people heard their little relationship drama, and she was very used to gathering crowds when playing.
+May shook her head. "I don't think we're getting engaged any time soon."
 
-“That was a different time. We had different problems. I think we need to just let that go.” Her hips performed a series of deep awkward twists, these old charts sometimes played like a rickety wooden roller coaster… There was a series of misses that appeared from a dead sensor not picking up a step, bringing her life dangerously low.
+"So you're *not* going to marry Leo?" It was like she had the response lined up.
 
-Leo let that sit for a while. May heard light applause come from behind as the song ended. She turned and did a little bow, very practiced. Most players tried to ignore the crowds, she liked to play off their energy.
+May groaned and looked around for a distraction.
 
-She scrolled through looking for a specific chart. The average normie didn’t understand the nuance of the game, so standard play was often lost on them beyond “wow their feet moved fast”. Some players kept a mental backlog of charts that specifically had high showmanship potential. This was one of hers.
+This girl was impossible, unrelenting. Once she got something in her head, she just would *not* let it go.
 
-“Is it that easy?” Leo asked as she locked in the song and chart.
+As if the universe had heard her plea, May's eyes landed on two red bars set into metal pads in front of an old arcade cabinet.
 
-“Eutopia? Actually for this mix’s skill cap it's pretty hard.” She grinned.
+Now, once you played rhythm games, especially dance games, for long enough, your DNA more or less re-invented itself. In particular, it encoded in itself a specific set of instructions that seemed to be universal to all players.
 
-He laughed, “No, just letting it go. I mean that will work for the last fight, but what about the next?”
+These instructions were simple: If you found a cabinet in the "wild", you *must* play on it, regardless of where or when, or what quality it was in. May expected that she would at least get a set or two in; her body would not let her leave the park otherwise.
 
-She growled as the chart forced her to almost be in two places at once… his words struck home though. He was right.
+What she had not expected was for Zoey to emit a light squeal with a hop before bolting over to the game herself.
 
-“I mean look at Astrid and Cale. They just sort of… let things go.” She said, “They had to let a lot of things go. I'm pretty sure one of them would be murdered by this point otherwise.”
+She left May behind in a state of befuddlement as several groups of people flowed past her.
 
-“I don't know if that's entirely accurate, but you have a point.” He drifted back into silence.
+"Zoey, you play?" May asked as she approached.
 
-And the reason she picked this chart… she let go of the bar and closed her eyes, the outro well ingrained in her muscle memory, a series of slower motion along the outside of the pads that ended in a spin, hand down on the bottom arrow with the other arm in the air… smile backwards at the crowd for flare.
+"Cale took me to an arcade in Pittsburgh once when he visited. He's *so* good." Zoey jumped up on the pads, hopping between arrows to the demo mode playing.
 
-The applause was much more pronounced this time. She took another bow, riding the energy. She really wasn't one to showboat, but a decade of playing these games you learned to just go with the flow. Give the crowds what they want.
+Cale had never been a competitive player; he was a social player, like Leo. That being said, by normie means Cale would come off as really good.
 
-“What would going back look like?” Leo asked. May hopped off the game as a kid ran up to take a turn. The downside of getting a crowd: you were guaranteed to have to wait for more turns.
+May threw in two credits and proceeded to poke the sides of the arrows with her toes to test sensitivity. Several dead sensors, but nothing too bad. Performance was never the point on these older mixes, anyway.
 
-“What do you mean?” She asked, sitting on the ground next to him, an arm up on his leg.
+May's eyes noted the way Zoey's hand naturally fell on the bar with a touch more familiarity than a normie would have.
 
-“Both of us live with our parents. I still have money from the sale of the house for another down payment but I'd rather not go that big for just a month of glorious…” He cut himself off, noting the kid jumping around on the pads without even looking at the screen.
+She then questioned her use of the word "normie" and whether it could even begin to apply to someone like Zoey.
 
-May chuckled, “A date. Ask me out on a date. Get us in a place we can't just run away or… you know… at the sight of meaningful discussions. Seems to be working here. We'll start slow again.”
+"Leo made it sound like Cale used to visit a lot," May noted.
 
-“And if we fight?”
+"Yeah, he's the best cousin in the world. He knows how to make me laugh." The assertion came with a giggle, as if to prove a point.
 
-“We just… won't. Right? I think that's how it works.” She got up, and offered him a hand.
+It seemed *everything* made Zoey laugh, but what did May know?
 
-Leo accepted the hand, pulling himself up.
+May locked in a song, noting that Zoey picked the easiest difficulty.
 
-“Besides. We clearly are self destructive apart. Us together can't possibly be worse.” They walked away from the crowd which had formed into a line of people waiting to learn that they had no idea how the game worked.
+"Cale is definitely... Cale," May stated, her legs picking up into the distant but familiar motions.
 
-“Speak for yourself. *I've* been doing great.” Leo grinned.
+These old charts played like rickety rollercoasters, with unexpected twists and turns. May didn't hold the bar, which elevated the janky motions; playing with the bar was not allowed competitively back when these charts were made, so no-bar was a tradition to be respected here.
 
-“Astrid said you got one of those weird body pillows.” May poked him in the rib.
+Zoey herself swayed back and forth with each step, her sundress flowing elegantly with the movement.
 
-His face turned bright red, “She-” he practically yelled, then lowered his voice to a whisper. “Wasn't supposed to see that…”
+"You don't like him," Zoey stated after several moments of thought.
 
-May bumped his shoulder, “Come on. A quick dinner with family where we pretend everything is going flawlessly and that we’ve totally been more than friends-with-benefits, then we can go see if your pillow friend needs company.” She saw a silly grin take over Leo’s face and they wandered off into the park.
+How could May describe her relationship with Cale to a girl who worshiped the man?
+
+"He's a good friend. He and I... we're different types of gamers. Some gamers like games that are heavy on mechanics and rules. Some gamers like games that focus on..."
+
+How could May word this?
+
+"People." Zoey finished the sentence, sounding all too familiar.
+
+May stopped, noting Zoey's combo.
+
+May's eyes narrowed on the girl's feet, which were far from efficiently placed but definitely had a level of minimalism that didn't come from having played only once. And the girl was following a conversation while comboing.
+
+Zoey was holding back.
+
+It seemed Cale was not the only one in that family who played games with people.
+
+"Zoey, you said you played once?"
+
+"Yeah! I played once. And another time. And another time. Every time he came out. It was the easiest way for him to get me out of the house."
+
+The girl didn't even blink, continuing to play as if May hadn't just stopped mid-song to study her. May's entire mind needed to reorient around how casually Zoey dismissed getting caught red-handed in her lie.
+
+This girl was very much like Cale.
+
+That should piss off May, right?
+
+Her chest tightened with...
+
+She...
+
+No. Nothing.
+
+Just an internal groan.
+
+The song ended, and a stray kid ran through the center of the pads and into the arcade, followed by a very apologetic parent. Zoey just giggled it off, and May waved and smiled with her standard "kids are kids" line.
+
+May watched Zoey as she cycled through the song list, apparently looking for a specific one.
+
+"You needed to get out of the house?" May asked, crossing her arms and leaning a hip against the bar.
+
+Zoey paused in her song scrolling, her lips parted momentarily in consideration as a preview song clip went ignored.
+
+The words that followed seemed difficult to say, and came from beneath averted eyes, "My house was... organized. Very organized, my dad liked it that way, needed it that way. I... was not... am not, organized... Though Naina says I'm doing a good job."
+
+Oh.
+
+The words between the assertions pierced May through the heart.
+
+"I... should probably not be mad at Cale." May found herself saying.
+
+"You're *mad* at Cale?" Zoey returned to cycling through songs.
+
+"I... Yes? It's him and Astrid, that whole... situation. It irritated the shit out of me."
+
+"I think we were all frustrated, but why be mad? What did he do?"
+
+"He... wait, what?" May found herself shifting to face Zoey more directly, crossing her arms.
+
+"Mad, you said you were mad at him. You get mad at people, you get frustrated at situations."
+
+Zoey settled on a song and started it. May ignored the screen, letting her side simply eat misses as the familiar song filled her ears.
+
+"Well... Cale..." May's eyes drifted into the neighboring arcade and aimlessly settled on one of the crane games.
+
+Cale was manipulative.
+
+She was mad at him for that, right?
+
+It didn't feel right.
+
+It wasn't like he was intentionally hurting anyone; he just... subtly controlled the flow of information in ways May couldn't quite name.
+
+Frustrating.
+
+Yes, it was frustrating; that word felt more right.
+
+Zoey continued, "I... can't be mad at my dad. Cale would get mad at him... for me. I am definitely frustrated... by the situation. It's... complicated."
+
+Mad at people... frustrated at situations.
+
+Was May mad at Leo?
+
+No.
+
+But then what the hell was wrong?
+
+The song ended, and May took a glance behind them to make sure no one was waiting. They had a few passing observers, but no crowd or line.
+
+May took the moment to pivot; Zoey was clearly uncomfortable with this line of thought.
+
+"Naina?" May asked as Zoey started the next song.
+
+"Cute redhead, she's smart." Zoey's voice sprang straight back into its standard perky self.
+
+May did a double-take, almost missing the first note. "Zoey! You have a girlfriend?"
+
+"No! Well, maybe? It's complicated. She has autism."
+
+May mouthed an "oh".
+
+She occasionally had students on the spectrum.
+
+"Let me guess, you've been crawling all over her and she thinks you're a friend." The two of them spun in unison, following the outer arrows with one foot while the other remained in the center.
+
+"Maybe? It's hard to tell. It's like we're dating, but we're not."
+
+"Ask her out."
+
+"If I'm wrong, I don't want to make it awkward. Her brain... It's smart, but it sees... and feels... different things. We could just be friends forever, and I'd be happy." Zoey didn't sound wildly convinced by the words that left her mouth.
+
+May began to suspect that this girl understood much more relationship nuance than originally speculated.
+
+The song came to an end, and Zoey hopped off the pads, leaning on the bar with both arms. "OK. Leo. Tell me about Leo."
+
+May studied the girl's "innocent" smile and narrowed her eyes.
+
+"Did you just offer up information about yourself in exchange for prying into my love life?"
+
+She watched every single muscle movement as Zoey's smile widened into a grin that stated, "Oops, you caught me."
+
+May tapped her foot, feeling the metallic clang of the metal panel.
+
+She finally growled, but conceded. "None of this makes it to Cale. Or Astrid. Or Leo."
+
+Zoey made a zipper motion over her lips and "threw away the key", her eyes widening as if she was receiving a present.
+
+May collected her thoughts while loading a new credit.
+
+She found an old chart that would come naturally but would also give her something to do while discussing a sensitive subject.
+
+"We're fine. Happy, even. I love Leo."
+
+May waited for Zoey to ask questions or dig, but she simply listened. May's legs began to move her around the pads, driven by the cathartic emotions of the familiar chart.
+
+"We're back into our standard pattern... I'm staying with him at Meredith's. It sort of feels like our current solution is to just avoid hard topics. We sort of... just... accepted that sometimes I need to step out for a day or two. Which... is fine. But it means there's no progress, and I just feel like a fucking ticking time bomb until he or I say the wrong thing... or don't say the right thing."
+
+The words lingered on a light breeze, swirling between the two of them before carrying off into the distance.
+
+Frustrating.
+
+It was frustrating.
+
+May was *frustrated*.
+
+She shook her head. "Wait, sorry, language."
+
+"You can fucking swear," Zoey stated.
+
+The light and sweet way that word simply slipped out of what May had assumed was the most innocent mouth in the entire world caused May to almost fall off the pads.
+
+May waited for Zoey to give advice or tell May what she was doing wrong.
+
+But nothing came.
+
+She remained silent.
+
+"You have layers, Zoey," May noted.
+
+"Thanks, I made them myself." Zoey giggled.
+
+May seriously needed to stop underestimating this girl.
+
+The song ended, and May hopped off the pads as two kids who had been watching ran on. They hopped around the pads from arrow to arrow just as Zoey had upon arrival.
+
+May found herself smiling faintly, a good feeling in the middle of a day that felt otherwise so... bland.
+
+"I can't believe you walk around hiding your true power level as if you're wearing a weighted training outfit. Does Cale know?"
+
+Zoey giggled as the two began their steady pace around the park yet again. "Who do you think I learned from?"
+
+"I think you're better at it than he is. You're dangerous, Zoey. I hope this Naina girl knows what she's involved with."
+
+"Naina's smart. She knows things."
+
+May couldn't help but laugh as Zoey shifted naturally back to her childish, simple dialect.
+
+"Come on, let's get you an obnoxiously sized cotton candy to really sell the look."
+
+"Cale gave me his credit card." Zoey snickered.
+
+May met the snicker with a light cackle and grin. "Well, that's just straight negligence on his part. It would be irresponsible for me to *not* take his beloved cousin to the game row and waste a bunch of money on winning obnoxiously sized prizes that *he* would have to take home."
+
+"Yes!" Zoey yelled with excitement and began skipping with renewed determination.
+
+"Other way, Zoey," May shouted to the girl with a laugh.
+
+They passed the line to one of the coasters, and May's gaze landed on two blue eyes looking back at her from the queue.
+
+Even after three and a half years, May's heart skipped a beat and her chest tightened with longing.
+
+She met Leo's silly smile with her own grin, making a slight biting motion. He laughed, then turned back to whatever conversation he was having with Astrid and Cale.
+
+No.
+
+She couldn't be mad at him.
+
+She had never been mad at him.
+
+But she could most definitely be mad at herself.

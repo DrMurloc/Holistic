@@ -1,135 +1,321 @@
 **Naina**
 
-Naina lounged on a couch, staring up at a blank ceiling in the dorm lounge. It would be a few more minutes until Zoey got back from class, not enough time to start anything so Naina just left herself to her thoughts.
+Naina found ceilings comforting.
 
-Mr. Zimmerman had been right, for whatever reason, this new bundle of energy had provided structure to her life. Naina still couldn’t quite wrap her mind around *why* she did, just that she *really* enjoyed spending time with her.
+They were so simple, stationary.
 
-What confused her more than what *she* was getting out of the relationship though, was what *Zoey* was getting out of it.
+And when engaging in polite conversation with one, you tended to be on your back, which was pleasant.
 
-Granted the girl was obviously masking heavily, that thick layer of happiness was meticulously crafted to scream “don’t look at me, I’m fine, look at everyone else”.
+Naina was currently on her back, comforted by the silent dialogue of the ceiling. The dorm lounge was largely empty, finals were over, and most students had scurried off to... well, anywhere but campus.
 
-Naina suspected there was something with her pre-college home life but didn’t want to speculate too much. Zoey very carefully avoided any discussion involving parents. As far as Naina could tell, Cale and whoever “Meredith” was were the only people Zoey considered family.
+Her mind picked up a boy entering the room. Naina tuned out the impulse to track. She had grown more confident that most people would ignore her.
 
-But ultimately, the “why” behind the persona didn’t matter. Naina understood identity, she had gone through this with herself when she was first diagnosed. It didn’t matter if it was intentionally or subconsciously crafted, the mask was part of Zoey the same way every other part of her was. Zoey seemed happy, even beneath the mask, and Naina seemed to make her happier, so Naina was happy.
+Naina hoped Zoey would kidnap her again. They had a streak going; it was nice. Neither of them had plans for the summer, so Naina would sort of just exist in the lounge until Zoey found her.
 
-Maybe she didn’t need to overthink the “why”. Maybe it-
+Her hyperfixation on Zoey had not lessened, although it didn't seem to be interfering with anything, so Naina let it exist. It was somewhat strange for one to last this long.
 
-“Hey, you look bored” A masculine voice.
+Maybe she was a special interest? An algorithm in the shape of a fluttery ball of novelty that managed to make dopamine feel earned.
 
-Naina’s head rolled over, a tall boy stood with a jacket casually slung over his shoulder. It wasn’t hot, but it most certainly wasn’t cold, why the jacket? She wasn’t good at reading people, but it seemed like the jacket only existed to hold a posture that sold an air of confidence, a need for control?
+It wasn't uncommon for a hyperfixation to evolve into a special interest. Naina, however, had never had *either* for someone who wasn't fictional or a celebrity before.
 
-Naina had to shake herself out of the thoughts. *Stop analyzing people, it’s rude.*
+The semester had ended well, though. And Naina was happy. Well, she was not *unhappy*.
 
-“No, not bored. Why?” Naina’s mind grasped at what sort of interaction could this be, she had some talk tracks for small talk but hated using them. Small talk was such a waste of mental battery.
+To be honest, she hadn't realized that she had even been *unhappy*.
 
-“Well if you want to be more not-bored, there’s a party at one of the houses just off campus.” The boy said with a smile.
+The definition of happiness sort of eluded her.
 
-A party? Socializing? Why would someone ask Naina to socialize? Did she know him?
+Psychologically, she felt more hedonic than eudaimonic. She "felt good," or at least didn't "feel bad," which was an improvement. But as for purpose and self-realization, she was a ways off.
 
-“Why?” Naina sat up, her eyes scanning his body for any more clues. The smile definitely had some intention behind it, his eyes were attempting, poorly, to meet hers.
+Happiness as a core term felt like a marketing term designed to sell you drugs.
 
-“Cute girl like you with that look, figured you might enjoy the stress release, finals finally being past us and all.” He winked.
+Content. Naina was content. That was a good word.
 
-Winks meant things.
+Good talk, ceiling.
 
-Oh.
+The boy paused, and several of Naina's threads picked up on the way he scanned the room. Was he prowling? Who prowled?
 
-“I… Oh, no. I don’t think-” Naina started.
+She shook off the thought.
 
-The boy was practically knocked to the floor by a blur of black, pink, and white. Zoey was suddenly standing where he had been, arms crossed and glaring. Zoey was angry? Had Naina ever seen Zoey angry?
+What confounded Naina was what *Zoey* was getting out of their relationship. The girl had layers with clearly unresolved insecurities. Something about Naina alleviated at least some of those with simple cohabitation.
 
-“Zoe, what the hell.” The boy said from several feet over, bending to pick up the jacket that got dropped during what appeared to have been a hip-check.
+Was it a simple hormonal exchange? Naina was sure the oxytocin was helpful, but Zoey most definitely was getting that from her other friends, too. Right?
 
-“Not Naina, Jack.” Zoey declared with a growl.
+For now, though, the ceiling was keeping her company. The ceiling and the daydreams of hazel eyes.
 
-The boy put his hands up in the air and began to turn away, “Sorry Zoe, didn’t realize she was claimed.”
+"Naina." A masculine voice cut through her thoughts. Naina had never heard her name drip with so much... intention?
 
-Claimed?
+To her horror, the prowling boy approached her. She had no idea who he was.
 
-Naina blank a few times, her lips parted in confusion as she looked between the two… rivals? Was she being fought over? Had she just witnessed a battle between two alphas? Why would *anyone* fight over her?
+"Hi?" Naina... asked?
 
-Zoey’s posture loosened and her smile returned as she turned back to Naina, extending a hand to help her up. Naina took it, and found that the hand was not released, but held very firmly as Zoey began to drag her towards her room.
+Naina was afraid to ask his name; she didn't remember ever interacting with this boy. She remained lying down, though; she was not convinced this was a sitting-up conversation yet.
 
-“Zoey? What was that?” Naina asked, finding herself laughing.
+The boy came to a stop.
 
-“What was what?” Zoey said, turning back and offering an innocent smile.
+Now, Naina wasn't really good at reading people, but that dirty blonde hair appeared to be intentionally styled to look nonchalantly messy. The way he carried himself with his hands in his pockets seemed strange, as if he were trying to appear less intimidating.
 
-“You literally body slammed someone who was just talking to me.”
+Combined with jeans and a t-shirt, it was as if he were selling an image of casual uninterest, distinctly betrayed by the way his gaze focused on her as if she were prey.
 
-“Yeah, why?” Zoey’s smile widened and she looked back forward just in time to avoid tripping over a wheel chair.
+Naina was sure she was overreading it, though.
 
-Naina just shook her head and continued to laugh.
+Naina smiled.
 
-No, the “why” didn’t matter. Zoey was Zoey. Although Naina should likely at some point figure out how deep those possessive tendencies went, for everyone else’s sake.
+That was what you did to make friends, right?
+
+"You *are* Naina, right?" He cocked his head, leaning back on one foot.
+
+"Yes?" Naina paused. "Why?"
+
+The boy considered the question philosophically. "Curiosity. It's rare for Zoey's attention to fixate on anyone."
+
+"Rowan, don't play with your food. Eat the rabbit or leave it." A sharp voice sliced through the air, cutting through all semblances of social etiquette.
+
+This now felt like a sitting-up conversation, so Naina sat up.
+
+The girl appeared Hispanic, with sharp cheekbones, a button-down tucked into a midi skirt, and a rather expensive-looking sweater thrown over her shoulder.
+
+Naina didn't know much about clothes; she stuck to her comfy wardrobe. But this girl appeared to be dressed the opposite of the boy. Her outfit was clearly meticulously put together to sell controlled refinement.
+
+"Oh, Reina, our queen graces us with her presence." The boy, Rowan, bowed deeply, a move that didn't seem quite socially appropriate for the situation.
+
+Wait, was Naina called a rabbit?
+
+"I'm glad you're aware of your spot on the food chain, scavenger. But drop the sarcasm, it doesn't fit you. Stick to your pitiful jokes; at least jesters contribute value." The girl scoffed, continuing her pace unbroken.
+
+Naina couldn't help but feel that this had escalated quickly.
+
+"Oh! My dumb wit has garnered the attention of royalty! I'm honored." The boy laughed, and Naina could hear a faint growl come from Reina.
+
+"You're a disappointment to your parents, Rowan," Reina stated before exiting the building.
+
+The statement only seemed to make Rowan laugh, and his gaze returned to Naina.
+
+Naina had just witnessed a battle of alphas.
+
+Maybe the rabbit comparison wasn't too far off; she definitely felt paralyzed. It was less fear and more... not knowing what she could contribute.
+
+"Don't mind her. Listen, let me cut to the chase. There's a party for the few of us unimportant enough to not have summer plans. You want to join?"
+
+Naina studied Rowan.
+
+Was he asking her on a date? That would be silly.
+
+She wasn't really good at understanding the boundaries of flirtation. But at least Rowan had been direct about what he wanted, even if she was unsure of his intentions.
+
+Why Naina, though?
+
+She needed to know more.
+
+"Are you using self-deprecating humor as both a mechanism to protect yourself and to make yourself seem less imposing? That's really clever. The world can't hurt you if you beat it to it. Do-" Naina cut herself off.
+
+She probably should have asked about his goals regarding her joining at the party, not engaged in psychoanalyzing a stranger.
+
+Oops.
+
+Rowan paused, considering her assessment.
+
+His smile steadily broadened, almost hungry, and his eyes sharpened.
+
+Naina most certainly now felt like a rabbit that had caught the attention of a stray wolf.
+
+"Oh, Naina, you-" Whatever he was about to say got cut off by the door slamming open.
+
+"Rowan!" Zoey's voice cut across the room. The three other people scattered around the lounge all perked up.
+
+A blur of white and black fluttered by Naina's vision with a flurry of steps.
+
+Zoey's hip slammed into Rowan, leaving Naina blinking at the girl now standing in the spot he had occupied a heartbeat earlier. Rowan was on his butt a foot away, still wearing a grin.
+
+"Zoey!" The boy exclaimed with casual familiarity as he stood back up, pretending to brush dust off his clothes.
+
+Zoey's voice snapped through the room with a growl. "Not. Naina. Rowan."
+
+There was no swaying of the hips, no smile, no frolicking. Simply... a glare with clenched fists?
+
+This was a side of Zoey that Naina had never seen. A protector? Caretaker?
+
+"Ah! So she *is* taken." The boy winked at Naina.
+
+Taken?
+
+Naina couldn't help but think she was witnessing yet another battle of alphas. Had Zoey claimed her somehow?
+
+Was Naina a beta or an omega?
+
+She banished the thought before it made her blush.
+
+Zoey didn't respond to the boy. She simply continued to glare.
+
+"Understood, Naina's off limits." The boy's predatory stare remained on Naina while he retreated from the lounge.
+
+As soon as he disappeared, Zoey's demeanor shifted from protective pack-leader into her bubbly self. It happened in an eyeblink: hips swayed, the smile beamed, and a hand was extended to help Naina up.
+
+"Rowan seems nice," Naina stated as she let herself get helped up.
+
+"He's... not a bad person. He's like my cousin; he's only missing an Astrid. If I could get him and Reina in a room alone with one another..." Zoey trailed off as they began their trek towards her dorm.
+
+"You think those two would work?" Naina attempted to picture the ship. Two dominant alphas sometimes made beautiful chaos.
+
+"I'm sort of afraid of the results. They're closer to how Cale and Astrid *used* to be. Rowan's been fixated on me for a while, though. I spent all last year turning him down. Rowan, Reina, and her sister, Mia, are all pretty resistant to my involvement... I swear Mia and Asher work though..."
+
+The inner thought process of the matchmaker. Naina found it fascinating.
+
+Zoey literally shipped people, then positioned them to follow through.
+
+Real-life fanfic writing.
+
+"And you?" Naina asked as they approached the door.
+
+"Me?" Zoey fumbled with the key.
+
+"Who do you pair with?" Naina asked.
+
+Zoey didn't answer as they entered the room.
 
 **Zoey**
 
-A woman screamed, cowering in the corner of a dark alley. The tall dark silhouette approached, brandishing a knife. Suddenly a flash of light unveils the mystery stranger! It was the wolf man!
+A woman screamed, cowering in the corner of a dark alley. The tall, dark silhouette approached, brandishing a knife. Suddenly, a flash of light unveils the mysterious stranger! It was the WolfMan!
 
-“Why does a wolf man need a knife?” Naina asked. She was laying upside down on Zoey's bed, head looking back at the old cathode Ray TV. Zoey had a normal TV too, but they would switch this in for anything she had on VHS. Naina had not even known what VHS was and Zoey found that adorable.
+Zoey placed another fairy light up on the wall, held up with a taped-on hook. She looked over, making sure that it was lined up with all of the other hooks.
 
-Honestly Zoey found a lot of things about Naina adorable. Her mind seemed to engage that thought a lot. Like a *lot.* But she didn't let it linger, Naina didn't seem the type for romantic interests, and that was ok. She often would focus on the wrong parts of romance movies, who likes the *sad* parts? But it was all part of what made her *just* *the cutest*.
+It was not.
 
-“Do wolf men have the power of a man? Or the proportional power of a wolf?” Zoey was busy mounting fairy lights up to the tops of the walls. She had this movie memorized anyways.
+None of the lights were lined up.
 
-“Would the proportional power of a wolf be based on weight or on size?” Naina asked, eyes never breaking the screen. Zoey looked over, catching Naina poking her canines, “Come to think of it, I would expect many people to be stronger than wolves, we’re just not as predatory and have slightly less pointy teeth.”
+Satisfied, she moved to the next one.
+
+Naina lay upside down on Zoey's bed, her head dangling off the side, watching the old cathode-ray TV. Zoey would switch this in for anything she had on VHS. Naina had not even known what VHS was, and Zoey found that adorable.
+
+Zoey tried to count the things about Naina that were adorable.
+
+Naina's hair, her freckles, the way she liked to lie upside-down, the way she would hide her phone from Zoey's prying eyes. All adorable.
+
+She, of course, immediately lost count as she got distracted by... well, Naina.
+
+"Why does a WolfMan need a knife?"
+
+Zoey nodded her head slowly before engaging in the scholarly conversation. "Do wolf men have the power of a man? Or the proportional power of a wolf?"
+
+Naina postulated, "Would the proportional power of a wolf be based on weight or on size?"
+
+Zoey looked over, catching Naina adorably poke her canines.
+
+Naina continued, "Come to think of it, I would expect many people to be stronger than wolves; we're just not as predatory and have slightly less pointy teeth."
 
 The screen cut to a blob of what was obviously ketchup splashing on the ground.
 
-“So you’re saying the movie is accurate in that a WolfMan, not otherwise enhanced, might in fact need a knife?” Zoey tilted her head.
+Zoey tilted her head. "So you're saying the movie is accurate in that a WolfMan, not otherwise enhanced, might in fact need a knife?"
 
-“Maybe? I wonder if it would be scarier to have ManWolf, a ferocious wolf with the intelligence of a man.” Naina said it so analytically, like she was actually contemplating the practicality of a movie that was just about a super smart wolf.
+"Maybe? I wonder if it would be scarier to have ManWolf, a ferocious wolf with the intelligence of a man." Naina said it so analytically, as if she were considering the practicality of a movie about a super-smart wolf.
 
-Zoey considered for a moment. *Wait, actually that sounds really good, Zoey would watch that.*
+Zoey considered for a moment.
 
-The two of them had fallen into a routine. They had originally planned for it to be twice a week, but it quickly turned into two hours every day after their last classes. Well, somewhere between two and twelve hours. And that one night they just didn't sleep.
+*Wait, actually, that sounds really good. Zoey would watch that.*
 
-Many of the days they just co-existed. A movie would be put on, and they would do homework or Naina would read… whatever she read on her phone. She still wouldn't let Naina see what it was. Must be top secret documents. Maybe Naina had focus problems because she was too busy saving the world from her phone.
+Naina was smart like that; she knew things. It was also adorable.
 
-Zoey gasped, realizing the connection, “Naina!”
+Zoey placed another fairy light.
 
-Naina looked over, eyes wide at the sudden outburst.
+The routine had been good for both of them.
 
-Zoey had to fight a moment of panic. *She knows Zoey caught on! Does Zoey need to be careful?*
+Zoey was pretty sure Naina was intentionally waiting for her at this point.
 
-“You're also a secret spy working with my cousin! Am I your cover or your target?” Zoey exclaimed, pointing an accusing finger at Naina.
+She would "borrow" Naina for only about two hours a day.
 
-Naina blank a few times, finally saying flatly “What?”
+Well, somewhere between two and twelve hours.
 
-The phone in Zoey's pocket buzzed, she eagerly pulled it out, leaving Naina in her confused state. *More Cale updates?!* No, it was a group text with his parents. A video? She got off her stepping stool and sat at the foot of the bed, her head coming to a rest not far from Naina's upside down face. She held the phone up for both of them to watch.
+And that one night they sort of... just... didn't sleep.
 
-“Wait, that's Mimi Galaxy! Is this the concert from yesterday?” Naina took the phone, rotating it slightly so it was easier for her to see.
+Two hours, plus or minus.
 
-“I think Cale's parents were at it. You know her?”
+And now summer break was here.
 
-“Yeah, she was a previous… fixation.” Naina casually said, the smile on her face as she watched the pink haired girl dance across the screen sent flutters through Zoey's heart. She watched the video a few times, then passed the phone back.
+No classes.
 
-“There is a whole controversy. Some guy reportedly kissed her backstage. But the agency is covering it up. I think it's intentional propaganda to get her name out there.” Naina's smile persisted and she turned back to the movie.
+Which meant more time to sit and watch an adorable redhead read... whatever it was she was hiding on her phone while movies played in the background.
 
-Zoey melted, “Oh imagine it. A love sick stagehand, torn between two worlds.”
+Maybe Naina had focus problems, too, because she was too busy saving the world from her phone.
 
-She stood up, taking a dramatic pose with arms outstretched, “Mimi, I love you, but the public cannot know.” Naina watched with her upside down smile.
+Zoey gasped, turning to the adorable redhead in shock. "Naina!"
 
-She shifted, playing the shyly postured Mimi, “No! Takanuki! My image! Idols like me cannot know love!”
+How had she not seen this before? It was so obvious!
 
-Back to “Takanuki”, “But your singing, It has won my heart! I cannot live without you! Love cares not about public image!”
+Naina looked over, eyes wide at the sudden confetti-laden cannon burst of epiphany.
 
-Back to Mimi, “Oh, Takanuki! I can't hold myself back!” She turned from Naina and put her hands over her shoulders, mimicking kissing noises for a moment. She heard clapping coming from behind her, so turned and took a dramatic bow.
+"You're also a secret spy working with my cousin! Am I your cover or your target?" Zoey pointed an accusing finger at Naina.
 
-“That was better acting than in this movie.” Naina nodded towards the TV with a laugh, “Are you sure you're meant to be in fashion and not drama?”
+Naina blinked a few times, adorably, finally saying flatly, "What?"
 
-Zoey titled her head and frowned as she came out of the bow, “Why?”
+Zoey's phone buzzed from the table.
 
-Naina studied her for a moment, seeming to deliberate on how much she should say. Zoey was sure there was something very smart going in that brain. Naina was so cute when she analyzed.
+She hopped down off the stepping stool and left Naina in her adorable and confused state.
 
-“No. Actually fashion makes perfect sense. Clothes are cute.” Naina simply smiled.
+More Cale updates?
 
-Zoey nodded, “Yes. Clothes *are* cute. I’m glad we’ve established that.
+No, a group chat video from Cale's parents.
 
-In the back of her mind she knew though, Naina could see *her*. Not just Zoey, the clothes, the hair, the practiced and perfected smile. And despite knowing and understanding that side of her, a side that only Cale had ever seen, Naina still wanted to hang out.
+Zoey skittered over to sit at the foot of the bed, her head leaning back several inches away from Naina's. Zoey sighed internally at the warmth she could feel from the proximity of her friend's cheeks.
 
-Zoey returned to her stepping stool, cheerfully pushing on the next sticky wall mount.
+The phone was held up for both of them to watch. It took a few moments for Zoey to make out the masses of glowsticks and the dancing pink-haired girl on the stage.
 
-No, she didn't need romance for this relationship to be rewarding.
+Naina took the phone, rotating it slightly so she could see more easily. "Wait, that's Mimi Galaxy! Is this the concert from yesterday?"
 
-Though that wouldn't stop her from the occasional fantasy of her cheeks nestled in that soft red hair…
+The most adorable grin spread across her face.
+
+"I think Cale's parents were at it. You know her?"
+
+"Yeah, she was a previous… fixation." Naina casually said.
+
+They watched the pink-haired girl dance across the stage. The smile on Naina's face sent tingles through Zoey's body. Naina replayed the video a few times, then passed the phone back.
+
+Naina continued, "There is a whole controversy. Some guy reportedly kissed her backstage. But the agency is covering it up. I think it's intentional propaganda to get her name out there."
+
+Naina's smile persisted, and she turned back to the movie.
+
+Zoey melted. "Oh, imagine it. A love-sick stagehand, torn between two worlds."
+
+She stood up and scampered a few steps back, taking a dramatic pose with arms outstretched. "Mimi, I love you, but the public cannot know."
+
+Naina watched with her upside-down smile.
+
+Zoey shifted, playing the shyly postured Mimi. "No! Takanuki! My image! Idols like me cannot know love!"
+
+Back to "Takanuki". "But your singing! It has won my heart! I cannot live without you! Love cares not about public image!"
+
+Back to Mimi. "Oh, Takanuki! I can't hold myself back!"
+
+She turned from Naina and put her hands over her shoulders, mimicking kissing noises.
+
+She heard clapping coming from behind her, so she turned and took a dramatic bow.
+
+"That was better acting than in this movie." Naina nodded towards the TV, laughing. "Are you sure you're meant to be in fashion and not drama?"
+
+The laugh made Zoey's heart skip - it was fine; it would race later and make up for the missed beat.
+
+Zoey tilted her head and frowned as she came out of the bow. "Why?"
+
+Naina studied her for a moment. Zoey was sure there was something very smart going on in that brain. Naina was so adorable when she analyzed.
+
+"No. Actually, fashion makes perfect sense. Clothes are pretty." Naina simply smiled.
+
+Zoey nodded. "Yes. Clothes *are* pretty. I'm glad we've established that."
+
+In the back of her mind, she knew that Naina could see *her*. Not just Zoey. She saw through the buttons, the patches, the stitches. She saw the rags that sat beneath.
+
+And despite knowing and understanding that side of her, a side that only Cale had ever seen, Naina still wanted to hang out.
+
+It was easily the most adorable part of Naina.
+
+Zoey returned to her stepping stool, cheerfully pushing on the next sticky wall mount. She stole a glance back at the adorable redhead just to make her stomach flutter.
+
+She wondered often if Naina felt those same flutters.
+
+It didn't matter.
+
+Zoey didn't really want more; they were both happy. Naina was unique, and Zoey knew that. She didn't... see people the same way. And that was OK.
+
+Besides, as established, Zoey wasn't worth it.
+
+Zoey banished that uncomfy thought with comfy fantasies of her cheeks nestled in soft red hair.
+
+Fantasies of a Zoey that deserved a Naina.

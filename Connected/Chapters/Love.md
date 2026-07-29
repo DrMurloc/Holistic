@@ -1,149 +1,249 @@
+**Zoey**
+
+"Are we there yet?" Zoey asked.
+
+"No," Naina answered.
+
+Zoey took another few steps up, guided by her redhead through the darkness of the blindfold.
+
+"Are we there yet?"
+
+"No."
+
+It was Valentine's Day.
+
+And Naina had *schemed*.
+
+Zoey's arms trembled with energy, her legs barely holding her up as they climbed a flight of stairs.
+
+"How about now?"
+
+"Yes."
+
+Zoey bounced, almost ripping the blindfold off.
+
+"What!? Really?"
+
+"No."
+
+Zoey beamed as she continued to follow her girlfriend. "Naina! You're getting so good at lying!"
+
+"I don't think that's something to be proud of," Naina said.
+
+"I'm proud of you." Zoey nodded, not sure if Naina was even looking at her.
+
+She could hear Naina's step falter, and her hand tightened on Zoey's.
+
+The creaking of a door brought with it the hair-raising brisk air of February. Zoey was quite comfortable in her sweater dress. She was sure Naina's four layers underneath a puffy coat were more than enough for her.
+
+"Wait, are we on the roof?" Zoey asked.
+
+"You should look to find out," Naina said.
+
+Zoey's heart pounded as she ripped the blindfold off, and her eyes immediately widened in wonder.
+
+A small plastic bubble, barely large enough for the wooden table and two plastic chairs it encompassed, rested up against the stone ledge of the rooftop. A single fake candle lit the space against the encroaching evening darkness.
+
+In the center of the table sat two bowls of what appeared to be ramen; the steam rose as mist, leaving condensation on the top of the bubble.
+
+The squeal that erupted from Zoey's lips likely turned heads across the campus that surrounded them.
+
+"I thought you would like it," Naina said with a broad grin, placing an arm around Zoey's waist.
+
+"It's *perfect*!" Zoey threw her arms around her adorable redhead. She peppered her face in kisses, leaving Naina slightly dazed with the cutest smile.
+
+Zoey let go and ran forward, but came to a screeching halt, tilting her head and studying the plastic bubble.
+
+"Wait, where did you get all the supplies?"
+
+"Rowan," Naina said as she approached from behind.
+
+Zoey looked at Naina over her shoulder. "Naina! Did you manipulate Rowan into stealing school supplies for a scheme?"
+
+Naina shrugged. "I mean, does it count as manipulation when he seemed to find the idea hilarious?"
+
+"Yes."
+
+"Then yes. I manipulated Rowan into stealing school supplies for a scheme."
+
+Zoey's entire body wriggled with joy at the idea of Naina breaking rules. She flung herself back at the girl and embraced her with a renewed barrage of kisses.
+
+"Happy Valentine's Day, Zoey," Naina laughed.
+
+"Happy Valentine's Day," Zoey agreed, nuzzling her cheek against her redhead.
+
 **Hawthorn**
 
-Hawthorn laid in the large bed, wearing nothing but a robe, listening to Asuna sing. The light rain created a steady and soothing rhythm on the mountainside cabin’s roof. The cracked open window looked out at the private open-air onsen, overlooking the endless stretches of forested mountains in Hakone.
+Hawthorn lay on an oversized bed, enveloped in the soothing blanket of Asuna's crooning voice.
 
-It was brisk outside, but Asuna sat naked on the edge of the onsen, staring out into the wilds, working through a melody she had been crafting. It was the most beautiful sight Hawthorn had ever seen, he almost was tempted to take a picture. The way the wooden overhang framed her petite body, the warm condensation from the hot spring warping the air behind her. Drops of rain added a layer of silent contemplation to the moment.
+Through the open glass door of the wooden cabin, he could see her, perched naked on the edge of the open-air onsen, serenading the mountains of Hakone in a song too serene for the world to deserve.
 
-They were going to be in the US for a few months soon. The Japanese branch was self-sustaining beneath Kenji. They had a few months of venues lined up for Asuna Starlight after Cale and Astrid’s wedding, during which time they would find core staffing to get their American branch started. It was going to be a busy year.
+A light drizzle provided a calming backdrop to the perfect image, dripping off the leaves of the surrounding forest.
 
-The wedding was going to be big. It would be announced that Mimi Galaxy was no more, and Asuna Starlight would have her first public debut. Cale and Astrid had enthusiastically accepted an exchange of publicity for Project Galaxy to cover part of the venue fees.
+Hawthorn stared with an affectionate smile. He was almost tempted to take a picture. However, any attempt to digitally capture such an impeccable moment would surely be futile.
 
-As her song ended, Hawthorn got out of bed and slid open the door outside, causing a minor disruption in the picturesque moment as Asuna turned to him. Hawthorn dropped his robes near the onsen, and slowly stepped in. Asuna turned and lowered herself next to him, curling up into his arms.
+As her song trailed off, echoing into the valley below them, Hawthorn finally rose, letting the robe he wore slip off behind him.
 
-“I saw you were deep in thought.”
+"Deep in thought?" he asked as he approached the onsen. Heat from its surface rose in thin waves of mist.
 
-“Do you think we could bring maid cafes to Paris?” She asked.
+"Do you think we could bring maid cafes to Paris?" Asuna asked without breaking her soft smile.
 
-He laughed, “I’m pretty sure *you* could bring maid cafes to Paris. One of these days you’ll take a real vacation. I guess Valentine’s day is not enough to stop that brilliant mind of yours from racing.”
+Hawthorn snorted and lowered himself into the water. It rose up around his body, fighting off the cold offensive of the late winter air.
 
-“Oh, is it Valentine’s day? I didn’t realize it was February. That explains the romantic getaway.” She rested her head on his chest.
+"A very Mimi idea," Hawthorn noted.
 
-“Since we're talking business, how confident are we in next week?”
+Asuna grinned and slid down next to him, causing the water to rise to the edge and spill lightly onto the wooden floorboards.
 
-“Are you worried about me or Harin? She's ready. I actually think she's going to upstage *me*. Which is what we want for a last Mimi appearance. Make the audience think I'm washed up.” He could feel her smile.
+"You finally figured that one out?"
 
-“No regrets?” He asked.
+"I had a hunch early on when she spent an hour looking for the microphone that was in her hand."
 
-She lifted herself onto the submerged ledge in a kneeling position, placing her head perfectly level with his. She pressed her lips up against his briefly.
+Hawthorn wrapped an arm around her waist as she laughed softly.
 
-“Not a single one.”
+He continued, "But, I'm pretty sure *you* could bring maid cafes to Paris. One of these days, you'll take a real vacation. I guess Valentine's Day is not enough to stop that brilliant mind of yours."
 
-**Naina**
+"Oh, is it Valentine's Day? I didn't realize it was February. That explains the romantic getaway." She rested her head on his chest.
 
-Naina laid upside down on one of the couches in the dorm lobby. Zoey sat on the floor next to her, playing with her hand, while “Will They Won't They 2” played on a big screen.
+The continued beat of the drizzle against the wooden overhang was met with the chirping of some nearby insect. Asuna and Hawthorn simply gazed out over the clouded valley, watching the mists drift slowly along the forest.
 
-Zoey had convinced the school to run romance movies the entire day. There had been a handful of couples that stopped by in and out. But Zoey and Naina had been here all day.
+"No regrets?" Asuna finally asked, turning her beautiful, grey eyes up to meet his.
 
-“I mean, I get naming one of the characters ‘Will’, but ‘Wont’ isn't even a clever name. It's like they were more interested in the title than the movie.” Naina observed.
+Hawthorn smiled, planting a soft kiss on the second love of his life.
 
-“I think it's cute, I just don't know how you get a whole second movie on the premise of two people that by definition won't end up together.”
-
-“Isn't that just what most Anime is?” Naina offered.
-
-Zoey thought for a moment, “Oh. I guess you're right.”
-
-Naina had been worried that after the confession everything would change. Would they need to be more physical? How often were they supposed to kiss? There was so much about other people's relationships that just didn't seem right for them, and that had scared her.
-
-To her relief, the answer was that nothing really changed. Zoey would kiss her when she felt like it, and they were even less reserved about cuddles and hugs. But they more or less were just best friends with commitment. It felt like exactly what Naina needed, and she loved that.
-
-“I do have to say, I expected you to go bigger for Valentine’s day.” Naina said.
-
-Zoey looked back, head tilted, “Bigger?”
-
-“I don't know. Grand.”
-
-“Grander than spending twelve hours roasting the best romance stories of our era with the girl I love?” Zoey smiled and squeezed Naina's hand.
-
-Naina's face warmed, “I… oh… I'm still not used to that word.”
-
-“I know and it's so *cute*.” Zoey squeezed Naina's arm to her chest, shaking her body with energy.
-
-Yeah. This. This is what Naina had always needed. No pressure, no complexities, just someone to share her life with.
-
-Naina turned her head back to the movie as Zoey got up to mime the upcoming scene. She had a small audience of about three couples to cheer and egg her on. Naina smiled, watching from the corner of her eyes.
-
-She still didn’t really have an answer for what they were going to do in three months after graduation. Zoey supposedly had a job lined up with costuming back in LA. Naina suspected they would end up in Meredith’s house until they got their feet on the ground. That woman seemed to be acting as a stand-in mother for Zoey who didn’t seem to want to talk about her real parents very often.
-
-It wasn’t a thorough plan. It was still full of big gaping holes of unknowns. But they would solve those together, and the confidence in that was more than enough to keep Naina focused on tackling each new day.
+"Not a single one," he whispered against her lips.
 
 **Sho**
 
-“At the end, it does the staircase pattern, it’s going to be weird but just step forward naturally. You won’t step on me.” Sho said, pointing down at the pads in the path he suggested. Lara nodded enthusiastically.
+Sho wandered.
 
-They were playing two person charts on Pump ManiaK for the day. It had been Lara’s suggestion for Valentine’s day, she thought it was too cheesy but Sho had loved the idea. She had been getting better at the game, and he loved seeing her channel her love for learning into a game that was important to him.
+He strolled along a large, flat fountain. Several children ran in various directions, chasing wooden sailboats across the still waters. Green, metallic chairs sat scattered across the gravelly ground. Most remained empty, but several couples staked claim to their own personal bubbles.
 
-The song started, and they fell into step. For the most part it just mirrored their parts on each side, and would occasionally have one of them move in front of the other, or switch sides. The charts were never terribly complex, there was only so much you could do with two people on the pads. But it was a fun gimmick, and in his mind, with her specifically, it was as intimate as dancing.
+Lara was almost indistinguishable from the children, weaving from boat to boat and capturing endless pictures of the sprawling Parisian garden.
 
-The combo dropped quite a few times, it was easy to misstep when you were needing to account for another person being on the pads, but the score didn’t really matter. The ending he had referred to came up, it had him stepping backwards across the pads while she mirrored each step forwards. He could see the look of anxiety on her face as she awkwardly placed each step, it *was* designed to make you feel like you were about to step on the other person’s foot.
+Sho had never been much for wandering, but he was quickly learning to love it.
 
-The song ended, and she cheered at having been able to combo the ending. The chart left them standing face to face. She turned her head from the screen and grinned at him, giving him an embrace and a quick kiss before hopping off the pads.
+It was still somewhat intimidating, but it helped when he travelled with his home.
 
-“Excited for tomorrow?” Sho asked.
+Lara rejoined him, slipping her hand into his and interlacing fingers.
 
-She nodded, “I think I’m ready. I don’t need to play any games or anything tomorrow, debut streams are mostly just talking. The rest of the week is going to be almost nothing but gaming.”
+"So where does it rate?" Sho asked in Spanish.
 
-He smiled. He knew she had been watching endless debuts of other V-Tubers to figure out what had and hadn’t worked for them. She would do great, she learned fast.
+Lara contemplated, her head nodding briefly before a wide grin spread across her face. "It's almost unfair to compare the rest of the world to the gardens of Paris. Tokyo during cherry blossoms wins, though. Architecturally... Rome, of course... but it's like this city was just *built* for its gardens."
 
-They were set up in Los Angeles for the time being, staying with Lara’s dad. Sho still didn’t quite understand the process and rhythms of Diego and Lola, but he suspected he didn’t need to understand it.
+The energy he felt through her hand as she spoke helped fight off the chill.
 
-Sho had picked up a contract with a local theater to help organize and maintain their back-of-house. It was enough to keep his green card, that’s all he really needed. There was a lot that he still needed to figure out with this travelling thing, but Lara had figured it out so he wasn’t terribly worried.
+"I am excited for Rome," Sho said. It would be her first return-trip city. Sho had a hard time believing fountains could be so exciting, but was ready to be proven wrong.
 
-A familiar boy walked into view, Sho leaned, trying to remember where he knew the boy from. Their eyes lit up upon seeing Sho, and they shouted, “Neko!” It was the Tournament Organizer from the convention: Murk, if Sho remembered correctly.
+"We should stop by Croatia while we are down there. They have a *sea organ* that lets the ocean *sing*! Each island has its own microculture. Different wine, different myths, different social expectations!"
 
-They ran over and said a string of words in English. Lara and Sho exchanged glances, and she held out her phone. Murk smacked his face then began to type, “I didn’t expect to see you here. Are you here for a while today? I have friends that would love to meet you.”
+Sho laughed. "You make it sound like it's just like stopping by a convenience store."
 
-Neko and Sho shrugged at each other. Murk was off to making phone calls and sending off texts instantly.
+Lara returned the laugh. "It sort of is. You get used to it."
 
-“Are we going to get this in every country we go to?” Lara asked in Japanese.
+Sho was looking forward to getting used to it.
 
-“Unfortunately, maybe I need to have an alternate personality like Mimi and Asuna. Honestly with your new job requiring *you* to keep your identity secret we both could benefit from learning to be low profile.”
+He still had no plans.
 
-They laughed and grabbed hands, followed Murk off as he led them to whatever the rest of his friends were meeting.
+He had no clue what he was going to do with his life.
 
-**Leo**
+But he knew that right now he was exactly where he needed to be.
 
-Leo laid in bed staring at the ceiling. He refused to acknowledge this day’s existence. Valentine’s day’s very existence felt oppressive. It had been almost a month. A *month*. He both couldn’t bear to face the facts and couldn’t get them out of his head. Work slowing down meant he didn’t have as much of a distraction either.
+The two turned away from the fountain, towards a tunnel of trees that guided them off into the well-lit city. The distant setting sun began to cast shadows that reached out to pull the couple into a romantic evening.
 
-His phone buzzed, from Murk, “Neko is here! Come hang out!”
+"Do you think Paris has maid cafes?" Sho asked, attempting to think of what could top off their first Valentine's Day episode.
 
-Leo typed back, “Star?”
+Lara shook her head with a laugh. "Probably not? Maybe it should."
 
-“I haven’t heard back from her but I don’t think so, you should be in the clear.”
-
-He didn’t want to go out. If she was going then maybe…
-
-He stared at his phone, and forced himself to type out a message to May, “Hi. I hope you’re doing well. You going out with Murk and Neko?” He reluctantly hit send. Everyone kept telling him to just message her. Like it was that easy.
-
-He didn’t expect a response though. He returned to staring at the ceiling.
-
-**May**
-
-May sat alone in a very nice steakhouse, almost feeling intimidated. Her thoughts flashed back to Leo’s birthday dinner. How was this different? She wasn’t intimidated then, was she? The answer, of course, was because she had him there. They shared their anxieties and made the normal world seem easy. But here she was, in an environment she was not very familiar with, about to meet a guy she knew nothing about other than he did yoga.
-
-Her phone buzzed, she looked down at it, it was Leo, “Hi. I hope you’re doing well. You going out with Murk and Neko?”
-
-She of course wanted to do that. Could she just leave and ghost this person? She would just be a story of “that crazy bitch who no-showed me on Valentine’s Day”, she could live with that. She so desperately wanted to spend the day with Leo.
-
-She pushed the chair back, deciding to leave. Just as she did, Brad entered and flashed her a smile. *Fuck, what am I doing?* She put on a fake smile and hugged the man, before sitting back down.
-
-This was the wrong move. She was doing it again. She knew it. But she couldn’t stop it. She wished she could at least bring up the effort to message Leo back, saying that she wished she could go but had other plans. But she didn’t want to hint at Brad’s existence, let alone essentially say “I’m on a date.”
-
-So she gritted her teeth and proceeded to listen to Brad list off his stock portfolio like it was this morning’s grocery list.
+Sho nodded in contemplation and pulled out his phone, searching for their next stop.
 
 **Cale**
 
-Cale swayed, holding the love of his life, the city stretching out seemingly endlessly in all directions. Lola had hired a live band, which was playing a steadily paced piece specifically designed for slow dancing.
+"You are *immaculate*. Stunning. Pristine," Cale whispered.
 
-Astrid's head rested on his shoulder, breathing steadily. Her ring hand was up on his other shoulder and he knew she was watching it.
+Astrid gave a soft hum of approval into Cale's ear as the two swayed to light jazz, embraced in front of an admiring audience of stars. Lola's had emptied, but the two of them were left uninterrupted in their own private bubble while Diego and Marcus closed.
 
-Neither of them said anything, they just swayed. Cale could see Lola frantically trying to keep up with the bar. It was ironic to him that the one night when couples would need the most advice, the best source of that advice was underwater on drink orders.
+Cale could sense Astrid's soft smile without needing to look.
 
-The song ended, and Astrid pivoted her head to kiss him. He leaned into the kiss. There were no jokes here, no teasing, no fake fights. Just experiencing life together.
+"You've used all of those before," Astrid noted, to Cale's delight. He had prepared for this one. Astrid, of course, was giving him softballs.
 
-They pulled back from the kiss Astrid broke the silence with the three most important words that they vowed to never stop saying to each other, regardless of what life threw at them.
+"There aren't enough words in the English language to capture your perfection; my praise is prone to repetition. Let me adapt: urawashii, preciosa, bozhestvennaya, anmutig, affascinante, juéměi, formosa. The Greeks have a word that almost fits: kállos. It is the philosophical representation of the perfect form. However, it still falls short, as I doubt the ancient Greeks could even conceive of your sublime transcendence that graces this mortal idiot."
 
-“I love you.”
+Cale felt her hand pull lightly against his lower back. It was a light touch of possessiveness, but from Astrid it spoke volumes.
 
-Cale smiled and pressed his forehead to her, “I love you too.”
+"Sublime, there's a new one. It is acceptable. A rather derivative, I might add; I already used the 'languages' bit. Also, a touch scripted?" she whispered back.
 
-They slowly returned to their table, needing to let reality seep back in as wedding planning reared its ugly head. And boy, was it a big one.
+She really was playing on easy mode tonight; Cale appreciated that.
+
+He'd rather his focus be on the fact that after almost a year, with ups and downs, her body still melded to and clung to him like he was her property.
+
+"Of course. It would take a team of scholars and the world's greatest poets lifetimes to appropriately catalog your spellbinding apotheosis. This neanderthal has had less than a decade, free-form would simply not be sufficient."
+
+Astrid gave a snort, though he could still hear her smile. "Spellbinding apotheosis? Please, Cale. Next, you'll be saying heaven lost an angel."
+
+Cale placed a kiss on the nape of her neck, finding deep satisfaction in the way it bristled. "They weren't even mad; they knew they never deserved you in the first place."
+
+Another snort.
+
+"You're an idiot."
+
+There it was.
+
+An unspoken "good game, well played" was exchanged in the form of a soft kiss, and the two made their way to the exit.
+
+**May**
+
+What the fuck was she doing?
+
+The nauseating murmur of couples engaged in *small talk* at neighboring tables enveloped her in the dimly lit restaurant. The noise was accompanied by the steady buzz of whatever dumb bullshit escaped the mouth of May's date: Brad.
+
+Above the table, May wore her teacher's smile. It was exhausting, and she swore the muscles would snap at any moment.
+
+Below the red-tableclothed table, her fists clenched and unclenched, though she was unsure if the source of the anger was herself or this date.
+
+May was sure Brad was talking about some bullshit spiritual journey, claiming that yoga changed his life by motivating him to invest in cryptocurrency. Or how gluten levels in steak sauce were on the rise. Whatever the hell normies talk about.
+
+She didn't hear any of it.
+
+All that could fit in her head was a mess of blonde hair and blue eyes.
+
+And how she had left him.
+
+In the cold.
+
+Alone.
+
+The server stopped by with their bottle of champagne.
+
+May forcibly broadened her smile at the disgusting slop, stretching her muscles to their limits while digging nails into her palm. Who buys *champagne* for a first date?
+
+What the fuck was she doing?
+
+**Leo**
+
+Leo's phone buzzed.
+
+It buzzed again.
+
+And yet again, it buzzed.
+
+The noise simply passed through Leo, existing in a frequency of reality that he simply wasn't in.
+
+His bedroom was dark, the blackout curtains holding back the unbearable assault of daylight. Lines of empty soju bottles surrounded his bed—fallen soldiers that had accomplished their task.
+
+Leo was the picture of freedom.
+
+He lay sideways on his bed, knees curled up, eyes leveled on a small chip in the paint of his wall. An oversized hoodie served as his blanket, while the sheets and comforter sat in a laundry bin he knew would never get cleaned.
+
+Leo had found "simple".
+
+This was *simple*.
+
+There was no processing. No contemplating of what anyone wanted. No need to solve anyone's problems. No need to worry about why he seemed *fundamentally* unable to craft even a *single* one of those solutions.
+
+All that the deep fog of inebriation left him capable of holding in his head was an image of an obsidian ponytail swaying lightly above the graceful motions of toned legs.
+
+There were no tears. Why would there be? Why would you cry when you were finally *free*?
+
+His hand fell to the side of the bed, searching for a bottle that still contained some of the precious liquid.
+
+His heart gave a brief beat as he found a bottle with weight, and he drank it back, continuing his glorious journey of complete and utter freedom.

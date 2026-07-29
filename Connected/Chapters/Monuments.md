@@ -1,69 +1,167 @@
 **Lara**
 
-Lara slowly walked along the river. She felt like an empanada, stuffed between layers of clothes to hold off the crisp late December air. She kept a mitten off, hand stuffed in a pocket. Just in case Sho messaged.
+The wide, still river expanded out along the path that Lara paced.
 
-The trees here were so bare compared to the last time she saw them. The lack of Sakura blossoms, replaced with empty dead stillness seemed to only compound on her already increasing insecurities.
+Sections were frozen, mirroring the motionless air and mostly empty streets of the expansive city.
 
-Her mom was doing fine, and even had several positive reports that had them both in better spirits. But she was still in and out of the hospital.
+Breath coalesced into mist.
 
-Lara distracted herself with gaming, she would practice talking to a stream. The multitasking was difficult, she seemed to find banter easy, and she already had been an OK gamer, but both at once was difficult. She had a few months to sort it out.
+Underneath her multiple layers, she felt like a hot tamale wrapped in a thick banana leaf. One mitten remained off, hand stuffed in a pocket, just in case Sho messaged.
 
-And Sho…
+It was late for him —too late to be messaging —but the hope was enough for Lara.
 
-She pulled out her phone. Her last “I love you” last night was read but had no response. He was clearly busy, but he refused to say with what. Had Project Galaxy signed him up for a secret project too?
+The trees lining the path were bare, and very few others braved the brisk December air. It was quite the contrast to the last time she had been in DC. Sakura blossoms had dominated the landscape, attracting hordes of visitors.
 
-Even when they did talk, it was strange. Their entire relationship had been built around messages on a phone, but this was different. It was like the connections weren’t the words, but the physical reactions. The way his eyes widened in such an overly exaggerated way to communicate a sarcastic response, the nervous laughs and movements to backtrack something he said wrong… She sometimes wondered if they hadn’t even needed the phones in the first place. But all of that was missing now. The devices once used to open their worlds up to each other were now the very devices that throttled them.
+Her mom had been relatively well-behaved.
 
-They tried a video call once or twice, it just… wasn’t the same. But she did like getting to see his face. Often poor connections would interrupt touching moments, and the videos just left her mind lingering on that last night of connection… the warmth of his embrace.
+But every time Lara began to let her guard down, to open up, conversations would shift to her Dad.
 
-That *had* been a promise they made to each other, right? Not a last hurrah? It had felt like he had taken it that way too, but even phone translators were prone to misinterpretations.
+So she would escape.
 
-He of course wouldn't be awake right now. It was the middle of the night there. She put the phone away. She paused, looking out over the river at the distant monuments. They stood strong as a testament to something permanent; something immovable. Did she need that? She had built her entire life around fluidity. Granted she was still very young, and the whole goal of leaving was to figure out what she wanted. Did she want stability? Did she want that anchor?
+Fortunately, the area had many such opportunities for such an escape.
 
-She could return to Tokyo, she *would* return to Tokyo. But even then it felt like it needed to be a short stay. Her managing to luck out on a job that would allow her some freedom in travel seemed to be the universe nudging her on that conclusion.
+She just wished it wasn't so cold.
 
-Her phone buzzed, and she pulled it out. It was him! She rapidly pulled open the message, “How are you?” He had sent.
+A month and a half of long-distance made so much of their time together feel like a different life. The memories of his arms wrapped around her, the kisses, the laughs, the food, the experiences...
 
-Strange. It was a more general question than he would normally open with. Were they falling back to pleasantries?
+Could those possibly even have happened?
 
-“Lonely.” She responded.
+She paced through the series of monuments and memorials. Honor for the lost, the events of the past cemented in marble, concrete, and stone. They were so... permanent, comforting.
 
-His message came back almost immediately, “Me too.”
+When did permanent become comforting to Lara?
 
-She could see the dots indicating him typing for a long while. She smiled, even this small thing, knowing he was likely writing and erasing a message a hundred times, filled a large piece of connection that she had simply been missing.
+Did Sho instill that in her, or was it what she was out looking for in the first place?
 
-Finally the message came through, “What are you doing for the next few weeks?”
+Lara supposed the answer didn't matter. The fact was that she was still emotionally attached to her anchor, and she felt the powerful tug of it from across the entire world.
 
-Was he hoping she would come back out? She desperately craved to go back out for just a week.
+She stopped, her eyes landing on a curled-up ball of fur perched on the long obsidian wall beside her.
 
-“In two weeks I’m going to Gamfest.” She sent him a link. It was one of the largest conventions on the East Coast for gamers. She didn’t really have friends to go with, but she wanted to get videos and pictures for her channel. It apparently was quite the experience.
+A cat?
 
-It was a few minutes before Sho responded. He probably wanted me to come back, maybe I can return after the event for a few weeks… Mom will be ok. It was an expensive trip to make for just a few kisses and hugs, but it would be worth it.
+In the winter?
 
-“That looks fun.” The response was so straightforward. She sighed. He was still distracted. Still, he was showing interest in her.
+It was sunbathing, which made sense, but it was still an unusual sight.
 
-“They have Rhythm Game tournaments too, you would love it. A lot of music, dancing, and the arcade is supposed to be massive.” She wrote back.
+Its head lifted and turned, watching Lara from above the names of the fallen.
 
-He typed for a while, “That sounds like a lot of fun.” He sent a few smiling emojis with that. She hated this, she needed to read his face. She was getting in her head over the simplicity of a few responses.
+Lara smiled.
 
-She decided, “Neko, I think I’ll come back for a few weeks after the event.”
+She was too short to reach up and pet it, but something about its presence helped fight off the encroaching chill.
 
-The response was immediate, “No!”
+Her phone buzzed, and her bare hand flew out of her pocket to navigate her messaging app almost instantly.
 
-She almost dropped the phone, coming to a halt. No? No?! She suddenly felt like the ice cold air seeped through her layers, her entire body almost going numb.
+*"How are you doing?"*
 
-Sho was typing still, she watched unmoving, wondering what could possibly clarify such a sharp rejection “Not yet. I can explain later.”
+Sho was messaging at three AM? He wasn't really the type to stay up late, except with Lara...
 
-What… What did that mean? Not yet? Why couldn’t he explain now? She hated this! This damn phone, she wanted to throw it in the river and hop on the next flight back to Tokyo.
+Had he found someone...
 
-“I don’t understand.” She finally responded.
+No.
 
-“Enjoy the event. I am busy for a few weeks. I’m sorry.”
+Lara kicked the thought overboard. She trusted him; it was one of the reasons she fell for him.
 
-There was a pause, then he sent, “I love you.”
+But then why text now?
 
-The cold was fought off with that one word. She was being dumb. He would be there for her when she returned, even if it was a few months out. She still wished he would tell her what he was up to.
+Was he lying in his bed with his own anxious thoughts?
 
-She typed back, “I love you.” and put the phone away. She took a deep breath, accepting some of the sharp bite from the air. She was fine. They were fine. She had to just keep saying that.
+Did a concert keep him out late, and only now did he get a chance to respond?
 
-She continued her walk, thoughts turning to if she would be seeing the cherry blossoms here or in Tokyo this year.
+He hadn't picked up earlier in the day, which Lara did her best not to overthink. Maybe he had been busy.
+
+Lara cut through any further thoughts, responding, *"I would be better if you were here."*
+
+Wait, would he think that was her pressuring him to come out?
+
+If they were in-person, he would be able to read her and know it was merely another way for her to say "I miss you", but she couldn't convey that tone in text...
+
+The three dots indicated that Sho was typing back.
+
+He took his time typing, and the dots disappeared several times. Lara watched with bated breath.
+
+After *all* that typing, the response was simply, *"I know. I'm sorry."*
+
+Lara growled, almost throwing her phone. She wanted to scream and smash the damn device to pieces, incinerate them, and feed the ash to the worms.
+
+This device used to be her point of connection to the boy she loved; it was their lifeline, the mechanism that enabled them to communicate.
+
+And now all it did was let through hollow, contextless words that could mean anything that Lara's anxious mind could make up.
+
+This wasn't communication.
+
+Communication... was... messy.
+
+It was... organic, unstructured...
+
+This was a pitiful shadow of the meaningful exchange of emotions and life that came with a real-world human connection.
+
+As if Sho read her mind all the way across the world, the phone rang.
+
+"Sho!" Lara exclaimed, beginning a steady circular pace under the watchful gaze of her feline friend.
+
+"Lara, sorry. I wanted to call earlier, but I was busy."
+
+He wasn't putting effort into keeping his words from slurring. It didn't bother Lara; she loved his voice. However, it meant he was exhausted.
+
+The observation wasn't enough to keep her excitement from bubbling up and spilling out of her mouth.
+
+"No! It's ok! It was a long day. My mom spent all day trying to explain to me that I'm basically selling my body online. She doesn't understand the concept of the "V" in V-tuber. She thinks it stands for something else. But it's... oh... wait, sorry, I missed you."
+
+"No! Don't apologize! I like your voice. I think about it all day. I missed you, too."
+
+The warmth that spread through Lara made her question if she had *too* many layers on.
+
+"Are... are you ok? You were texting less," Lara asked.
+
+There was a pause. "Yes. It's good. Everything is going to be good."
+
+What did that mean?
+
+Before Lara could ask, Sho continued, "Where are you in two weeks?"
+
+Lara checked the date before responding. "Oh! There's an event. Gamfest. There are arcade games and board games... The cosplay is supposed to be very high quality, and I'm really excited to get photos. You would love it! It's like the perfect combination of modern subcultures. I can't wait to see it!"
+
+She forced herself to pause, giving Sho a moment to get a word in.
+
+"Oh."
+
+Oh? He sounded disappointed. Or was that just tired? Even with voice, Lara was struggling to read him.
+
+The words left her mouth before she could think them through. "Actually, maybe I'll come back for just a week. Mom will understand, I-"
+
+"No!" Sho said sharply.
+
+It felt like the cold cut through every piece of barrier that Lara wore, creeping in and grasping her by her bones. The air froze her lungs.
+
+No?
+
+Lara looked at her phone as if Sho could see the incredulity that dominated her face.
+
+"No?" She finally asked.
+
+"What I mean is, I searched for the event you mentioned. It looks fun. The tickets are non-refundable and expensive. Don't miss that."
+
+Lara supposed that made sense.
+
+"It has rhythm game tournaments! You would have fun there," Lara stated. "Wait, not that I'm saying you should come here! Although I would love it if you did. But..."
+
+Sho didn't immediately respond. "I'll look into it."
+
+"No! Sho, you would have to get a passport, which is complicated and takes longer than two weeks. I'll be fine! I swear." Lara lied.
+
+She had never felt so lonely in her own bed in her life. It was only another month or so, though.
+
+Sho paused again, then responded, "I need to go. I just wanted to hear your voice before sleep. It was a long day. A long week. It's been a long month. I miss you."
+
+"I miss you too," Lara sighed.
+
+"I love you."
+
+The word caused the battery powering Lara's heart to fill to bursting. The cold receded, and her lungs thawed.
+
+"I love you," she returned, finally finding a smile that had been missing all day.
+
+Sho hung up, and Lara returned her hand to the pocket, still without a mitten.
+
+Once she returned to Sho, there would be nothing holding them back. This was merely an obligatory maintenance stop for Lara, and she knew it. They would figure things out; she had faith.
+
+Lara continued her walk through the monuments under the faithful protection of her black cat.

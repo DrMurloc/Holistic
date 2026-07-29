@@ -1,229 +1,507 @@
 **Lola**
 
-Lola scanned her bar. The Pitari twins were still fresh on drinks. A group of men in suits she hadn't gotten names from balled up at the corner of the bar, still above the halfway mark on their beer. She saw Marcus greeting Cale, who was that girl? She was *delicious*. Would Lola finally get to meet the famous Astrid?
+Lola basked in the murmurs and ruminations of worship.
 
-It was a good night. The vibes were good. The glass lined walls overlooked the city, a bright moon hung over the distant lake. The cocktail servers looked to be on top of things on the floor, and she noted food coming out of the kitchen at a healthy pace. *That new line cook is working it, perfecto.*
+She stood surrounded by her altar: a walnut countertop encircling an island of communal offerings. The offerings were, of course, poison: an assembled choir of vodka, tequila, whiskey, you name it. Whether you came for escape or confession, Lola had your forbidden apple.
 
-Lola began to move to interrogate Cale's new boo, when she caught sight of a woman entering. Long curly black hair framed an overly confident dominican face, she wore a full luxury designer outfit, yellow coat and pants with a black blouse.
+Stars and moonlight flooded the dimly lit room through floor-to-ceiling windows overlooking the sprawling city, giving them the presence of the heavens themselves.
 
-*Puta.* Lola threw ice on a martini glass, and more ice into a shaker. Gin bottle up, *unos dos tres*, and a count of dry vermouth. She shook the martini a few times, avoiding eye contact with the woman now sitting at the far end of the bar.
+Mass was well underway, with a good turnout for early evening on a weekday. The line of worshipers who sat along the bar was currently being served by Marcus, the head bartender.
 
-That woman was going to want to talk to Diego. Lola wasn't interested in being Diego tonight. She had no problem with Diego, he was still her default state, but he was not good with the customers and switching faces was draining.
+Lola scanned the room, brown eyes against a warm golden canvas beneath voluminous and styled black hair.
 
-Carve the lemon, stab the olive. Splash of bitters just like she liked. Dump the ice, pour the shaker. Stab the lemon, place on top. *And that is the most she will get from me.* Lola placed the drink down without making eye contact.
+Trays of food flowed seamlessly to and from the kitchen, all tables on the floor appeared to be satiated, and all guests seemed to be lost in the intimate vibes of chill R&B.
 
-“Diego, I just want to talk…” She heard in spanish. No Diego here, honey. Lola grinned and approached the loquacious couple at the center of the bar, Cale cut off mid sentence seeing her approach.
+Business was good.
 
-“Cale! Darling!” Lola leaned over to give a shoulder hug over the bar to the fabulous boy, then turned to his companion and extended a very effeminate hand, “And, oh do I so hope I am correct in assuming, this is *the* Astrid?”
+Lola began her rounds around the bar.
 
-The girl looked to Cale, who simply smiled and nodded forward, she turned back to Lola “Oh! You must be the wise bartender. I apparently must thank you for putting this man's head on straight.” Astrid took her hand and shook lightly.
+Marcus was lost in the rhythm and appeared to be on top of things. The new barback chugged away at the steady flow of drink tickets while maintaining light chatter with various guests near their station.
 
-“No manches! Cale, are you telling stories about *me?”* Lola turned to the boy, a slight smile and a raised eyebrow.
+She dropped off the Pakari twins’ usual lemon drop martinis, a quick beer refill… and a Long Island for Jillian.
 
-He shrugged, “Astrid got to brag about her therapist, so I did the same. Although apparently I'm paying for both of our therapists now.” Astrid punched him in the shoulder lightly. Lola grinned, they were exactly as he described.
+As she completed the circle, Lola noted two faces had joined the congregation.
 
-One of the suited men raised a glass, looking in her direction. She counted the low drinks quickly, holding up four fingers and tilting her head. The man nodded. Moments later she had four beers dropped off next to the group.
+Cale, of course, would get his standard Cosmo to start, but who was...
 
-“Everything else is going well over here, boys?” She asked. A round of nods.
+Lola nearly tripped on the edge of the barmat as her eyes fell on the blue ribbon and blonde hair.
 
-“Werk.” She turned back to Cale and Astrid, they were deep in a phone. Best not to interrupt. The puta was trying to get her attention. Her glass was still mostly full.
+Stray whispers of "Astrid" rippled along the bar, though the girl appeared to not hear as she was lost in a menu.
 
-Lola took a deep breath, and approached the woman.
+Cale, the hopeless fool he was, simply smiled like the prized possession that sat next to him had *not* been the topic of *hundreds* of hours of discussion in that very seat.
 
-“What?” She said, briefly allowing Diego's voice to come through.
+"Lola! I'll take a -" He began.
 
-“Am I allowed to order food?” The woman asked. Lola leaned back slightly, a hand to her mouth as if thinking.
+"Uh-uh, honey. You do *not* pull that nonchalant crap while escorting a *guest of honor*."
 
-“And what can I get you?” Back to Lola's voice. She would play cordial as long as it was reciprocated.
+The statement finally got Astrid's attention, and she looked up as Lola found her place leaning forward against the bar, hands flat against its surface.
 
-The woman attempted a smile, but realized it likely wasn't worth the energy, “Just the chicken caesar.” She paused, “Thank you.” This thank you caught Lola off guard. Was it possible she *wasn't* here about their daughter? It seemed impossible. The only two conversations they seemed to know how to have were “you're ruining our daughter's life” and “I can get you help with your mental sickness”. Neither of which Lola was interested in tonight.
+"Cale, really? I -" The girl's eyes narrowed at Cale.
 
-Lola ultimately smiled, and turned to put the order in. She glanced over at the drinks Marcus had dropped off for Cale and Astrid. An Old Fashioned girl. Lola nodded in approval. Cale of course had his Cosmo.
+Lola immediately picked up on the frustration, so she interjected. "You were right, Cale. She *is* gorgeous, razor-sharp eyes and all."
 
-A new face entered the room, bee-lining it straight to the bar. *And who is THIS tall drink of water?* She leaned on the bar, watching him approach with a smile she could barely contain. He wore a very European style wool suit vest with matching grey pants, over a pink shirt.
+Whatever words Astrid had died on her lips, cocking her head back at Lola.
 
-“Lola, I presume?” He asked, a somewhat shy smile adding to the already alluring look. She raised an eyebrow.
+"You know me, I don't lie." Cale lied.
 
-“My reputation reaches far and wide today it seems. What brings such a fine specimen as yourself to this place of worship?” She locked eyes with him.
+This visit wasn't about Cale; he had more than his share of sermons.
 
-“Worship?” He didn't back down from the look, instead taking a seat. *Dios mio, who keeps bringing me these men?*
+"Cale, honey, shush." Lola extended a hand towards their guest. "Lola. I have been waiting years for my little sanctuary to be blessed by your presence."
 
-“Booze, honey. Church is in session.” She slid a menu over from a few seats down. He laughed, taking the menu. She looked over and noted Marcus taking care of the twins, they were checking out. She had a few minutes until anyone else needed attention.
+Astrid accepted the hand with a *firm* grip. "Astrid, it is a..." Her eyes widened with recognition. "Oh! You must be the wise bartender! Bourbon old-fashioned, please."
 
-“A friend recommended this place. Recommended you, actually. I’m Blaire, by the way.” The man said, seeming nervous.
+*A bourbon girl, excellent.*
 
-“You are here for confessional services! Perfecto! And what liquid sin will help guide you to repentance?” She nodded down to the menu. He studied it briefly. Lola could see the puta watching the interaction out of the corner of her eye. She was close enough to hear too. Lola did not care.
+Lola grabbed a top-shelf bottle and a tumbler glass.
 
-“Recommendations?” He asked.
+"I'll take a -" Cale started.
 
-“Spirit forward, sweet, bitter, savory? Gotta give me something to work with, honey.”
+Lola cut him off. "Did this fool really bring you in blind? Oh, honey... This man finds too much amusement in the things he *doesn't* say."
 
-“Sweet. Fluffy. Surprise me.” He said, leaning back.
+*Splash of water, sugar cube, bitters, muddle with cherries...*
 
-“You ok waiting a minute? I promise it's worth the… anticipation.” Lola grinned.
+"Hey! I don't -" Cale found Astrid's finger up against his lips.
 
-“I think if I didn't have patience for things that were worth it, I wouldn't be here.” He shrugged and returned the smile.
+"Cale, shut up." She turned back to Lola. "So that's not just me? I thought he did it to torment me."
 
-“Oh there is tea there and you will in fact spill it tonight.” Lola moved to a fresh shaker. *Lime juice, lemon juice… heavy cream… simple syrup…* she eyed the gin for a moment, deciding to bump him up to a more floral option. *Orange flower water… Ay, are we out? No, there.* *Ice, shake.*
+Astrid, satisfyingly, picked up on the game. Lola was already liking this girl.
 
-She scanned the room, noting everything was still on track. Business had been going well. She still couldn't believe she had gotten her hands on the tallest rooftop bar in the city. Their Sunday brunches had been doing phenomenal and spreading word well, she enjoyed bringing in other girls for that too. She took a moment to enjoy her success. *Slay, queen.* She thought to herself.
+*Ice cube, bourbon...*
 
-She strained the shaker, getting rid of the ice. *Egg white… and back into the shaker. Now the fun part.* She began shaking, bracing her arm for several minutes of torture.
+"Oh, I don't doubt you get special treatment. But no, the fool treats information flow like a game. We're all punch lines in a joke that only he finds funny."
 
-“Lola!” She heard Cale yell.
+This got Cale to sit up and lean forward. "I'm right here!"
 
-She moved over, “You rang?”
+*Flash the orange peel...*
 
-“Tell her everything I've told you about her. No holding back.” Cale nodded to Astrid, who seemed to be blushing slightly at pulling another into their conversation.
+"No one cares, idiot." Astrid shot Cale a quick glare before turning back to Lola with an inquisitive look. "How do you deal with it?"
 
-“Well this one time he said he wanted to…” Lola grinned.
+Lola stole a brief glance around the room, noting an empty beer glass. Marcus was already moving on it, though.
 
-“OK maybe we can leave my fantasies out of this. Some holding back.”
+"Simple, honey. Ignore him. It drives him nuts."
 
-“Fantasies, Cale?” Astrid looked back at the boy who was blushing. Astrid wasn't the only one who enjoyed getting Cale worked up.
+Lola winked and dropped off the drink in front of Astrid, before turning to continue her rounds without letting Cale finish his order.
 
-“You should try talking to this woman. You'll find it's hard to stop.” Cale stated.
+"Bringing you here was clearly a mistake," Cale stated.
 
-“Aw thank you, honey. Anyways… Dios mio where to start… It's simply too much. Let me leave it at this. The first time he came in he looked like a kicked puppy. Granted this was back when we were further down town, it was more a pub than… this” Lola gestured with her non shaking arm.
+Lola couldn't help but smile.
 
-“Now I had seen that look before. Carajo, I've worn that look before. Serving vintage defeat. So I asked if it was a woman or a man who caused his troubles.” Lola paused, noting the girl was hooked onto every word.
+A rather dramatic sigh of satisfaction was heard from Astrid, likely after her first sip. "I like this bar. Good call, Cale."
 
-“No lie, honey. He kept me an *hour* past closing, telling endless stories. The first time you beat him at a video game, the time you helped him pass an English class. My favorite was you two going loco all over the pandas at the zoo.” Lola smiled. Astrid's mouth opened in seeming shock. She had seemed to expect Cale to have spent his entire time venting here. It was far from the truth.
+A piece of Lola beamed at the assertion.
 
-“The entire time, and when I say the *entire time* I mean the *ENTIRE* time, he wore a smile so bright I thought to turn off the lights to save electricity.” Lola added.
+The other pieces were fixated on two newcomers, both of whom had eyes fixated right back on her.
 
-Astrid turned to Cale, studying his soft smile. And then she kissed him. Lola smiled, leaving the two love birds to their PDA.
+One was quite the tall drink of water. European suit vest with matching grey pants. The way he looked at Lola, a nervous yet anticipatory smile, meant he was here for the sermon. That smile did nothing to hide the pain that hung like an aura.
 
-Her arm was getting tired. She poured the contents of the shaker into a glass, rubbing some soreness out of her biceps. It would need to sit for a moment, so she scanned the bar. The caesar was out, puta still didn't need another drink, though she still was watching. She moved to top the suited men on their beer again.
+The other new guest was the *puta*.
 
-Her new tall, European, and handsome friend also watched, with a smile. He likely had heard Lola's story. She noted another couple taking the seats the twins had left. Marcus moved to greet them.
+The faltered step and eye twitch were likely imperceptible to anyone not closely studying Lola, but she tuned the woman out.
 
-She grabbed the fountain nozzle, and cautiously poured in sofa water. The foam of the drink rose, straight up and slightly above the glass. The man's eyes narrowed, studying the effect. Lola topped it with another drop of orange water, using a toothpick to shape it into a heart.
+Lola grabbed a martini glass and shaker while greeting tall, pale, and handsome. "Honey, you're going to need to get that suit dry cleaned if you soak in that hurt any longer."
 
-“Ramos Fizz. It's not on the menu. If you try to order it during busy hours we will in fact gaslight you and insist we have never and will never make this drink.” Lola winked, placing the drink down.
+"Am I that obvious?" The man asked, shyly looking away.
 
-He promptly took a sip, and his eyes widened, “It appears that the sermon has begun.” He chuckled, Lola delighted in his response.
+*Gin... dry vermouth... olive juice... shake...*
 
-“OK. Tea. I want it all over the bar top.” She leaned in.
+"It *reeks*."
 
-“I… it's stupid. My partner wants to adopt. I'm still unsure on if I want something long term with him, let alone a kid.” He started. He stopped, seeming to wait for her to interject.
+It earned her a chuckle. "Lola, I presume?"
 
-“Mhm. Honey, I said *all* over the bar top, not daintily dripped onto a napkin.” She never broke eye contact.
+"My reputation precedes me. What's your poison?"
 
-“We… We met two years ago. It was meant to be a one time hookup, and we just… kept… going. One time. And one time. And one time.” He paused.
+*Blue cheese olives...*
 
-“Mhm.” She nodded to continue.
+"Surprise me."
 
-“We were happy. We never really talked about our relationship status since we just assumed we were on the same page. And suddenly a few weeks ago he just starts talking about adoption.” He looked down at his drink, seeming to be done with his story.
+The martini was placed in front of the bushy-haired woman, though Lola refused to look at her.
 
-Lola thought. Her eyes flickered to the puta, who had a slight knowing smile on. She took a deep breath, this would be hard with that woman sitting there. But it needed to be said.
+"Diego -" She started.
 
-“Has he ever talked about commitment before?” She asked.
+Lola ignored her; there was no Diego here, not right now.
 
-The man looked up, tilting his head, “No?”
+"I need a *little* bit more than that." Lola rinsed the shaker, maintaining focus on the man. "Are we talking sweet, spicy, bitter, strong, weak, smooth?"
 
-“Not even marriage, do you two live together?” She was sucking what he hadn't spilled out with a straw.
+*Vodka, cranberry juice... Cointreau...*
 
-“No.” He confirmed.
+"Sweet and smooth, I guess? I don't drink often; a friend pointed me this way... They said I would find value in your... other services. To be blunt, I don't really know what to expect."
 
-“Honey, sometimes people think a kid can solve relationship problems. When you are insecure about your relationship there's this dumb idea that kids can fix it. That they can be your glue.” Lola leaned in closer and whispered, “It doesn't work.”
+He *was* here for confession.
 
-“But our relationship is good.” He tilted his head.
+Excellent.
 
-“Insecurities aren't about reality, honey, they are about perception. Maybe he realized he wanted you around more than he planned to and is struggling to make ends meet on that. You need to talk to him. Ask him what is pushing for this change in lifestyle.”
+*Lime juice... twist of lemon...*
 
-“And if I'm not interested?”
+Lola took another scan of the room. Another bartender had just arrived for the closing shift. Between them and Marcus, they would be more than set, leaving Lola with plenty of time to go big.
 
-“Then it will most certainly be better for both of you, and the kid, that you make that decision sooner rather than later.” Lola put a finger down on the table, her eyes locking his with utmost sincerity and seriousness.
+"And can I get a name for the order?" Lola flashed the man a smile while pouring the Cosmo into a martini glass.
 
-He nodded, his eyes turning down, seeming to lose himself in that thought. Lola turned away with a smile, finding an alone Astrid who was deeply considering her nearly empty drink with a frown.
+"Blair." The man nodded.
 
-Lola maneuvered over, grabbing the bourbon and starting to work on a new drink, “Now I *know* that's not the same face of the girl I just saw kissing her dream guy a minute ago.”
+Lola grunted in approval, rolling her head back with a smile. "Blair. Stoic, calm, collected. A restrained grace. It's a pleasure to meet you, Blair."
 
-Astrid looked up, her frown faded immediately and was replaced by a smile, then a conflicted look. “I'm happy. He's… perfect. I've always wanted this. It's just…” she trailed off.
+She winked and turned to return to the fool and his goddess.
 
-“I have never heard anything come after an ‘it's just’ that was anything less than the most important point.” Lola said with a nod as she muddled cherries in the bottom of a tumbler glass.
+The Cosmo was deposited unceremoniously in front of Cale, and Lola's mind latched lightly into their conversation while scanning the bar for ingredients.
 
-“He's different, in so many wonderful ways. But it feels like I'm now dating a different man than I fell in love with, even if I love him too.” Astrid swirled the melting ice cube in her old drink.
+Astrid was clearly still frustrated, "-just told stories about me to everybody? What do they know about me?"
 
-“Oof.” Lola said. Astrid looked up as Lola finished peeling an orange, giving it a flash of a blow torch before setting it in the new drink. She slid it over, it stopped perfectly in front of Astrid.
+"Lola!"
 
-“Oof?” Astrid repeated, an eyebrow raised, reaching for the new drink.
+Lola grunted in acknowledgement, though she didn't directly respond as she grabbed a shaker.
 
-“Big oof. What are you looking to resolve? You stated the problem plainly, I don't think you need help understanding that.” Lola leaned on the bar, making eye contact with the girl.
+*Gin, lime juice, lemon juice… heavy cream… simple syrup…*
 
-“What am I looking to resolve?” Astrid said, seeming to churn on the question.
+Where was the orange flower water? Were they out?
 
-“Mhm. Those are the words I said.” Lola nodded. She watched the cogs turning. This girl was supposedly brilliant. She would get there.
+"Tell Astrid everything I've told you about her, no holding back."
 
-“I guess there's nothing to resolve. I made a statement, I didn't pose a question. It's just a fact.” Astrid looked like she was shocked at the very words she said. Lola smiled and stood back up.
+Lola paused, contemplating the request.
 
-Before Lola could turn away, Astrid continued, “Thank you.”
+*There's the orange flower water.*
 
-Lola smiled, “The price is you two need to keep coming in with more stories. They are great entertainment for the other guests.”
+Lola's smile was hidden as her back remained to the couple. "Well, he has this one dream where -"
 
-“No, not for this. For helping convince Cale to keep trying on me.” She blushed a little at this admission.
+Cale cut in, "No! Maybe not everything!"
 
-“Honey please, is Cale deflecting and giving credit to others again? The only reason that boy would do anything is because he wanted to. You surely know that. He didn't give up on you because he loved you. You didn't see me out there trying to win you over, did you?” Lola looked up, smiling at Cale who was returning from the restrooms.
+"*Cale*, fantasies? You told people about *fantasies*?"
 
-Astrid nodded, “I think I've concluded I like this bar.” She smiled.
+*Ice, and shake shake shake...*
 
-Lola winked, and turned away. Marcus had taken care of the bar, everyone was topped off and happy. So Lola took her spot at the center and looked over her success. The floor was still buzzing with activity, almost all tables full. For a Wednesday that was very satisfying.
+"Only Lola, I'm not a weirdo or anything."
 
-“Diego.” She heard. Her moment of serenity was stripped away instantly. She tuned it out. There was no Diego here.
+"*Telling anyone about them is weird*." Astrid snapped.
 
-“Diego!” The voice said louder. Several heads at the bar turned to the woman.
+*Oh, those two are cute.*
 
-Marcus, bless his heart, began to step towards the woman. Lola put an arm out, “No. I'll take care of her. Keep everyone else happy. The girl in the blue ribbon gets a dessert on the house.”
+"In all seriousness, honey, the fool never had a bad word to say about you." Lola decided to cut in, turning to them while she shook the drink.
 
-Lola turned, glaring at the puta, closing the distance in three strides and leaning on the table so her face was inches from the woman's.
+The assertion clearly grabbed Astrid's attention.
 
-“What. Do. You. Want. Carmen.” Diego emerged.
+Lola continued, "Cale would walk into this bar reeking of defeat and failure, and would sing your praises to the heavens. The first time you beat him at a video game, going crazy over pandas at the zoo, how you helped him pass English in high school... the list goes on."
 
-“I want you to not ignore your daughter's mother.” Carmen replied in Spanish, her fierce eyes matched his.
+*Strain the shaker, lose the ice... egg whites... and here we go. Shake shake shake...*
 
-“Leave her out of this. You know this isn't about her.”
+Several other guests, friends of Cale's, leaned forward at hearing the topic on the table.
 
-“How is it not?”
+Astrid was stuck in a state of shock, lips parted and cogs turning.
 
-“Lara is nineteen. She can do what she wants.”
+She needed another nudge.
 
-“And you fly her off to the other side of the world chasing some silly female sex icon?” Carmen said.
+"Astrid, honey, people come to me to vent. I hear the *worst* words leave the lips of men, women, and everything between at this bar. This man, however, in *years* of storytelling, has *never* once had a negative thing to say about you."
 
-“It was what she wanted. I didn't see you here keeping her from leaving, I don't see you out there protecting her, and I don't see the support you're giving for an alternative. This isn't about her. This is about you wanting to be right.” Diego spat, an eye twitching.
+The leaning guests all nodded with several exclamations of agreement.
 
-“She's confused, Diego. You confused her. She needs a dad-”
+Astrid's gaze flickered between them, then landed on Lola.
 
-“She needed a mom when you left. Luckily for her I was able to be both. It's been six years of this. You have no ground to stand on in this conversation. Unless you are willing to lend support, shut up and take your free drinks and food.” Diego breathed heavily, holding back his voice from escalating.
+For the briefest moment, Lola received what Cale referred to as "the stare", narrowed eyes so sharp they almost made Lola drop the shaker.
 
-“Diego, you're sick. You need help. This mask you're wearing-” Carmen started. Diego backed up, opening his arms wide.
+But it was gone quickly as Astrid seemed to conclude, correctly, that there was no deception.
 
-“Who here knew I'm a man?” He asked in English, still in Diego’s voice, openly to the bar. Marcus, Cale and Blair’s hands shot up, Cale didn't even look up from his phone. The new couple that Lola hadn't even interacted with raised their hands. The suited group at the end nervously raised their hands. Astrid, bless her soul, looked confused and Cale grabbed her arm and raised it.
+Instead, she turned and placed a firm kiss on Cale's lips. She was making it *very* clear that he was owned.
 
-“Diego you don't need to make-” Carmen started.
+The action was met with light applause; Lola herself couldn't help but grin widely.
 
-He switched to Spanish, gliding back to the woman and driving a finger down into the table, “No. This is not a mask. This is part of me. It is not all of me. I will not hold myself back from self expression just because the simple minded like you can not understand the complexity of a multi-faceted person.”
+As hopeless as he was, Cale deserved this win.
 
-“But-”
+Lola poured the contents of her shaker into a tall glass, placing it aside to sit for a moment.
 
-“Do you see this bar? I did it. I run the second most successful rooftop bar in the city, I have formed meaningful connections with more people than you have even met. I have a happy daughter that is chasing an ever evolving life dream. And I. Am. Happy. What piece of that are you going to point to as me being held back on?”
+"Diego." The *puta*'s voice cut through the increased chatter that followed the lovebirds' little display.
 
-Diego was sick of this conversation. She found him every six months. She missed him and he knew it, but she was not healthy for him. There were no more games, he was done trying to help her. He was done trying to pretend a piece of his life should be open to someone who distinctively cared more about being right than the effects of her words.
+In three large steps, Lola found herself in front of the woman. Her voice dropped multiple octaves, and Diego responded in a whispered growl through gritted teeth.
 
-“Please make Lara come back. She won't answer my texts.” Carmen finally said, with a flimsy attempt to seem pathetic and vulnerable.
+"What do you want? Did you really fly out here to bother me in my own bar? Are the never-ending phone calls not enough for you?"
 
-“Get. Out.” Diego pointed to the door, speaking English.
+"Am I not allowed to order food?" Carmen responded.
 
-“Diego-” She reached a hand towards his.
+It irritated Diego to *no end* how calm she always remained despite the vile beliefs he knew swam through that twisted mind. The yellow designer coat and pants only reinforced the image of someone who faked a level of confidence she had never earned.
 
-“*Get. Out.* I *will* call security.” His voice escalated, and he jerked his pointing hand for emphasis.
+Diego contemplated just throwing her out.
 
-The woman slowly stood, looking around and realizing half the restaurant was staring at her. Her mouth tried to work, but nothing came out. So she turned, straightening out her clothes, and left.
+He knew every single sentence that would be exchanged between them. There wasn't a single one to lead to anything productive.
 
-His glare persisted until he saw her get on the elevator on the other side of the door. Several people applauded, primarily those at the bar. Diego took a deep breath, and Lola emerged, with a smile.
+Diego glanced over to Blair, who still needed his drink finished. He was waiting patiently for his own moment.
 
-She turned to the bar, “I apologize, a free round for everyone. Who wants pretzel shots?” This was met with several exclamations of agreement.
+Reluctantly, Lola re-emerged and straightened up, hands moving to her waist and thrusting her hip out slightly.
 
-Lola felt better as she lined up the shot glasses. This felt different than their previous engagement. This had some finality to it. Diego would need to call Lara later and warn her that her mom would be doubling down on calls. He would also tell her that it was her decision what she did and he would never judge her for visiting her mom in DC.
+"What can I get you, then, *honey*?" She threw extra sweetness into that "honey".
 
-But for now, Lola basked in her success. The bar was thriving, her favorite couple was happy… and kissing, oh lord those two… and she had a new regular. Successful day indeed.
+Lola knew precisely how much she was pissing the woman off right now, addressing her with this voice.
+
+And she loved it.
+
+"Chicken Caesar," Carmen said simply, never breaking eye contact, taking a pointed sip of the martini Lola had made her.
+
+Lola rang the order in and returned to the near-finished drink, placing it in front of Blair.
+
+She grabbed the fountain nozzle and cautiously poured in soda water. The foam of the drink rose straight up, slightly above the glass. The man's eyes widened as he studied the effect.
+
+Lola topped it with another drop of orange water, using a toothpick to shape it into a heart with a wink, then pushed it forward.
+
+"Ok, honey, that much soaking has had to brew some mighty strong tea. Spill it."
+
+Lola glanced only briefly at Carmen, who was clearly listening to the conversation.
+
+"Tea?"
+
+"Yes, honey. You were sent to me; there's a story, and I will hear it."
+
+The man took a sip while thinking. The satisfaction of his eyes rolling slightly with the first taste filled Lola with a deep warmth of validation.
+
+"What is this?"
+
+"Ramos fizz. Fair warning: the entire staff has orders to gaslight anyone who attempts to order it on a busy night like this— we 'don't have the ingredients'." Lola threw another wink and leaned forward. "Now, tea. All over the table."
+
+Her finger jabbed down into the bar counter with a raised eyebrow.
+
+"I... It's a guy." Blair paused.
+
+"Of course it is. It's either that, a girl, or somewhere in between. Keep going."
+
+"He's my partner. We... It's stupid."
+
+"Trust me, honey, you'll never top the level of stupidity going on over there." Lola nodded towards Cale and Astrid, who appeared to be arguing about the definition of "legume".
+
+The man lounged back with his hands behind his neck and elbows flared wide, though his face remained flat and tense. "It's... He wants to adopt."
+
+Oh.
+
+That was most definitely *not* stupid.
+
+Lola straightened up, crossing arms and tapping a foot. "Mhm. Honey, I said *all* over the bar top, not daintily dripped onto a napkin."
+
+Blair took a deep breath, finally confessing, "We started dating two years ago. It was supposed to be a one-time hookup... And it was. One time. And another. And another."
+
+Lola couldn't help but flicker eyes over to Carmen. She met the glance, then looked away.
+
+Blair continued, "We were happy. We never really talked about our relationship status since we just assumed we were on the same page. And suddenly, a few weeks ago... kids are the only topic of discussion."
+
+This was going to be like navigating a minefield with Carmen sitting right there.
+
+Why the lord sent Lola this challenge, she could *not* begin to understand. But here they were.
+
+Screw it, if a mine went off, it went off. Lola wouldn't be the one impacted.
+
+"Honey, sometimes people think a kid can solve relationship problems. When you are insecure about your relationship, there's this dumb idea that kids can fix it. That they can be your glue."
+
+Lola avoided looking at Carmen very assertively.
+
+"But we're happy. What is there to be insecure about?" Blair asked.
+
+"Being happy is unfortunately not enough to prevent insecurities."
+
+The mine went off, and Carmen interjected, "Are you suggesting we should have never had Lara?"
+
+Oh lord.
+
+"This isn't about you, Carmen." Lola did her best to maintain control, keeping focused on Blair, who was blinking at the intrusion.
+
+"How is it not?"
+
+"Blair..." Lola ignored Carmen, getting Blair's attention back. "Children are a *big* commitment. I don't know anyone who has gone in without underestimating the level of impact it has."
+
+Carmen tried again, "Diego, are you really saying -"
+
+Lola's voice rose, keeping Blair's attention on her. "They are also the most validating success you will ever feel in your life."
+
+This was enough to get Carmen to sit back and disengage.
+
+Blair re-engaged. "But if I'm not interested?"
+
+"Kids don't fix relationships, honey. They test them. If your partner is *actually* interested, he needs to find a connection stronger than a series of hookups. And if you are just trying to keep your existing connection, that will go away the moment you have a third in the household."
+
+Her chicken Caesar salad was dropped off, but was ignored. Lola knew she had never wanted it in the first place.
+
+"So you *are* saying you regret -" Carmen started.
+
+Diego snapped in, stepping over in front of the *puta* and leaning forward, growling. "I regret *nothing*."
+
+"How can you say that? She's out there *alone.* She's squandering her college fund."
+
+Here we go.
+
+Diego did his best to keep his voice controlled, but his best wasn't very good with this woman.
+
+"She would have failed out of college, and you know that. She barely speaks English."
+
+Carmen continued to maintain her calm state. As if being the calm one made her right. "You never got her a teacher."
+
+Diego, meanwhile, elevated his voice with each response. "I did! You know that's not how she learns! She needs to *want* to learn before she will."
+
+"That's nonsense, she just needs to focus."
+
+"*You* need to focus and actually *see* your daughter for who she is, not who you want her to be."
+
+"Diego, the answer isn't just letting her do whatever she wants."
+
+"It's most certainly better than calling her every day and reminding her of her failures."
+
+"How else would she learn? It's how I -"
+
+"I don't give a *fuck* how you learned." Diego realized his voice had risen above the bar noise and toned it back. "Lara is *not* you."
+
+"Then what do you suggest we do? Because she's just wasting money, and one of these days she's going to get kidnapped. She's only *twenty*, Diego. She doesn't know how the world works."
+
+"And either of us do?"
+
+Carmen's voice actually picked up to match Diego's. "Yes! Just because you are caught up in the chaos of a mental disorder-"
+
+And there it was.
+
+Diego straightened up and pointed to the hallway leading to the elevators.
+
+"Out."
+
+The soft murmurings of the bar slowly re-enveloped them with the command.
+
+There were definitely several eyes that either averted or stared at the confrontation. Only Cale and Marcus were aware of the context of what was going on, and Diego could see Cale's flat stare turned their way past a concerned Astrid.
+
+Diego had no doubt that Cale would go as far as to throw punches to defend him, even against a woman.
+
+Carmen was quickly realizing this was his turf. She likely had expected public exposure to keep Diego "in check".
+
+"Diego, you need help, this mask is -"
+
+"Mask?" Diego stepped back, stretching arms out and turning to face the section of the bar surrounding Cale, and projected his voice. "Who here knows that I'm biologically male?"
+
+A scattering of hands rose, including Blair's.
+
+Astrid, bless her soul, glanced around in confusion. Cale grabbed her hand and lifted it into the air.
+
+Diego snapped back to Carmen, leaning forward on the countertop, still projecting his voice.
+
+"I'm not the one with the mask. You hide behind words of venom because you are afraid of what you don't understand. You hide because your *simple*, *small* intellect can't properly comprehend the *true* complexity of a human's identity. I will not hold myself back from self-expression just because simple-minded people like you cannot understand the depth of a multifaceted individual."
+
+All conversation at the bar had ceased.
+
+Diego's chest heaved, widened eyes *dared* the *puta* to say even a *single* word further.
+
+Distant chatter from tables and soft crooning were all that kept Diego and Carmen anchored in reality.
+
+Marcus's presence approached from behind, but Diego reached an arm out to keep him uninvolved.
+
+Her voice returned to her calm state. "Diego, you need -"
+
+Diego pointed again, cocking his head.
+
+"*OUT.*"
+
+Carmen took another glance around the bar.
+
+Without looking, Diego knew that all gazes were on her. Cale's own look of fury was particularly formidable, even if rarely used.
+
+She stood, attempting to maintain some level of poise as she finished the rest of her drink.
+
+All eyes followed her to the exit.
+
+As the distant elevator doors closed, Diego finished his sermon, turning back to Blair, "So no. I have no regrets and nothing but blessings with my daughter, but if you are only in it for your partner and they want more, I would get out."
+
+Light and uncertain applause erupted from several at the bar, guiding Lola back into her place.
+
+One last deep breath, and Lola straightened up.
+
+She shifted her weight and beamed across the bar. "Marcus, pretzel shots, all around."
+
+This got much more enthusiastic applause.
+
+She paced away from Blair, leaving him to reflect, and made several slow laps around the bar as her head cleared.
+
+She moved along the bar, her gaze bouncing between drinks, topping off several beers on the house as Marcus distributed shots.
+
+The congregation collectively toasted and drank to Cale and Astrid. Lola deeply appreciated that they let the energy shift away from her "moment" and back to a more important one.
+
+This bar was, in many ways, her family.
+
+Cale and Lola made eye contact as he stood and excused himself to the restroom.
+
+*Speaking of family.*
+
+Lola nodded and placed herself close enough to catch Astrid alone for a few moments, but not close enough to raise suspicion.
+
+Cale had brought Astrid in for more reasons than to just flaunt his success. Lola knew it the second he stepped in. Everything up to this point had been getting Astrid to trust Lola enough to open up.
+
+Astrid needed her own confession.
+
+Lola whipped together another old-fashioned, giving Astrid several moments to soak in her own thoughts alone.
+
+"Honey, you most certainly have something strong steeping. Care to spill a little?" Lola offered as she swapped in the new drink for the empty glass.
+
+Astrid absent-mindedly swirled the drink with the stirrer.
+
+It took her several moments to answer.
+
+"He's... changed."
+
+Lola shrugged. "Yes."
+
+"It's like I'm dating someone completely different than I fell in..." Her mouth caught on the word.
+
+Oh.
+
+Cale was right to bring her.
+
+"Oof," Lola said, shifting into a casual lean against an arm, eyes trailing along several other patrons.
+
+"Oof?"
+
+"Big oof. So what's being solved?"
+
+"What's being solved?"
+
+Lola turned her gaze back to find the girl stuck halfway through a drink.
+
+"Mhm. Those are the words I said."
+
+The cogs turned behind glassy eyes as the glass lowered slowly.
+
+"I... there's not really a question, is there? I've been trying to answer an assertion, not a question."
+
+"Cale always said you were clever. I can't say I've ever had someone reach the proper conclusion in so few words."
+
+It got a smile out of her, and she finally met Lola's eyes. "I should... I should just talk to him about it."
+
+Lord, why couldn't more sermons be this easy?
+
+Lola felt herself retreating, and Diego emerged as he took a few moments to fully take in the reality that was this girl sitting here.
+
+The last few years had been rough for both Diego and Cale. The victories outnumbered the losses, but *this* victory was beyond significant.
+
+"All games and drama aside..." Diego shifted to face her more fully. "I'm happy for you two. Seeing him as lighthearted as he is today means a lot to me; that man has helped me through a lot. You're doing a good job, Astrid."
+
+"He... helped you?" Astrid's face contorted, scanning Diego.
+
+"I'll just say this place wouldn't exist without him. Though he'll never admit it." Diego nodded out towards the center of the bar.
+
+Astrid went silent again, searching deep in her drink for some answer to an unspoken question.
+
+"In many ways, I don't think he, as he is, would exist without you. So maybe I owe *you* some thanks."
+
+Astrid scoffed. "We did sort of forge one another, didn't we?"
+
+Diego grunted. "That's how it goes."
+
+She took a deep breath and finally let her thoughts escape her lips. "I just keep finding sides of him I've never seen before."
+
+Diego nodded, clicking his tongue a few times in thought.
+
+"When you talk to him, I think you'll find he's been going through that same journey with you for a while now. It's part of the process. Carmen and I also kept... finding other sides of each other, and ourselves."
+
+Astrid nodded and returned to her thoughts with eyes on her drink.
+
+When Diego straightened up, Lola returned. She nodded to Cale, who was leaning against the wall next to the restrooms.
+
+As Cale reunited with Astrid, Lola returned to a steady pace around the bar.
+
+Her eyes fell on the still-empty seat before an untouched salad and an empty martini glass.
+
+Carmen...
+
+*Carajo.*
+
+Diego would need to call Lara.
+
+Carmen was going to double down on her own calls, and Diego needed to help fortify her.
+
+It was a thought for later.
+
+For now, church was still in session.

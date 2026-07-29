@@ -1,107 +1,201 @@
 **Astrid**
 
-Astrid ducked around the musty room, her box of papers was slowly diminishing but she still had a ways to go. The Longing's case had resolved well, so she was in a good mood. The state had clearly been overstepping boundaries on that one so she hadn’t been surprised. Part of her had hoped they would escalate so she could get some experience with her team in a higher court on an easy win. But they came to their senses at the last minute.
+Astrid wove around the musty storage room; her box of papers was slowly diminishing, but she still had a ways to go.
 
-And now she had filing to do. Bright and early, before the caffeine even set in, tedious filing. The bureaucracy marched forward.
+The Longing's case had resolved well, so she was in a good mood. The state had clearly been overstepping boundaries on that one, so she hadn't been surprised. Part of her had hoped they would escalate so she could see something a bit more on the appellate side. But they came to their senses at the last minute.
 
-Her phone vibrated, she pulled it out hoping to get a lunch checkup from Cale. It was… Naomi? The girl they had met in Osaka that she exchanged contact info with. Astrid had floated the proposition to the case manager, the response had been “keep a pulse on that opportunity”. They wouldn’t have many openings for consultation until December.
+And now she had filing to do.
 
-She picked up, “Go for Astrid.”
+Tedious, miserable, filing. Bright and early, before the caffeine even set in.
 
-“Moshi moshi! Naomi! I was calling to follow up on potential consultation services.”
+The bureaucracy marched on.
 
-Astrid switched her to speaker and placed it on one of the shelves, “Oh, yes! We’re interested, but will not have bandwidth to support a new client until December unfortunately.”
+Her phone vibrated. She pulled it out, hoping to get a lunch checkup from Cale. She would welcome a dose of dumb wit to fill the time.
 
-“Completely understandable, January or February is our current target date for any sort of movement in that area. But I’m glad we have an option. I’ll reach out to you when we get closer to the date.”
+Naomi?
 
-Silence for a few moments, Astrid switched around several boxes, cursing under her breath at the idiot before her that decided N came before M.
+That was the girl they had met in Osaka, right?
 
-“Is that all?” Astrid asked.
+Astrid picked up. "Go for Astrid."
 
-“Uh… No. Can I confide in you? I need to talk something out and you’re the closest thing to a friend I have.” The woman responded.
+"Moshi moshi! Naomi! I was calling to follow up on potential consultation services." The voice carried a distinct level of "cheer".
 
-Astrid paused, eyeing the phone, *she* was the closest friend Naomi had? That was depressing.
+Astrid switched her to speaker and placed it on one of the shelves. "Oh, yes! We're interested, but will not have bandwidth to support a new client until December, unfortunately."
 
-“Sure. I got time to kill.” Astrid said, brushing out several cobwebs in the back of a shelf. The woman didn’t continue, but Astrid heard her phone vibrate again. She looked over, a new message with an attachment.
+"Completely understandable, January or February is our current target date for any sort of movement in that area. But I'm glad we have an option. I'll reach out to you when we get closer to the date."
 
-She frowned, “I gotta say Naomi. I can’t say any of my friends have come attached with NDAs before.” She started reading through the document, and let out a sigh as the full picture began to form.
+Silence fell for a few moments.
 
-“I know, I’m sorry. I hope you understand. I should have just been out as Asuna that day, but there were other… circumstances… that had me paranoid. I’ve been limiting my time as Asuna.”
+Astrid switched around several boxes, cursing under her breath at the idiot before her who decided N came before M.
 
-“No, I get it. I get it.” Astrid signed the doc and fired it back, “Ok Asuna, or still Naomi? What’s up?”
+"Is that all?" Astrid asked.
 
-“Asuna is good.”
+Naomi's voice faltered. "Uh… No. Can I confide in you? I need to talk something out, and you're the only friend I have."
 
-The phone went silent for a moment, Astrid finally found a box she was looking for and slipped the paper in. Why were the Ts and Es mixed up? In what backwards world… She started to sort out the boxes.
+Astrid paused, eyeing the phone.
 
-“He kissed me.” The woman finally said.
+They were friends?
 
-Astrid stopped, a folder halfway out of the box, “Is this a ‘lawyer up’ kiss, or a ‘swoon and change your life plans’ kiss?”
+She supposed so, they weren't not-friends.
 
-“Definitely the latter.” There was clearly a mixture of delight and anxiety in that voice, it practically seeped through the phone.
+But only one conversation over sake, and Astrid was her best option for "confiding"?
 
-“I’m assuming ‘he’ is Hawthorn here. That’s wonderful! You two didn’t talk much, I didn’t really get time with him, but he got along with Cale pretty well. He's built like a quarterback, I would be lying to say there wasn’t a touch of envy here.” Astrid smiled.
+That was depressing.
 
-“We need to do a big cover up. It sounds like three of the stage-hands saw, fortunately no photos were taken. These NDAs seem to only work on people who actually give a shit about the importance of legally binding contracts.”
+"Sure. I have time to kill." Astrid brushed out several cobwebs in the back of a shelf.
 
-“Yeah, that is sort of the trick with the concept of the social contract.” Astrid stood and stretched, taking a break from the cramped position she had maintained for the last ten minutes.
+The woman didn't continue, but the phone vibrated again. Astrid looked over to see a new message with an attachment.
 
-“But how do you do it?” Asuna asked.
+Astrid's face evolved into a frown as she skimmed the legal document that Naomi sent over.
 
-“I’d just sue their ass.”
+"I gotta say, Naomi. I can't say any of my friends have come with NDAs attached before."
 
-“No, not that. Well, maybe that, let’s follow up on that later.”
+Astrid let out a sigh with a head shake as the words "Mimi Galaxy" scrolled into view, and the whole picture began to form.
 
-“To be clear, that was not an official stance or legal consultation of me or any employee of Feldman’s Legal.” Astrid laughed. The laugh was returned.
+"I know, I know... I'm sorry. I hope you understand." Asuna at least *sounded* apologetic.
 
-“Two successful people. Love life and work. I’m barely holding the work together. Is he going to expect dates?”
+"No, I get it. I get it." Astrid signed the doc and fired it back. "Ok, Asuna, or still Naomi? What's up?"
 
-Astrid laughed again, she was becoming a different type of consultant, apparently. Astrid and Cale, the most romantic and successful couple in the world. If only people knew.
+"Asuna is good."
 
-“If you figure that out, let us know. It’s sort of a big sticking point between us at the moment.”
+The phone went silent.
 
-“Oh, I’m sorry, you’re fighting?”
+Astrid finally found the box she was looking for and slipped the paper in. Why were the Ts and Es mixed up? In what backwards world… She started sorting the boxes.
 
-“No! Just… coping. Once we got out of ‘over the top romantic gesture’ mode and dove back into our jobs, it was different. Not bad. Just different.” Astrid paced the small aisle she was in.
+"He kissed me."
 
-“So there’s not a magical solution.”
+Astrid stopped, a folder halfway out of the box. "Is this a 'lawyer up' kiss, or a 'swoon and change your life plans' kiss?"
 
-“Not one we’ve found. You can try scheduled date nights, but it banks heavily on you both not being emotionally exhausted. You’re even working *with* Hawthorn, which would add even more nuance, I’m sure.”
+"Definitely the latter." There was clearly a mixture of delight and anxiety in that voice; it practically seeped through the phone.
 
-Asuna went quiet for a few moments, and Astrid went back to filing papers and folders away. The hum of the ancient yellow light bulb that lit the room seemed to represent the moment of thought.
+Astrid smiled. "I'm assuming 'he' is Hawthorn here. That's exciting. That man's built like a quarterback; I would be lying to say there wasn't a touch of envy here."
 
-“Am I making a mistake?” Asuna asked.
+"We need to do a cover-up. It sounds like three of the stagehands saw; fortunately, no photos were taken. These NDAs seem to only work on people who actually give a shit about the importance of legally binding contracts."
 
-Astrid swiftly moved back to the phone, switching it to handheld, “No. If this Hawthorn matters to you even a fraction of how much Cale matters to me, you grab onto that and you never let it go. I promise you, having pushed it away all my life with every dumb excuse in the book to myself, you do not want to miss out on a single minute of an important connection. Especially not for something as stupid as ‘time and stress management is hard’.”
+"Yeah, that is sort of the trick with the concept of the social contract." Astrid stood and stretched, taking a break from the cramped position she had maintained for the last ten minutes.
 
-Asuna didn’t immediately respond again, “Thank you, I need to go.”
+"But how do you do it?" Asuna asked.
 
-“Glad to be of help, my consultation hours are always open. I do hope you know *you’re* on call now for when Cale decides to up his stupid game one of these days.” Both of them laughed. A moment later the call ended and Astrid returned to her remaining two folders.
+"I'd just sue their ass."
 
-It most certainly had been difficult. Astrid was *still* coming to terms with the fact that this was a slightly different Cale then she fell in love with, and the pockets of emotional unavailability in both directions did not do much to help that. But she hadn’t lied. It was worth it. Even if they only got a few hours a week together, *truly* together, those hours more than made up for the rest of their time.
+"No, not that. Well, maybe that, let's follow up on that later."
 
-The last folder slipped into place. She wondered how Leo and May were doing. She was confident those two were not done yet. Her brief conversations with May she could hear the obsessive indirect questioning into Leo’s life. Those two likely needed a similar discussion to the one she just had with Asuna, although she wasn’t quite sure they would learn it from her and Cale.
+Astrid paused. "To be clear, Asuna, that was not an official stance or legal consultation from me or any employee of Feldman's Legal."
 
-She opened the door. The white light of the hallway filled the room, fighting back the yellow glow momentarily before she turned the light off, leaving the stuffy room behind, hopefully for a good while.
+Asuna clarified with a laugh, "Of course. But... That whole... 'love' thing. How do you find time? We're going to be busy with work. There's... a *lot* to do."
+
+Astrid was becoming an entirely different kind of consultant.
+
+It was a timely question.
+
+"If you figure that out, let us know. It's been... It's been hard. A... recurring topic of discussion. I've been used to the words 'emotionally unavailable' my whole life, but the phrase has a whole new meaning now."
+
+Asuna paused, then followed up, "I'm... sorry, you're fighting?"
+
+Astrid paced the small aisle she was in slowly, keeping her head turned to the phone. "No! We don't fight anymore, we talk. But we're… coping. Once we got out of the 'over the top romantic gesture' honeymoon phase and dove into our jobs, it was different. Not bad. Just different."
+
+"So there's not a magical solution."
+
+Astrid stopped several feet away, eyes gazing at a pile of dust in a corner. "Not one we've found. You can try scheduled date nights, but it banks on you both not being emotionally exhausted. And when Cale gets stressed, he gets a bit spontaneous, so... planning is hard."
+
+Asuna went quiet, and Astrid returned to filing papers and folders away. The hum of the ancient yellow light bulb that lit the room filled the otherwise silent moment.
+
+"Am I making a mistake?" Asuna finally asked.
+
+In two swift strides, Astrid was back at the phone, switching it to handheld mode. Her grip was tight; the edges bit into her palm.
+
+"No. If Hawthorn matters to you even a fraction of how much Cale matters to me, you grab onto that love and you never let it go. I promise you, having spent a third of my life pushing it away out of fear, you do not want to miss out on a single minute of an important connection. Especially not for something as stupid as 'time and stress management is hard'."
+
+The light flickered with a soft buzz as Asuna processed the response.
+
+"Thank you, I need to go."
+
+Astrid felt the shadow of a smile play across her lips. "Glad to be of help, my consultation hours are always open. I do hope you know *you're* on call now for the days when Cale decides to up his stupid game."
+
+"I look forward to it—an exclusive backstage pass."
+
+They shared a laugh.
+
+A moment later, the call ended, and Astrid returned to her remaining two folders.
+
+It most certainly had been difficult.
+
+Like Diego had said, you never seem to stop discovering layers of yourself and each other.
+
+But it was worth it.
+
+As Cale put it: "iterate, analyze, consult, repeat".
+
+The last folder slipped into place.
+
+The white light of the hallway filled the room as she opened the door, briefly fighting back the yellow glow.
+
+She turned off the light, leaving the stuffy room behind, hopefully for a good while.
 
 **Asuna**
 
-Asuna hung up the phone, staring out over the Tokyo skyline from Hawthorn’s apartment. A light breeze rippled her hair and dress as she collected her thoughts. Astrid hadn’t told her anything she hadn’t known, she just needed to hear it said out loud. That was often how consultants worked. But she was resolute now. This *was* the direction she wanted to go in life.
+Asuna hung up the phone, staring out over the Tokyo skyline from Hawthorn's apartment.
 
-Hawthorn had suggested just under a year, next April, that she drop the Idol mask for good. They didn’t know how, but she liked the time frame. It was aggressive but some of the more tactical moves she already had lined up positioned them well for it. The revenue loss from Mimi Galaxy would be *huge* though, there was no way to overstate that. They had a lot on their plate.
+A light breeze rippled her hair and silk blouse as she collected her thoughts.
 
-But she knew one thing tonight. Whatever her plans, whatever move in life she would make, whether it be the downfall of a legacy or a rising of something greater, Hawthorn would be part of it.
+Astrid hadn't told her anything she hadn't known; she just needed to hear it said out loud.
 
-She silently opened the sliding door, smiling at the silhouette of Hawthorn’s toned arms sprawled out on the couch, facing the TV which was providing an update on the American stock market.
+Asuna was just scared.
 
-The door closed with a soft thud, sliding slightly faster than she expected. His head turned back, noting her smile.
+She rolled the hem of her blouse between two fingers while gazing at a not-so-distant building-mounted LED billboard with Mimi's own face staring back.
 
-“They’re open for consultation?”
+That day, the stabbing and the anxiety attack had shaken her to the core. For a moment, she had been convinced that dropping Mimi altogether would be the only possible outcome that didn't see her dead from a heart attack.
 
-“I got some light off-the-records advice, their availability for something more binding will line up with our schedule though.” She stepped slowly and carefully, as if any noise caused by her feet would disrupt her resolution.
+And she liked Mimi.
 
-“Well that’s excellent. What was their immediate advice, I’m curious?” His eyes followed her hand as she tapped the remote, turning off the TV. She briefly stood in front of him, their eyes locked, a smile began to form on his face. She climbed on his lap, closing his legs so she could straddle him, and pressed her lips up against his.
+Mimi was part of her.
 
-They held each other in that position for some time, the first time that *Asuna* had kissed Hawthorn. The implication didn’t seem to be lost on him, as he let the kiss linger softly as if it was the first time. No wigs, no costumes, just Asuna and Hawthorn.
+"No regrets" had been easy when those who felt the impact of misinformed decisions were either herself or employees who could just find a new job.
 
-He pulled back briefly, “That’s a hell of a legal adviser, their portfolio must be very diverse.” He chuckled. Asuna smiled, then continued to chase the kiss. It deepened as they let themselves succumb to much more than simple love, letting passion guide them into a fittingly climactic end to an already energetic and emotional day.
+But... now...
+
+The more she was able to think about her... no, *their* future, the more she understood why Hawthorn had such a hard time accepting his past.
+
+Asuna silently opened the sliding door and stepped into the apartment, eyes trained on the back of the man she loved, who sat sprawled with arms hooked around the back of his futon. The American news played softly, though she knew his eyes were staring mindlessly past stock updates.
+
+She stepped softly along the carpet, surrounded by walls covered in paintings of various shapes and sizes. Half of them had been picked out by her, half by Hawthorn.
+
+Hawthorn's head turned as he picked up on her presence, noting her soft smile. "They're open for consultation?"
+
+Asuna shrugged. "They provided some light off-the-record advice. But availability for anything more formal will need to wait; it should line up with the schedule I have in mind."
+
+"Well, that's excellent. What was the immediate advice?"
+
+Asuna tapped the remote, and the TV turned off, before positioning herself with her arms crossed in front of her "less-complicated".
+
+Her phone buzzed.
+
+She didn't even check it, instead tossing it to the side with a soft thud against the carpeted floor.
+
+"Skill gap analysis," she stated, crossing her arms with a grin.
+
+Hawthorn's lips curled up, and his arms extended forward to grab her by the hips. "Hell of a legal adviser, their portfolio must be very diverse."
+
+Asuna climbed onto his lap, straddling his legs, and pressed her lips against his.
+
+Their first kiss had been passion-driven and lustful. If it hadn't been in the middle of a stage... well...
+
+But here, now, outside of the outfit, outside of the chaos that was a concert, Asuna got to *truly* kiss the man she loved.
+
+She inhaled, his musk consuming her as every piece of her melted down into the singular point of connection between their lips.
+
+This kiss was different from the one earlier. It didn't channel emotions; it didn't carry hunger, possession, or illogical, emotionally driven commitment.
+
+It was a signature.
+
+A contract.
+
+A promise.
+
+Asuna leaned back, staring into brown eyes—the only eyes she felt comfortable with staring back.
+
+A pair of matching staggered breaths filled the silent room.
+
+Asuna leaned in again and kissed deeper this time as a hand ran up the back of her blouse.
+
+Now that the necessary paperwork was signed and filed, the real business could begin.
