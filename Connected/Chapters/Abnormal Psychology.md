@@ -4,9 +4,17 @@ Zoey's steps today carried her with a level of perk and bubble that could only b
 
 She was prone to a good frolic on the way to class. Because Zoey frolicked.
 
-It was the number one rule of Zoey. Zoey did not stroll, she did not pace, she did not even walk. Sometimes she might skip, on occasion she would scamper, but most importantly, she would *frolic*.
+It was the number one rule of Zoey. Zoey did not stroll, she did not pace, she did not even walk. Sometimes she might skip; on occasion, she would scamper; but most importantly, she would *frolic*.
 
-Today, her frolic had extra lift; her feet and the ground played the part of rivals as she swirled and twirled through the halls. Her straight and well-combed black hair, lined by a single pink stripe, swayed in perfect tandem with the skirt of her white sundress.
+**Now, I try to be quite clear when I am interjecting with my own narrative perspective rather than in-character introspection. This can seem blurry at times, especially for characters like Cale and Zoey who have a rather... oh, what's a word... whimsical view of the world.**
+
+**Some of you might be asking, "Is this girl** ***actually*** **wandering around and listing out rules for herself in her head?"**
+
+**The answer is yes.**
+
+**Yes, she is.**
+
+Today, Zoey's frolic had extra lift; her feet and the ground played the part of rivals as she swirled and twirled through the halls. Her straight and well-combed black hair, lined by a single pink stripe, swayed in perfect tandem with the skirt of her white sundress.
 
 She, of course, needed to ignore the occasional "Zoe, watch out!" or "Incoming Zoey!" that came from various members of the passing crowds. They didn't understand, they didn't *know*. How could they? If they did, then they would be frolicking too.
 
@@ -17,6 +25,14 @@ For on Zoey's phone, sent last night by her cousin, was certifiable proof of the
 It was a simple fact, but it was the glue that held the entire universe together: That Love. Would. *Always*. Triumph.
 
 Well... with one exception, but it was a complicated and dumb exception.
+
+Anyway.
+
+**For those of you now wondering, "Is this girl really deflecting her own thoughts?"**
+
+**The answer is also: yes.**
+
+**Yes, she is.**
 
 Finally, though, her cousin, Cale, and his not-so-secret lover, Astrid, could be open about their own love.
 
@@ -30,7 +46,9 @@ Zoey wondered how long it would be until Astrid discovered Cale's secret job as 
 
 She performed yet another twirl as she rounded a corner.
 
-"Zoe, cuz, yell corner or something," Kev yelled back to her as she barely avoided a collision. She ignored him, beaming at Sarah as she passed a short way behind.
+"Zoe, cuz, yell corner or something," Kev yelled back to her as she barely avoided a collision.
+
+She ignored him, beaming at Asher as he passed a short way behind. The boy met her gaze briefly, but simply continued walking, mumbling to himself and holding a spiral notebook to his chest like a shield.
 
 It wouldn't be inaccurate to describe Zoey as a popular girl. But it wasn't a rule of Zoey; Zoey did not need to be popular. It was more of a side effect.
 
@@ -40,9 +58,17 @@ It wasn't quite like how her cousin was social; Zoey didn't *network*. However, 
 
 Which led to the third rule of Zoey: Zoey was charming.
 
-She needed Zoey to be charming. How else would people let her explore their love lives? How else would she know the reason that Sarah was trailing merely a few feet behind Kev earlier? Or that Josh and Justin had a favorite broom closet? Or that Mia had her eyes on Asher, but would never admit it?
+She needed Zoey to be charming. How else would people let her explore their love lives? How else would she know the reason that Mia was standing next to the window and pretending that Asher *hadn't* just passed? Or that Kev and Justin had a favorite broom closet?
 
-It was never about her, though. That was the final rule of Zoey: never focus on Zoey. She didn't think about that rule a lot. It was a dumb rule. The sources of that rule were complicated and not the type to make one frolic, and not frolicking, as established in rule one, would be distinctly *not-Zoey*.
+It was never about her, though.
+
+That was the final rule of Zoey: never focus on Zoey.
+
+She didn't think about that rule a lot.
+
+It was a dumb rule.
+
+The sources of that rule were complicated and not the type to make one frolic, and not frolicking, as established in rule one, would be distinctly *not-Zoey*.
 
 But it was still a rule, a piece of the delightfully and perfectly crafted Zoey. Every thread, every button, every patch had a purpose. And that purpose was: to bring *joy*.
 
@@ -160,9 +186,9 @@ The girl... well... she plopped. The couch bounced as she fell backwards down ne
 
 Naina had limited experience with social interactions.
 
-Now, there had not been many people she had sat next to in her life, at least that she could think of. But she was *pretty* confident that the amount of space that this girl, Zoey, had left between them was *just* a tad less than what would be expected in a standard interaction.
+There had not been many people she had sat next to in her life, at least that she could think of. But she was *pretty* confident that the amount of space that this girl, Zoey, had left between them was *just* a tad less than what would be expected in a standard interaction.
 
-Naina could be wrong, but "knees brushing together" didn't feel like a necessary part of such a casual social exchange. But this Zoey seemed to be a *tad* more social, so Naina deferred to the expert.
+Naina *could* be wrong, but "knees brushing together" didn't feel like a necessary part of such a casual social exchange. But this Zoey seemed to be a *tad* more social, so Naina deferred to the expert.
 
 For reasons beyond her comprehension, Naina decided to commit to the exchange instead of scurrying away and hiding, which would, of course, have been the logical decision.
 
@@ -190,7 +216,7 @@ A short, nervous laugh erupted from Zoey, but her body relaxed, resuming a sligh
 
 This was clearly some social nuance that Naina didn't understand. She was OK with accepting that. There were many such nuances that she didn't understand.
 
-Naina studied the girl's face for a moment, avoiding the eyes, then found herself looking down at her textbook, which was opened to a page titled "Symptoms of Undiagnosed ADHD".
+Naina studied the girl's face for a moment, avoiding the eyes, then found herself looking down at her textbook, which was opened to a page titled "Symptoms of ADHD".
 
 Everything clicked into a pattern.
 
@@ -286,9 +312,9 @@ Textbooks lined the desk neatly and appeared to be alphabetized. School supplies
 
 Naina's mind spent a moment puzzling over how the snacks were organized, but she tore her attention away from the task in an attempt to focus on her new friend.
 
-From what Naina could remember, over-organization was often a compensation, masking, or defense mechanism for ADHD. If true, this girl had much more control over her diagnoses than Naina did, and Naina admired that. Though Naina was sure the effort was exhausting and counterintuitive.
+From what Naina could remember, over-organization was often a compensation, masking, or defense mechanism for ADHD. If true, Naina was sure the effort was exhausting and counterintuitive.
 
-"Your room's much more organized than mine," Naina noted with a touch of admiration.
+"Your room's much more organized than mine," Naina noted, not really sure what else to say.
 
 "It's how I was raised. Everything has a place." Zoey began to switch some wires from a cathode-ray TV to a flat-screen TV. Both sat on a wooden TV stand a few feet away from the foot of what appeared to be her bed.
 
@@ -296,7 +322,7 @@ Naina cocked her head. "To help... stay focused?"
 
 "No, it's just... how my dad is." Naina could see Zoey pause briefly before she quickly added, "Your room isn't organized?"
 
-Now, Naina was bad at reading people, but she couldn't help but think the girl had just deflected. It would be rude to pry, right? Naina quickly concluded it would be rude to pry.
+Naina was bad at reading people, but she couldn't help but think the girl had just deflected. It would be rude to pry, right? Naina quickly concluded it would be rude to pry.
 
 "It's... I know where everything is. Except when I don't. Sometimes things... teleport." Naina didn't know how to put it into words. She had a vague impression of where everything in her room was located. But there was a learned uncertainty with how accurate that impression was.
 
@@ -336,9 +362,15 @@ Zoey giggled. "Oh no! We're friends. I introduced her to her boyfriend. She sort
 
 "There might be. But who follows rules? What are they going to do? Kick them out of college for having an adult relationship?"
 
+**Now, for those of you wondering, "Didn't Zoey start her introduction listing off an entire list of rules for herself?"**
+
+**Three for three! Your intuition is on point this chapter, well done!**
+
+**Welcome to Zoey.**
+
 The assertion left Naina speechless. The rules were important, right? Why make them if you're just going to ignore them situationally? Or, once again, was that a Naina thing?
 
-"I don't have a roommate either. They transferred to Main Campus this year. And I think the college just forgot about me."
+"I don't have a roommate either," Naina said, "They transferred to Main Campus this year. And I think the college just forgot about me."
 
 "Oh, that sounds lonely."
 
@@ -372,9 +404,9 @@ Naina blinked as a smile slowly crept onto her lips. It felt foreign, yet satisf
 
 Naina leaned forward, attempting to see the TV. She had to squint. "Can I sit on your bed?"
 
-Zoey giggled again. She did that a lot, it seemed. Maybe the fanfics didn't lie about giggling endlessly.
+Zoey giggled again. She did that a lot, it seemed. Maybe the fanfics didn't lie about giggling endlessly. Naina just hadn't actually expected golden retrievers to exist in real life.
 
-"Rule two: No asking permission. And rule three: no overthinking."
+"Rule two: No asking permission. And rule three: no overthinking," Zoey said.
 
 No overthinking? Well, clearly, Naina needed to think to some extent. She couldn't just... do everything that popped into her mind. There were many things that flew into her mind. The more intrusive ones, especially, were not to be acted on.
 

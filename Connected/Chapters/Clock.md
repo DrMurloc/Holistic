@@ -22,11 +22,11 @@ It would be rude to say anything about it, of course.
 
 Who even has analog clocks anymore? What purpose does that clock serve? The time is displayed on literally every piece of technology in the room.
 
-Oh, wait, he asked a question. There's a talk track for this. "No. Everything was-"
+Oh, wait, he asked a question. There's a talk track for this. "Um... I remembered to fill my meds... so that helped. But otherwise... Everything was-"
 
 No, that talk track was out of date.
 
-Naina sat up. "Wait. Yes."
+Naina sat up, placing hands flat against the rough fabric of the couch. "Wait. Yes."
 
 This elicited an eyebrow raise from the therapist.
 
@@ -70,7 +70,17 @@ Wait, that wasn't right.
 
 Naina and Mr. Zimmerman turned their heads to the windowed door. A familiar grin beneath hazel eyes looked in at Naina, black and pink hair done back in a braid today.
 
-"My apologies, Miss Drab is-" Mr. Zimmerman started, seeming to want to explain Zoey's actions to Naina.
+Naina wasn't sure she'd seen that pink denim jacket on her before; it seemed slightly too large for her. Was that an intentional choice?
+
+Naina searched for a word.
+
+Cute.
+
+It was cute.
+
+Zoey was cute.
+
+"My apologies, Miss Drab is-" Mr. Zimmerman started, snapping Naina's mind back. He seemed to want to explain Zoey's actions to Naina.
 
 Naina was legitimately curious to hear if he *could* explain Zoey to her.
 
@@ -86,21 +96,19 @@ Naina couldn't quite tell if Zoey was exaggerating out of sheer ignorance or to 
 
 "It's been four days, Zoey." Naina shifted in her seat to face her friend, feeling much of the tension in her body drain.
 
-"Zoey, Naina's right, you can't-"
+The therapist's tone turned serious, "Zoey, Naina's right, you can't-"
 
-"No! It's Ok." Naina stated.
+"No! It's Ok. I consent," Naina stated.
 
 Mr. Zimmerman studied the two closely, seeming to deliberate on his following words carefully. He appeared legitimately baffled at what was playing out in front of him.
 
-"Naina, *Zoey* is your new friend?" He turned to Naina.
+"So... *Zoey* is your new friend?" He turned to Naina.
 
 "She called me a *friend*?" Zoey's eyes widened, and her bouncing increased.
 
 "Of course I did!" Naina grinned.
 
-Zoey fell back into the seat, grabbing a pillow and squeezing it with a squeal.
-
-Naina liked those squeals. They were the noise Naina made in her head at the peak of a good fanfic. It was pleasant to hear them out loud.
+Zoey fell back into the seat, grabbing a pillow and squeezing it with a squeal. Naina liked those squeals. They were the noise Naina made in her head at the peak of a good fanfic. It was pleasant to hear them out loud.
 
 Mr. Zimmerman continued to study both of them, no shortage of befuddlement on his face. He finally settled on the question he wanted: "And… that's helping?"
 
@@ -110,13 +118,13 @@ They turned to look at each other, and matching smiles emerged.
 
 The implication was not lost on Naina; this was far from Mr. Zimmerman's first interaction with Zoey. Though Zoey would *never* show it, she had been struggling. It was not a surprise, all things considered.
 
-"Well… don't look a gift horse in the mouth, I suppose." He leaned back, proceeding to clean his glasses.
+"Well… don't look a gift horse-" He began to mutter, but cut himself off. He leaned back, proceeding to clean his glasses. "We... really shouldn't continue with both of you here. There are all *sorts* of conflicts of interest."
 
 "Oh, Naina, come on! New movie, Enemies to Lovers, you'll never guess what the plot twist is!" Zoey grabbed Naina's arm and began to pull her up.
 
 Naina resisted, looking to Mr. Zimmerman.
 
-He shrugged. "It's your session, Naina. We only had ten minutes left."
+He shrugged. "It's your session, Naina. We had ten minutes left."
 
 Naina glanced up at the clock. When did that get so quiet? She thanked the man as she was dragged out the door.
 
@@ -132,17 +140,39 @@ The two began at a steady pace down the hallway. Naina folded her hands into the
 
 "So why Altoona?" Zoey asked.
 
-Naina could make out the sway of her dress as she lightly skipped along. How many calories did she burn from walking so energetically?
+**Now, for those curious, Zoey and Naina attended a rather large academic institution referred to as "Penn State".**
 
-Naina contemplated briefly; the decision had never really been presented to her. Not in a controlling way, it was one of many decisions that her parents had kept "simple" for her.
+**Penn State's main campus was notorious for two things: wild parties that left many curious how any student graduated with any brain cells remaining, and a rather popular physical sport where a ball that was not shaped like a ball, referred to as a "pigskin" though it contained no such thing, was carried by hand from one side of a field to another. Said sport was referred to as "football," though feet were rarely involved.**
 
-"My parents said that Main Campus would be too high-energy. Maybe they were worried I would get latched onto the party scene? You never know where you end up when chasing dopamine."
+**I don't pretend to understand sports; I tend to switch perspectives to one of my favorite sea-bound tiny crustaceans whenever Astrid watches them.**
+
+**In any case, the campus that Zoey and Naina attended was in Altoona.**
+
+**Altoona was a rather "dry" campus in a town about as interesting as a light-grey rock in a pile of white stones. What a "dry" campus meant was that instead of openly bringing alcohol into your dorm room before a party, students would place the bottles in their backpacks.**
+
+**In any case, it was quiet.**
+
+**Well, mostly quiet, but I doubt you'll see much of Rowan or Reina in this particular story.**
+
+**All of that to say, what Zoey was effectively asking was "what brings you to the least interesting campus of a rather interesting college".**
+
+**Where were we?**
+
+**Oh, right. Neurodivergent girls bonding.**
+
+Naina could make out the sway of Zoey's cream colored frilly skirt as she lightly skipped along. How many calories did she burn from walking so energetically?
+
+Naina contemplated briefly.
+
+Why Altoona?
+
+"I mean... I never thought about it. My parents said that Main Campus would be too high-energy. Maybe they were worried I would get latched onto the party scene? You never know where you end up when chasing dopamine."
 
 After a pause, Zoey's skipping slowed to a standard walk.
 
 Naina looked over to find the girl focused as if simply walking was difficult for her.
 
-"What are you doing?" Naina couldn't help but let out a laugh at the determination on Zoey's face.
+"What are you doing?" Naina asked. She couldn't help but let out a laugh at the determination on Zoey's face.
 
 "You said high-energy is bad."
 
@@ -172,15 +202,15 @@ Naina felt a brief surge of elation—the telltale sign of a fixation satisfied�
 
 The two came to a stop as their gazes turned back down the hall, realizing they were at a dead end. A glaring, red "EXIT" sign pointed behind them.
 
-"Where were we going?"
+"Where were we going?" Naina asked.
 
 "What? I don't know. I was following you."
 
 "Oh. Well, I need to go to the school store. I'm out of five-millimeter lead, and the seven-millimeter pencils make my skin crawl." Naina turned them back towards a staircase they had passed.
 
-"Why's that?"
+"Why's that?" Zoey asked.
 
-"I picture the lead poking into my skin when I click it out. Five millimeters is small and goes in fine, but seven would hurt."
+"I picture the lead poking into my skin when I click it out. Five millimeters is small and goes in fine, but seven would hurt." Naina had to hold the thought back to avoid making her skin twitch.
 
 "That makes sense."
 
@@ -188,7 +218,7 @@ Naina paused briefly. "Does it?"
 
 "No." Zoey giggled. The sound made Naina smile, and her gaze drifted up yet again to absorb the warmth of her friend's amusement.
 
-The two emerged from the staircase and crossed through the busy administration building towards two glass double doors.
+The two emerged from the staircase and crossed through the busy administration building towards two glass double doors. It felt like the various streams of students parted for them as Zoey skipped slightly ahead. The entire campus seemed to know to watch for her sporadic motions.
 
 "Do you have plans for after graduation?" Zoey continued.
 
@@ -206,7 +236,7 @@ Naina burst with excitement; she knew this line of thought. "When would we have?
 
 Zoey bounced slightly. "Like it was a daycare for us with the hopes that we'll figure life out before really needing to face it."
 
-They exchanged laughs as they emerged into the busy campus. A passing boy extended a fist out, which Zoey bumped with her own, returning a beaming smile.
+They exchanged laughs as they emerged from the building and into the busy campus. A passing boy extended a fist out, which Zoey bumped with her own, returning a beaming smile.
 
 The interruptions were, of course, simply a bonding mechanism; it was exciting to find yourself thinking the same way as someone else or identifying a shared experience.
 
@@ -230,7 +260,7 @@ Wait, Naina had been saying something important. Where was she in that thought?
 
 Ah, right.
 
-"Thank you. Mom had connections that could get me a job. They're all logically good options... but... She doesn't understand. If it doesn't click into a fixation, I'm not going to do it. And I don't control what does and doesn't click. But... It's like when someone else makes a suggestion, no matter how good it is, it turns into the opposite of a fixation... As if it would be *painful* and *life-ending* to do what they suggested. But they're only trying to be helpful, and I don't want to let them down... so..."
+"Thank you. Mom had connections that could get me a job. They're all logically good options... but... She doesn't understand. If it doesn't click into a fixation, I'm not going to do it. And I don't control what does and doesn't click. But... It's like when someone else makes a suggestion, no matter how good it is, it turns into the opposite of a fixation... As if it would be *painful* and *life-ending* to do what they suggested. But they're only trying to be helpful, and I don't want to let them down... so-"
 
 "You lie and pretend you're doing better than you are." Zoey finished.
 
@@ -246,7 +276,7 @@ Just tell her parents, "I'm sorry, I'm biologically designed to take every sugge
 
 Naina hoped she wasn't being a negative Nancy.
 
-"I don't know, it's hard to tell if it's a fixation or a special interest. A simple, shorter-term mechanism to understand myself and others, or something I can actually commit to long term."
+"I don't know, it's hard to tell if it's a fixation or a special interest. Like... is it a shorter-term mechanism that my brain latched onto as a whim, or something I can actually commit to long term?"
 
 "Can it not be multiple things?"
 
@@ -264,7 +294,7 @@ Hours, days, sometimes weeks of a constant stream of direct and immediately cont
 
 With the fixation came routine. Both sides of Naina's diagnosis would be satisfied. Temporary bursts of euphoric mental stability.
 
-But then it would fade, Naina would get distracted. She would either get bored or a new fixation would overwrite the old one.
+But then it would fade, or Naina would get distracted. She would either get bored or a new fixation would overwrite the old one.
 
 A line of unfinished projects, never quite reaching value.
 
@@ -272,7 +302,7 @@ Stacks of unread books.
 
 Rock climbing equipment, when she had barely ever left the house.
 
-Her browser no longer showed the tab count; instead, it displayed a smiley face, from all the unfinished fanfics that remained open.
+Her browser no longer showed the tab count; instead, it displayed a smiley face from all the unfinished fanfics that remained open.
 
 Wasted money, wasted time.
 
@@ -302,9 +332,9 @@ Naina blinked, reality slowly seeped back in with a deeply inhaled breath.
 
 Birds chirped, students passed, and a soft wind blew. The campus was bathed in the sun's glow as a pocket of space in darkening clouds passed.
 
-The boys had left at some point.
+Naina's vision refocused, snapping to the girl who radiated positivity that made the sun feel like an amateur.
 
-Naina's eyes refocused, snapping to the girl who radiated positivity that made the sun feel like an amateur.
+The boys had left at some point; Zoey stood alone, skirt swaying with her hips. Though her smile beamed, Naina couldn't help but feel like there was concern in those hazel eyes.
 
 "What were we doing?" Zoey asked.
 
@@ -326,7 +356,7 @@ She needed to distract herself from that headspace; the spirals were dangerous a
 
 "Who were those boys?" Naina asked.
 
-Zoey giggled, yet again filling Naina's chest with warmth, "Oh! That was a boy and a girl. She was raised to be the boy her dad always wanted. The two grew up together; they had no idea they liked one another until a few weeks ago. It was cute."
+Zoey giggled. "Oh! That was a boy and a girl. She was raised to be the boy her dad always wanted. The two grew up together; they had no idea they liked one another until a few weeks ago. It was cute."
 
 "When did you meet them?"
 
@@ -346,11 +376,11 @@ And she hung out with Naina?
 
 "I don't know. Sometimes people look like they're... I don't know... missing something. And they just don't know what it is yet."
 
-Naina had looked like she was "missing something"?
+Naina had looked like she was "missing something?"
 
 Was that a look? Was it something her face had done? Did she always look like that? Was it unnerving to people? Could people *tell* she was Autistic?
 
-Naina had met several other neurodivergent people who were significantly more on the spectrum than she was. *She* was definitely able to identify them on sight.
+Naina had met several other neurodivergent people who were significantly more on the spectrum than she was. *She* was definitely able to identify them, practically on sight.
 
 Did she act like them? How *did* Naina act? Was it obvious?
 
@@ -440,7 +470,7 @@ The room smelled of popcorn; the people next door must have made some.
 
 Naina rolled off the bed, grabbing a bag from Zoey's stash.
 
-"I don't think people quite know how to deal with the spectrum yet. It's all new, and there's a lot of mixed information out there on how it works. My family is supportive, maybe *too* supportive to the point where I feel... ostracized. And it's hard to tell if that's just me overanalyzing versus people acting differently. Self-perpetuating problem."
+"I mean... I don't think people quite know how to deal with the spectrum yet. It's all new, and there's a lot of mixed information out there on how it works. My family is supportive, maybe *too* supportive to the point where I feel... ostracized. And it's hard to tell if that's just me overanalyzing versus people acting differently. Self-perpetuating problem."
 
 Naina placed her phone on top of the microwave.
 
@@ -453,8 +483,6 @@ Her phone wasn't there... What?
 Naina got back up, looking around at the bed. She had just been lying right here with it... Had it fallen?
 
 "I think I had the opposite problem," Zoey finally stated, in a relatively somber tone.
-
-Naina was still unsure if Zoey knew she had ADHD; it didn't really matter. The girl knew that she was different and had adjusted relatively well to it.
 
 Naina waited for Zoey to clarify more, but she didn't.
 

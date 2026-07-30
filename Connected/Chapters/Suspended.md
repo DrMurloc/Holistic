@@ -1,18 +1,34 @@
+**Cale**
+
+Cale groaned, fingers tapping in rhythm against the finished hardwood of his desk as his eyes skimmed the SOC2 audit. If he squinted *really* hard, the text *almost* began to resemble the shape of literally anything other than the most soulless and tedious of bureaucratic bullshit.
+
+He-
+
+**Uni**
+
+Oh.
+
+Wait.
+
+Wrong perspective.
+
+Apologies. To say "I haven't been feeling myself" lately would be an understatement in every sense of the phrase.
+
 **Asuna**
 
 Asuna and Hawthorn were suspended.
 
-They stood before a vast circular tube of deep blue. The tube dove down many floors, straight through the center of the large aquarium. Muffled echoes of footsteps and distant laughing children barely registered.
+They stood before a vast circular tube of deep blue. The tube dove down many floors, straight through the center of the large aquarium. Echoed footsteps and the distant laughter of children enveloped them.
 
-Asuna was out as herself for the first time, though the contacts remained in.
+Asuna stared at a reflection of herself, warped only slightly against the soft curve of the tank.
 
-Her body held its tension—not from the threat of recognition, but from expecting an anxiety that never materialized.
+Well, almost herself.
 
-It, of course, ran the risk of recognition. More devoted fans were aware of Asuna's identity.
+The brown contacts remained, though her black hair fell loosely to her back.
 
-But in the grand scheme of things on her plate, she had stopped caring; Naomi was too much of a pain in the ass to sustain.
+Like this, she risked recognition. More devoted fans were aware of Asuna's identity. But in the grand scheme of things on her plate, she had stopped caring; Naomi was too much of a pain in the ass to sustain.
 
-Nothing could be seen from this top floor, only a blue that engulfed the two, the glass reflecting their confident, yet contemplative, cross-armed postures.
+Nothing could be seen in the tank from this top floor, only a blue that engulfed the two, and the reflections of their confident, yet contemplative, cross-armed postures.
 
 Hawthorn looked straight ahead, and Asuna watched his image in the reflection. Her longing to run her fingers along the light stubble he wore today went deeper than any blue an ocean could provide.
 
@@ -22,31 +38,23 @@ She wanted to tell him that there was nothing he needed to forgive himself for; 
 
 She *had* told him all of that.
 
-And she had *always* known that simply having the words wasn't enough.
-
-As much as it aggravated her to no end, she had done her part in helping provide perspective, and the rest was up to him.
+And she had *always* known that simply having the words wasn't enough. As much as it aggravated her to no end, she had done her part in helping provide perspective, and the rest was up to him.
 
 So she did more by doing less.
 
-Hawthorn shook his head lightly, almost imperceptibly—a movement only Asuna would pick up—and turned to begin their journey down into the depths. Asuna matched his pace, intimately close but not touching; he kept it deliberately slow so her shorter legs didn't have to work extra hard to keep up.
+And it was filling every nerve in her body with vibrating static that she now knew to be anxiety.
 
-He was trying. For her. Asuna knew it.
+Hawthorn shook his head lightly, almost imperceptibly—a movement only Asuna would pick up—and turned to begin their journey down into the depths. Asuna matched his pace, intimately close but not quite touching; he kept it deliberately slow, so her shorter legs didn't have to work extra hard to keep up.
 
-And she loved him for it.
+She could feel her phone bounce against her leg in the long skirt she wore. Her brain reached for it, desperate to check the status of stagehands and equipment logistics. A truck was reportedly going to be late, and she was physically *itching* for an update.
 
-There was no way around that word anymore.
+Hawthorn was trying. For her. Asuna knew it.
 
-It was an inefficient word, carrying implications that only complicated things.
+And she was trying for him.
 
-It had been so much simpler in those first few days when Asuna thought she was finally getting a real, physical, adult relationship that could act as an anchor point to stabilize around.
+*"Work-life balance."*
 
-It had been... tactical. And Asuna could do tactical.
-
-But love... a future. An *unknown* future. That was strategic.
-
-And if there was *one* thing that Asuna had learned from Hawthorn, it was that strategy was *fucking* hard. And complicated. And while, in theory, it always held strong, in practice, it never worked exactly the way you wanted.
-
-And that scared the shit out of her.
+That's what this was, right?
 
 The next floor opened up before them, and they found their place yet again, standing before the tube, reflections staring back at them.
 
@@ -66,15 +74,13 @@ With the Mimi Galaxy concert tomorrow evening, it almost felt like he was workin
 
 Asuna hoped fervently that he wasn't burning himself out. She would be patient. The opportunity costs of this investment still did not exceed the potential return, not by orders of magnitude.
 
-And Asuna?
-
 She had compiled a list of verticals and investments to investigate: v-tubers, expanded merchandise, additional collaboration options, and additional idols; the list felt endless. She had enjoyed assembling it.
 
-But it all hung, unactioned, on a single question: "Who the fuck are you?"
+She hadn't told Hawthorn about any of it.
 
-So here they were.
+She didn't want to weigh him down.
 
-Hawthorn suspended in the past, and Asuna suspended in the future.
+She felt quite guilty for having compiled it all in the first place, not to mention all the time she had spent secretly recording... She was clearly ignoring his advice. That was... wrong, right?
 
 Hawthorn turned and led them further down.
 
@@ -82,9 +88,11 @@ Asuna's breath caught as the next section of the tube came into view.
 
 She momentarily fell behind Hawthorn, taking in the giant, spotted behemoth that swam before them.
 
-Asuna scurried ahead, pressing her hands up against the glass, eyes going wide with wonder. The cool surface fogged beneath her breath between her fingers.
+The energy inside of her shifted to a pleasant thrill.
 
-Hawthorn joined her shortly after, and she felt his eyes on her reflection. He snorted, and she could make out a smile attempting to break through the stone. He found it amusing whenever Mimi emerged.
+Asuna scurried ahead, unable to keep Mimi held back as she pressed her hands up against the glass, eyes going wide with wonder. Her breath fogged the cool surface between her fingers.
+
+Hawthorn joined her shortly after, and she felt his eyes on her reflection. He snorted, and she could make out a smile attempting to break through the stone.
 
 Asuna flashed him a grin, but quickly reeled it back to a smile, not wanting to cause any nostalgic pains.
 
@@ -92,67 +100,61 @@ He smirked and patted her on the head like a child. Asuna growled, though she kn
 
 Her eyes turned back to the whale shark, following its graceful, unstoppable curve along the glass walls. In the distance, she could make out the black and white fish continuing its lost, dazed dance.
 
-Asuna wasn't even quite sure how to approach his question, though.
+She had no fewer than three verticals she wanted to dig into and better document.
 
-It was like Hawthorn said: even she felt like she was ten people packed into one. It didn't feel like an identity crisis... Each mask carried a piece of her, even if each had been forged through necessity. Naomi was the only true mask, one forged to blend in and abide by societal norms to a T. The rest had a function that evoked a piece of her.
+Earlier in the morning, she had done a few searches into the open-world action market and realized how much overlap it had with the assets she wanted to build for other fronts. The need to dig in further and uncover the full problem space *screamed* up at her from her phone. She needed to-
 
-But there was conflict: she was only *one* person. She *couldn't* do everything.
+No.
 
-Right?
+She bounced on her toes, shaking out some of the static energy. She refocused on the distant lost fish.
 
-That was what had gotten her into this mess in the first place: doing everything.
+Then there was the first question.
+
+*"Who the fuck was she?"*
 
 Did she want to write songs? Continue a legacy? Sing? Perform? Coordinate? Empower others? Race horses?
 
 Probably not that last one.
 
-Otherwise, she felt that, in many ways, the answer was "yes".
+The most prevalent symptom of burnout recovery was the craving to throw yourself right back into the fire.
 
-But as Hawthorn said, passion was the core of quality. And maintaining passion on every front would burn her out.
+Was that what she was doing?
 
-The most prevalent symptom of burnout recovery was the craving to throw yourself right back into the fire. Was that what she was doing?
+Was she overcompensating for her past, or was business her "Painting"? How do you have work-life balance when your work is your life?
 
-As the giant beast turned its way down, Asuna turned to follow it with enthusiasm. Hawthorn trailed behind; she could feel his gaze on her, maintaining his own brooding, slower pace.
+As the giant beast turned its way down, Asuna turned to follow it with enthusiasm. Her rapid and soft steps echoed through the hallway. Hawthorn trailed behind; she could feel his gaze on her, maintaining his own brooding, slower pace.
 
-There were several more schools of fish on this floor, though the whale shark still dominated the view. The tops of coral towers indicated that the sea floor was only one more flight down.
+Several schools of fish came into sight on this floor, though the whale shark still dominated the view. The tops of coral towers indicated that the sea floor was only one more flight down.
 
 The two resumed their positions by the glass, although Asuna turned her gaze up to Hawthorn. His eyes were lost deep in the tank, focused.
 
-She followed his stare to the black and white fish.
+She followed his stare to the black and white fish. Down here, in comparison to many of the other fish, it didn't seem so small. But it still appeared very lost.
 
-Down here, in comparison to many of the other fish, it didn't seem so small. But it still appeared very lost.
+Asuna's eyes turned back to Hawthorn. The minor fluctuations in his cheeks indicated that he was most certainly working double time.
 
-Asuna's eyes turned back to Hawthorn. The minor movements in his cheeks indicated that he was most certainly working double time.
+She wished she knew what was going on in his head.
 
-Though it had been weeks since Asuna had been hooked up to the monitor, their hearts were still connected. She could feel that pain. Though the physical tears had dried up over the weeks, the wells of sorrow still existed, and she felt that.
+Asuna's phone buzzed, and she slid her hand into her pocket and froze.
 
-Asuna's hand lifted hesitantly. Hawthorn's eyes followed it in the reflection, though he otherwise remained unmoving. The hand paused.
+Hawthorn's gaze flickered over with narrowed eyes.
 
-She wanted to help, but was she going to hurt him again?
+Checking the phone would be wrong... right?
 
-She needed to try.
+She wasn't quite sure how to read that gaze. Was it disapproval, or was he still lost in thought?
 
-The hand continued its journey up, hovering just above a sturdy cheek. Hawthorn's head tilted ever so slightly, seeming unsure, himself, on what his reaction would be.
+She pulled her hand out, though her muscles remained stiff with the need to check the message.
 
-Her fingertips made light contact.
+She needed to show she was fine. He needed her to be fine. He had his own problems.
 
-The feel of his light stubble felt forbidden, and caused her breath to catch.
+She smiled.
 
-Hawthorn's gaze lingered on the hand for a moment, but then turned to meet Asuna's eyes.
+Naomi's smile.
 
-*Our hearts are connected*.
+Shit.
 
-With that thought, Asuna smiled.
+There was no way he'd buy it.
 
-It was a warm and honest smile. Affectionate.
-
-A smile that Hawthorn had taught her.
-
-Hawthorn returned the smile, unflinching, and raised his own hand to Asuna's cheek. Her eyes fluttered shut momentarily at the surprisingly delicate feeling.
-
-The moment didn't last long; they were both very aware of how strange they must look. And Asuna was still not keen on standing out.
-
-Hawthorn broke the moment and continued down the path.
+Hawthorn raised an eyebrow, and his mouth opened as if to comment. Instead, he shook his head and continued down the path.
 
 The two emerged onto the final floor.
 
@@ -166,8 +168,8 @@ Asuna cycled through a deep breath, then leaned against Hawthorn's arm, her head
 
 Hawthorn shifted his arm, placing it around Asuna and pulling her against his body. The rise and fall of his chest soothed her, and she matched his rhythm with her own breathing.
 
-They were most definitely suspended. The storm had passed, and they remained clinging in a deep sea of blue.
+They were most definitely suspended.
 
-But now all they needed to do was settle on their direction.
+They had rested and recovered through the worst of it.
 
-And then they would swim.
+But while Asuna had expected calm waters on the other side of the storm, all she had found was an eternal gale.

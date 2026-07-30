@@ -20,9 +20,27 @@ He hadn't even touched the colors! That had been a padding change!
 
 What in god's name was he doing wrong?
 
+**Now, those familiar with the ritual of masochism that Leo is partaking in have already answered Leo's question.**
+
+**What is he doing wrong? He's attempting to style a website.**
+
+**It's important to note that Leo is a rare breed of human called a "UX" expert. UX is a cheeky short hand for User Experience. He specializes in understanding, or pretending to understand, how people interact with products.**
+
+**Philosophically, this means collecting extensive user feedback and staring at heat maps of where people do and don't click to identify both "who" is using a website and "how" they are using it.**
+
+**In practice, the job plays out as "how do we reduce the number of clicks that exist between a user landing on a website and giving us money?" This is because, while humans like to pretend "capitalism" — the most prevalent form of sociological contract — is about optimizing product value and aligning goals with consumer needs, in reality, the majority of money exchanged hands based on how thin the wall was between an impulse or hyper-fixation and its target.**
+
+**Most UX specialists grow bored with simple click-count reduction and like to pretend they can understand the human psyche through button sizes or colors.**
+
+**Leo was such a specialist.**
+
+**Of course, as Naina would likely point out, such an effort was Sisyphean at best.**
+
+**That would not stop Leo from trying.**
+
 Leo picked up his phone and kicked against the desk back, sending his chair into a light spin.
 
-He scrolled through new scores in the community Discord, leaving various emojis of support. He skipped over May's scores from last night; his leaving an emoji would be too much of an implication. He wasn't sure what would be implied, but it would most definitely be an implication.
+He scrolled through new scores in the community Discord, leaving various emojis of support. He skipped over May's scores from last night, leaving an emoji would be too much of an implication. He wasn't sure what would be implied, but it would most definitely be an implication.
 
 Wait...
 
@@ -32,9 +50,9 @@ He nearly removed the emojis from the other messages.
 
 But... if someone was watching, they would know what he was doing... That would look even worse.
 
-Leo stared at the phone, his finger frozen mid-air over the emoji button.
+Leo stared at the phone, finger frozen mid-air over the emoji button.
 
-It buzzed, and Cale's face appeared, causing Leo to fumble the device and emit a yelp that made him very happy that the house was empty.
+It buzzed, and Cale's face appeared, causing Leo to fumble the device and emit a yelp that made him very happy that his parents' house was empty.
 
 His heart rate slowly returned to normal as he contemplated.
 
@@ -48,7 +66,7 @@ Cale's voice erupted from the phone immediately. "Go the fuck to sleep."
 
 Leo looked around the room as if he would find Cale, but it was empty. His mom's house had been vacant ever since he moved in as his parents continued their "victory lap" around the world.
 
-Cale continued, as if he knew why Leo was baffled and silent, "The build automation is emailing me every time you merge; you have a paper trail going back to seven last night."
+Cale continued, "The build automation is emailing me every time you merge; you have a paper trail going back to seven last night."
 
 Oh, oops.
 
@@ -70,11 +88,13 @@ Leo didn't respond, but cursed silently as a single-digit adjustment caused the 
 
 "I don't-"
 
-"Dude. Astrid says she's been out there every day for the last month trying to fucking run into you while pretending she doesn't care. Meanwhile, you're refusing to leave your little mud bath of despair. I've had ten different community members ask me where you went."
+"Dude. Astrid says she's been out there every day for the last two weeks trying to run into you. Meanwhile, you're refusing to leave your little mud bath of despair. I've had ten different community members ask me where you went."
 
-Leo pushed his chair back from the table and gave it another good spin.
+Leo pushed his chair back from the table and gave it another good spin. His gaze drifted across a few scattered empty soju bottles. Discarded clothes that were a week or two overdue for washing.
 
-"Ok. So. I what? Show up, get laid, spend three days being happy on the surface, and then we fight? I end up right back here? What do you want, Cale? What's your proposal? What would you do? Because I'm hurting her."
+"Ok. So. I what? Show up, get laid, spend three days being happy on the surface, and then we fight? I end up right back here? What do you want, Cale? What's your proposal? What would you do? She needs more time. I *know* it."
+
+It would be a while until May would be ready to really talk. Leo knew it. Likely a month or two.
 
 He spun himself vigorously yet again.
 
@@ -82,13 +102,17 @@ There was a long pause, much longer than Leo had expected.
 
 "Yeah, you're not gonna want to do what I did."
 
-Leo ground his feet to a stop. "What you... did?"
+Leo ground his feet to a stop. "What you... Did?"
 
-Cale had clearly just admitted something he didn't want to, and the phone went silent for another few moments. Leo pulled the chair up to the desk, staring at the phone as if his gaze could reach through the phone.
+The phone went silent for another few moments. Leo pulled the chair up to the desk, staring at the phone as if his gaze could reach through the phone.
 
-"Astrid and I were... hurting one another. I spent literal *years* overengineering solutions, making them more complex than they actually needed to be. It became an obsession, Leo; it *consumed* me. I almost moved to Japan. You know how dumb that would have been?"
+"Leo. You *know* how obsessed I was. That never went away. Even after you... well..." Cale trailed off for a moment. Leo's mouth went dry as he waited for the words he knew would follow.
+
+Cale continued, "I almost moved to Japan. You know how dumb that would have been?"
 
 Leo stared at the endless mess of styling code that lay before him on the monitor.
+
+Those were *not* the words Leo knew would follow.
 
 "You almost moved to Japan," he repeated, as if saying them out loud would make them make more sense.
 
@@ -98,7 +122,11 @@ Leo stared at the endless mess of styling code that lay before him on the monito
 
 "Established."
 
-Leo looked over at the primary monitor, eyeing the almost immaculate elegance that the page *almost* reached. If he could just... figure out those last few pixels...
+And it was Leo's fault.
+
+Leo glanced to the side at his stacked pile of ramen cups and plates covered in crumbs.
+
+He looked back at the primary monitor, eyeing the almost immaculate elegance that the page *almost* reached. If he could just... figure out those last few pixels...
 
 He dragged the window through several screen sizes and realized the entire page collapsed into chaos on tablet-sized windows.
 
@@ -144,8 +172,6 @@ Rhythm games weren't complex in design; there was only one objective, and it tol
 
 Of course, the nuances of execution were what made it challenging. Toe placement, heel placement, more advanced charts would even have you use different grips on the bar, specific muscles could be engaged to maximize stamina, and how much you picked up your foot had a compounding impact on energy usage... the list went on.
 
-The phrase was a tongue-in-cheek phrase the community used to call out how complex such a simple game was.
-
 "But like, it's like I'm chaining greats on drills. Do I speed up or slow down? Or maybe it's a problem with the monitor? Do I try again and just turn on JT-5 and see if it's a song sync problem? Who knows, maybe the MK needs to be replaced."
 
 There was another pause. "Ok, Leo, you even lost me with that one."
@@ -164,13 +190,75 @@ Leo groaned. "Fucking leadership buzzwords."
 
 Keep things simple. Known knowns.
 
+But things *weren't* simple.
+
+"Cale... you... It's been ten years since-"
+
+"Fuck. Leo, I don't want to talk about that."
+
+Leo furrowed his brow. How could he *not*? The shit all three of them had done. The shit *Leo* had done... This whole mess was Leo's-
+
+"It's behind us, Leo. I know I have no right to say that, but... please." Cale interrupted Leo's thoughts.
+
+"Did you tell her?" Leo asked.
+
+There was a long pause.
+
+"Most of it. You were right; she didn't think the notebook was a boundary breach. It's weird, though, right?"
+
+Most of it...
+
+Leo sighed.
+
+They were talking. That was better than before, right? Maybe it was fine.
+
+That didn't make Leo feel any better.
+
+"It's not weird. People are just... unique." Leo typed out a few lines. Then erased them.
+
+Cale took a few moments to ask his next question. "Why... why did you ask about... Well..."
+
+"May says you objectify Astrid," Leo just let the words flow.
+
+There was a long pause. Leo could practically picture Cale pulling up several definitions of the word.
+
+"Went in with the low kick on that one, Leo," Cale said.
+
+Fuck.
+
+Leo had done it again. Why couldn't he keep his mouth shut?
+
+"That's not what-"
+
+Cale interrupted, "No, Leo. You're fine. I'm not offended. Yes. I would define it as objectification."
+
+What? May had been right.
+
+Cale continued, "Objectified myself, in hindsight. Stripped away my own agency and made everything about her. Not quite healthy, by any definition of the word."
+
+*Leo* had been right? It *was* complicated.
+
+They both had been right.
+
+"Astrid said she had a talk with May right after we got back. I'm assuming she had similar questions."
+
+Well... Leo had been dreading that conversation. And now he didn't need to have it.
+
+The thought freed up a few mental processors he hadn't realized were spinning.
+
+"Japan was good?" Leo asked, steering far from stuff he *knew* Cale didn't like talking about.
+
+"Superb. Phenomenal, even. You'd love it out there. Got Astrid to punch me twelve times in two weeks. It was amazing."
+
+Leo couldn't hold back a short laugh. "You two are weird. I love that for you."
+
+"I'm telling you, dude. Simple."
+
+Simple.
+
 He missed May.
 
-He knew that.
-
-Maybe the extended time away would have been enough for both of them to step back and take the deep breath they needed.
-
-Leo just hoped that she wasn't getting too pelted by her parents; he knew how hard it was for her to stay at home for long periods.
+He knew that. That was simple.
 
 The idea of walking into the arcade, pulling her off the cab mid-song, and kissing her while her body still pulsed with adrenaline, washed in the energy of thrumming bass, sent a tingly jolt up his spine.
 
@@ -186,7 +274,11 @@ Strange.
 
 He re-ran the site. The base component library was very practical, neither flashy nor extravagant, but effective and simple.
 
-Fine. Leo would do simple.
+Fine. Leo would do "simple".
+
+He needed to get out of the house, anyway. He knew it.
+
+And take a shower... His skin felt like it was crawling.
 
 Leo pivoted. "How's Astrid? How are you two doing?"
 
@@ -198,4 +290,4 @@ There was a long pause, during which Leo merged and watched the spinning build i
 
 "Yeah," Leo said as he hit the "release" button and pushed his chair back out to resume his spinning.
 
-"Ok, good. I need a few takes on Astrid."
+"Ok, good. I need a few takes. Got a potential project that I need to roadmap out. I need some sanity checks."

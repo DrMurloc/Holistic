@@ -2,127 +2,175 @@
 
 Sho and Lara found themselves in the late evening on the second-floor lounge of a burger café. A large window stretched next to them, overlooking the darkened street of Akihabara.
 
-A soda machine hummed nearby, a seemingly imperfect backdrop to an otherwise well-maintained and clean room.
-
-Several others, primarily young couples, sat scattered throughout the well-lit room.
+A soda machine hummed nearby, a seemingly imperfect backdrop to an otherwise well-maintained and clean room. Several others, primarily young couples, sat scattered throughout the well-lit room.
 
 It felt like a sanctuary —an escape from the chaos and uncertainty beyond the walls.
 
-The day had been *long*.
+Sho's ears still rang from the event, he was barely able to make out the sound of the mewing cat on Lara's phone while he typed on his.
 
-Sho was now the most veteran stagehand.
+*"Did we turn off the fog machine heating mechanism? I don't remember doing it. And someone took care of the dimmer racks?"*
 
-Kenji and Miss Morita were running a tighter ship, which allowed them to hire more but also scared off the... well, Ren. Haruki was the only other member of their original group left.
+Sho paused, replaying the evening through his mind as an airy laugh escaped Lara, likely from the video Sho had passed her of a cat missing a jump and taking a strip of wallpaper with it.
 
-It all seemed in preparation for this new "Harin" girl, who was poised to launch a new era of Project Galaxy. She was Korean and brought a very different type of energy than Mimi did. More on the badass K-Pop side than the traditional J-Pop "ultra-kawaii".
+He continued typing. *"Did we remember Miss Morita's microphone? She's not going to be terribly happy if we lose another one. And the coffee machine?"*
 
-Lara had said, culturally, it was a good move.
+Sho and Lara exchanged phones.
 
-She stated that Japan was moving towards Western individualism, capitalizing on performers who could sell the air of "I do what I want, *and* I'm still successful."
+He watched on her phone as the video she picked played out. It was a compilation of cats hopping into the snow. Sho could barely hold back a snorting, nasally laugh as one sank straight into the fluffy powder.
 
-Sho wasn't sure what she was talking about; *he* most certainly didn't feel a shift towards individualism.
+The phones exchanged again, and he gave her a compilation of cats triumphing over dogs.
 
-She got excited when she typed about it, though, and she was cute when she was excited; the more excited she got, the longer her messages would get. It was like she was *bursting* with cool cultural trivia just waiting to escape back into the world.
+She had typed, *"I'm pretty sure your crew took care of all of those. You trained them well. I saw Miss Morita with the microphone, though. It looked like she was looking for something else, though."*
 
-A group of friends laughing in the far corner briefly caught his focus, but Sho quickly re-engaged on a more pressing matter.
+Sho furrowed his brow.
 
-His eyes flickered from cat video to cat video, determined to find *just* the right one.
+*His* crew?
 
-The American, Hawthorn, was ever-present alongside Miss Morita.
+He typed back, *"I didn't train them. They just watched while I did everything, then started doing it themselves. And you sort of just always know what needs to be done."*
 
-Sho had a deep respect for that man. He spoke infrequently to the stagehands, but when he did, his words carried value and wisdom beyond Sho's comprehension.
+Another exchange. Lara's phone now displayed a series of cats walking around with fake arms drawn and business suits pretending to be professionals.
 
-Hawthorn made Sho's job feel like a proper career with meaningful long-term growth.
+Sho laughed loudly, enough to get a few heads to turn from nearby tables. He bowed to them apologetically.
 
-It was silly, of course.
+He passed back the phone with a litter of kittens attempting to make friends with a squirrel outside a screen door.
 
-Sho was just contracted help, nothing fancy.
+Lara had typed, *"I think that's training. They listen to you. Hawthorn seems to have his eye on you. I think you're his favorite. Even I can sort of see in your posture what needs to be done; I don't know how to describe it. We're all following you."*
 
-People listened to Sho on the rare occasions he did speak, though. He didn't quite understand why; maybe they were just entertaining his grand illusion of competence.
+Sho stared at the message for a long while.
 
-Sho's ruminations were interrupted by Lara's raised phone, displaying a video of a cat trying to fit into a box that was way too small.
+The American... Mr. Morisett... *had* given him a lot of focus... Miss Morita and he had been running a tighter ship, which scared off the... well... Rem. Was Sho the most veteran stagehand now? That felt strange.
 
-Sho laughed, turning back to his own search.
+He did understand what Lara was talking about. The two of them somehow had developed telepathic communication at some point, and with a single glance across the stage could say a thousand words in a moment.
 
-Work was pleasant, though, even if difficult.
+He typed back, tucking the thought away for later, *"What do you think of Harin? Or Kira Void, I guess."*
 
-Particularly working with Lara.
+Another round of exchanges later, and Lara had typed back, *"I'm glad they brought in a Korean! The whole Japan-versus-Korea thing is so outdated. She scares me, though. I can't read her. Which isn't saying much, but the way she just chews gum with that intense stare."*
 
-It was like they just... were on the same wavelength.
+Sho grunted in agreement, typing back, *"The audience seems to love it, though."*
 
-With a glance, even across the entire stage, they would just *know* what the other was looking to accomplish or find. It was hard to explain.
+Lara bounced in her seat. *"I think the generation that grew up with Mimi is looking for something a bit adult, but Mimi-adjacent. It's a good move on Miss Morita's part; she understands her target demographic well and is transitioning the attention carefully. I think I heard Mr. Aizawa say they were looking to hire more."*
 
-Sho enjoyed it. It was... efficient.
+Sho thought for a moment, then typed, *"What do you mean, target demographic? Don't you want just to make a good product?"*
 
-Talking was simply exhausting.
+Lara's fingers moved at a speed that would even leave a bald, white-caped, god-tier character gaping.
 
-Sho held up his phone with a video of a cat chasing a laser pointer off the side of a second-floor banister and landing on a table, knocking everything in all directions.
+*"Sort of? But everyone wants different things, even from country to country. From what I've seen, even anime has mixed responses depending on the country and the show. Different cultural expectations, different societal pressures and themes, different laws and regulations. I think Miss Morita is gearing up to target America, which is going through a big K-Pop craze right now. It would not have worked as well even ten years ago. It's very smart."*
 
-Lara laughed, the noise, as usual, filling Sho with the warmth that he craved.
+Sho blinked. Then typed back, *"There are really no easy answers."*
 
-He never dared ask about when Lara would leave.
+He hadn't typed it as a question... Had that been intentional?
 
-Hypothetically, it should be about now if she followed previous timelines.
+He was... smart. Right? He was supposed to find the answers, to know them.
 
-Sho dreaded the moment; the idea of her being missing in his life felt... *wrong*... at this point. He wasn't sure he could continue the regular cooking sessions without her there.
+Lara shook her head with a shrug. *"I have no idea what I'm doing either. I just wander."*
 
-But she never talked about leaving, either.
+That thought clicked somewhere deep in Sho.
 
-It gave Sho hope, but without any assertion that she *wouldn't* leave, he felt... trapped.
+What does she mean she doesn't know? She knew *everything*.
 
-There had been multiple nights of lingering at their doors, re-evaluating where they stood. Every single instance had resulted in the same outcome: Falling asleep alone and feeling snared by the drive for responsibility and respect.
+Sho squeezed his eyes shut, pushing a surge of frustration that threatened the edges of his brain.
 
-Lara held up a video of a cat jumping into the snow and sinking until it was well over its head.
+**Lara**
 
-More laughs.
+Lara felt her soul sink as she watched the tension build in Sho's face. The way his fingers pressed into the table.
 
-Every night, Sho found himself sitting closer and closer to her as they watched whatever anime was that evening's flavor. His mind was going crazy with her presence.
+His parents... whatever happened to them...
 
-He still wasn't sure what he would do once Lara mentioned leaving; he was worried it would be something absurd... dishonorable, even... to keep her.
+She knew he was struggling. She was trying to show him what helped *her*.
 
-It was like they were trapped in an emotional powder keg of hormones and desire, but he couldn't bring himself to light the fuse and deal with the consequences. He owed it to Lara and to his parents to be more thoughtful.
+All the facts.
 
-Sho held up a video of a cat attempting to attack itself in the mirror.
+The world is messed up, and stuff just... happens. Perfectly happy parents blew up over the smallest thing. People said things they didn't mean. She had her own relationships that started and ended over the dumbest of miscommunications.
 
-Another round of laughs.
+But it seemed like each chip she put in his perspective on the world just *increased* his frustration.
+
+Was she hurting him?
+
+Maybe it was time to be more direct.
+
+Lara pulled the phone back and typed a quick message before sliding it in front of Sho.
+
+**Sho**
+
+When Sho opened his eyes, he found himself staring at a different message.
+
+*"Are you OK?"*
+
+He stared at the message for a few moments, revisiting each character individually.
+
+He did a quick mental check. His parents seemed to be mostly approving today. The demons were held at bay, lingering at the windows but not quite encroaching.
+
+So... yeah. He was OK. Why wouldn't he be?
 
 They had their routine, their contract, their ritual... They were *happy*.
 
 This was what happiness looked like, right?
 
-The ritual was interrupted suddenly as Lara sat up.
+He began to type.
 
-Her phone was ringing.
+**Now, I do my best to show our cast's thought process, as a significant portion of their dialogue lives in their heads.**
 
-Her eyes rolled, and the surprise gave way to frustration. She seemed to contemplate whether to answer or not, then excused herself.
+**Trying to represent the** ***entirety of*** **background tasks running in Sho's mind right now would likely have added an extra page between each message.**
 
-Sho followed her movements, anxiety building at what could come with that phone call.
+**For those who are aptly noting, "and now Uni is going to spend an entire page overexplaining something that could have been quite simply conveyed in one or two lines earlier", congratulations, you are astute! Would you like a cookie? Also, I appreciate that you remembered I even have a name.**
+
+**Anyways.**
+
+**Sho's mental processes were currently operating on a cycle.**
+
+**He was quite prone to this cycle, and it followed him all day, every day. It went something like this:**
+
+**"Lara should have left by now." -> "But she didn't." -> "Does she want to stay?" -> "Is she staying because of me?" -> "No, that's impossible. She would have said something if that were the case, right?" -> "Maybe I should just be happy she's here now and not worry about the future." -> "Yes. I'm happy she's here." -> "Lara should have left by now."**
+
+**Lara's mind, meanwhile, as you saw briefly, was stuck in quite a bit simpler a cycle:**
+
+**"Please want me." -> "I want to help." -> "I think I'm hurting." -> "Please want me."**
+
+**All of that to say, this prisoner's dilemma of routine and fear of change had risen to a boiling point that had both of them ready to pop.**
+
+**Sho popped.**
+
+*"When are you leaving?"*
+
+Sho's veins froze as he slid the phone over, horrified at the prospect of playing this gacha game of rejection.
+
+Why had he typed that?
+
+Lara stared at the phone. Even the soda machine's humming seemed to question Sho's sanity at toppling this first domino.
+
+What had he done?
+
+Lara's phone vibrated violently, causing her to startle out of whatever thought had her mind.
+
+Her eyes rolled, and she gave an exaggerated sigh. She seemed to contemplate whether to answer or not, then excused herself.
+
+Sho followed her movements, barely daring to breathe as his mind raced on what could come with that phone call.
 
 **Lara**
 
-Lara emerged into the dark street, letting her Mom's call go unanswered while she cleared her head. The second-floor lounge cast a protective glow down onto her through the window.
+Lara emerged into the dark street, letting her Mom's call go unanswered. Her heart pounded, and her head swam, though something about the glow cast from the large second-floor lounge window felt protective.
 
 Lines of vending machines stretched along the wall nearby; the street was otherwise a series of locked-up, darkened shops. A variety of cartoonish characters and advertisements seemed to sag with exhaustion, their shoulders drooping from a day of packed streets and stores.
 
-Her heart was still thudding; it was growing harder and harder to be around Sho and contain herself.
+*"When are you leaving?"*
 
-His house felt like a home that she had lost years ago; his presence felt protective in ways that she never thought she needed. Their silent, yet efficient, cross-stage communication at work almost felt telepathic.
+The words felt imprinted on her mind.
 
-Lara had boyfriends before, at school in Los Angeles. Nothing ever got serious beyond kisses, though at least one of them had tried.
+Had he just deflected away from her asking about how he was doing? Or was he legitimately wondering when she was leaving? Was that his way to ask her to stay?
 
-But the feeling of being one with someone... *that* was new. And it had most certainly ground any and all plans of leaving to a screeching halt while Lara figured out what she wanted to do about that. And with every anime night, as she sat closer and closer to Sho...
+The concern... the anxiety... the happiness he brought her... the *urges* he stirred in her...
 
-It was as if they were packed into a cannon on the side of her ship, primed by hormones and desire.
+Her body was near ready to pop.
 
-She was growing increasingly tempted to simply light the fuse, cling to the iron ball, and deal with whatever consequences came with being anchored to the ocean floor after their brief and glorious launch through the air.
-
-Her phone rang again, and she picked it up with a sigh.
+Lara groaned as her phone began to ring again.
 
 She left her little sanctuary of light and proceeded to pace down the vending-machine-lit street.
 
+Her finger tapped the green "answer" button, and Lara immediately felt the criticism radiating from the earpiece. It pushed back her Sho... emotions... even if slightly.
+
 "Hello, Mom." Lara began the routine.
 
-"Don't you hello Mom me, mami. It's been a month! Why do you ignore me? Is it your Father? What has he been saying about me?"
+"Don't you 'hello Mom' me, mami. It's been a month! Why do you ignore me? Is it your Father? What has he been saying about me?"
 
 Lara avoided engaging on any subject related to her Dad, knowing the frustrating path of accusations and assertions they led to, "You don't need to worry about me, Mom. I've been doing this for almost two years now."
 
@@ -158,7 +206,9 @@ Lara's eyes rolled.
 
 She opened her mouth to follow the standard routine, but found herself pausing.
 
-Something about her many conversations with Sho about being lost, about having no direction, about pressures from both present and absent parents, motivated her to push back, even if only slightly.
+No.
+
+With all of the mess in her head, she did *not* have the energy for this today.
 
 Lara adopted a "cut the bullshit" tone that she learned from the very woman she spoke to. "What do you want me to say, Mom? We have this call every month. You know I'm going to keep travelling. You know neither Dad nor you is interested in making progress with one another. It stresses me out, it stresses Dad out, and I know it stresses you out. So tell me, what do you want from me?"
 
@@ -176,7 +226,7 @@ Was this another control mechanism?
 
 Her Mom continued when Lara didn't respond, "I do worry, though. The world is a dangerous place for a cute princesa like you. I will admit, from what I've read, Tokyo is fine as long as you're not wearing a skirt."
 
-She was actually caring.
+Had Lara... softened her by being direct?
 
 This was new; Lara didn't really have responses ready for it.
 
@@ -198,7 +248,7 @@ A lie, of course. Because Mom suggested it, there was *no* way that Lara would e
 
 Lara sighed. "The hostels are fine. They're very safe. But… I found a roommate. He's letting me stay for free."
 
-It slipped out before she could catch herself.
+It slipped out before she could catch herself. Stupid gendered languages.
 
 Her Mom's voice rose, cutting out across the silence of the night, "He? For free? Lara, mami, nothing is for free."
 
@@ -210,7 +260,7 @@ The cat startled and ran down the line of vending machines.
 
 Lara caught up with the cat and scratched under its chin, getting a whole new round of purring.
 
-"What does he get out of it?"
+"What does he get out of it?" her Mom asked.
 
 "I make him food."
 
@@ -226,11 +276,15 @@ Her eyes turned up and found a curious Sho watching her through the window. Lara
 
 "Yes, Mom."
 
-"And for you to come home."
+"Lara, remember, you're disabled, you-"
+
+Lara cut her off, "That word doesn't mean what you think it means, Mom. The social model states that-"
+
+"Sorry. I know. Just... please come home."
 
 "I-"
 
-"Not permanently, I just… I miss you. Besides, you liked DC, I thought."
+"Not permanently, I just… I miss you. Besides, you liked DC, I thought," her Mom said.
 
 "I liked it because the cherry blossoms felt very Japanese. I'm now *in* Japan." Lara paused. "But I'll consider it. Just promise you won't harass Dad anymore."
 
@@ -248,9 +302,97 @@ Any and all semblances of enthusiasm drained from Lara's body, leaving her feeli
 
 "Bye, mom." Lara forced out of her mouth before pressing the hang-up button.
 
+The phone buzzed again immediately.
+
+Lara groaned as she saw her Dad's face appear on the screen, in full wig and makeup.
+
+She let it ring.
+
+Her parents must have just had another fight.
+
+She looked up, meeting Sho's gaze for a moment with a smile she hoped came off as beaming. He nodded, though she noted he did not stop watching.
+
+What was she doing?
+
+The world just wanted to make this messy. Her Dad was about to tell her her Mom was wrong, that Lara should do whatever she wants. But she *wanted* to spend time with her Mom. Lara knew she wasn't *really* being manipulative... she cared, it was her attempting to help. Which made her want to spend time with her...
+
+But she didn't want to betray her Dad... she *knew* her Mom hurt them. A lot. Lara had seen it first-hand. Smashing vases and screaming cruel words, framed as protection for Lara. Dad had every right to hate her Mom.
+
+But she couldn't.
+
+Was she a bad daughter for not picking a side?
+
+Lara stepped slightly out of sight of Sho and leaned her back against a vending machine. Her head tilted back against the plastic surface, and she squeezed her eyes shut.
+
+Sho...
+
+It was all messy.
+
+The travelling was supposed to be simple.
+
+She was free.
+
+Right?
+
+The phone buzzed again. Lara answered it with eyes still shut, raising it to her ear.
+
+"Mi reina," her Dad started.
+
+"Hi Dad, how's the bar?" Lara asked, following the scripts.
+
+"Commit to the Lord whatever you do, and he will establish your plans. Thriving, mi reina. How is Japan?"
+
+"It's... fun," Lara just couldn't find the energy to piece together better words. She knew what was about to follow; her mind raced ahead to *that* conversation.
+
+Her Dad continued after a pause, "You sound tired. Your Mom called?"
+
+How could she phrase "Mom is not the only one tiring me?" She couldn't.
+
+"Yes."
+
+They paused again, then thankfully, pivoted. "Fun, you said?"
+
+"I met a boy," Lara said.
+
+"That's... in Japan?"
+
+"Yes. He's nice, he gave me a place to stay. I make food for him."
+
+She waited. She knew they wouldn't come, the words: "Be careful", "You're only twenty", "Lock your door".
+
+She knew her Dad was thinking them, but would never say them. They would pivot to a comment on her Mom.
+
+"Your Mom probably had opinions."
+
+Yup.
+
+"I don't want to talk about Mom." Lara stepped out of the shadows, back into the light. She briefly caught a glimpse of Sho still watching, though he was also pretending to not look with his face buried in his phone.
+
+"Lara, she's manipulative." Their voice built tension and sped up. "She says cruel words because she wants the world to exist the way it does in her head. You-"
+
+Lara hung up.
+
 In a one-two punch, the phone screen went black.
 
 Lara groaned; one of these days, she needed to get a portable power bank.
+
+Messy.
+
+It was all messy.
+
+Her Mom *was* slightly right on one topic, even if not for the reason she thought.
+
+Lara needed some piece of her relationship with Sho simplified. Any piece of it. It was simply too much now. Her therapists had always told her... and she knew it...
+
+Having too many open problems was *not* good for her. They controlled her; they were anchors, and she needed sails.
+
+Direct.
+
+Just like what had worked with Mom.
+
+Untie the knots one at a time until both of them could get out of the net they had ensnared themselves in.
+
+Lara took a deep breath, shook her arms out, smiled, and walked slowly back to the café.
 
 **Sho**
 
@@ -258,11 +400,23 @@ Sho watched Lara re-enter the room, attempting to read her posture.
 
 Definitely stress.
 
+Despite the smile.
+
+It was rare, but when she clenched her jaw like that...
+
 Something about that conversation hadn't gone the way she had expected.
 
-Sho's mind went on alert, sirens blaring and endless lines of potential routes to get her to stay flitting through his head. This had to be it. He knew it was coming, but he wasn't ready.
+No.
 
-Deep breath, remain calm.
+Oh no no no.
+
+What could he say?
+
+*Was* there something he could say?
+
+The end of the season. Would they get a season two? He wanted to make sure of it.
+
+Sho took a deep breath and forced his mind to slow.
 
 One sentence at a time, the phones would pace this.
 
@@ -270,7 +424,7 @@ As she took a seat across from him, he typed out, *"Is everything OK?"*
 
 Her head shook lightly, then typed back, *"I don't know. I need to go home now."*
 
-Sho held the phone; the words were ice to his veins.
+Sho held the phone; the words were ice to his veins, and his mouth ran dry.
 
 Despite the knowledge that this was coming, despite preparing himself the entire time he watched her pace outside, seeing the words "go home now" erased every semblance of logical thought.
 
@@ -282,15 +436,33 @@ It was now or never.
 
 He began to type frantically.
 
+"I love you, please stay," he typed.
+
+He stared at it. On the phone... the words felt so... hollow. They undersold his thoughts.
+
+No.
+
+Not enough.
+
+Confession letter. He needed a confession letter. Then he would bow, and she would make her decision.
+
+That's how it goes.
+
+Easy.
+
+He deleted the words and started over.
+
 He poured his entire heart into one message.
 
 He wrote about how much it meant that she listened —*truly* listened — to his problems, even if she had no solutions to offer.
 
 He wrote about how the joy she emanated had ripped him from a dark ledge he hadn't even realized he had stood on.
 
-He wrote about how meaningful it had been to live not simply in a house but in a *home.*
+He wrote about how he loved her cultural insights and how they were fundamentally changing his view of the world and himself.
 
 He wrote about how much it impacted him to have shared his life, his love of anime, and his love of rhythm games with someone who dove into learning and understanding with a passion that even surpassed his own.
+
+He wrote that his parents' approval heightened anytime she was around, even if he didn't understand why.
 
 He wrote that he loved her and couldn't imagine a world without her.
 
@@ -300,25 +472,49 @@ The words... carried... passion? Love?
 
 No, they didn't. And who knew how they would translate...
 
-He could make out Lara's head tilting in curiosity as he began to re-edit sentence after sentence.
+He could make out Lara's head tilting as he began to re-edit sentence after sentence.
 
 None of them felt right.
 
-And then the phone went black.
+The phone went black.
 
-Without hesitation, Sho reached for Lara's phone.
+For a brief nanosecond, Sho's thumbs hovered over the darkened screen.
+
+He reached for Lara's phone.
+
+"No tiene batería," Lara whispered. Her voice shook.
+
+Sho froze as the power button did nothing.
 
 It was also dead.
 
-An absolute speechlessness fell over them as they stared at the lifeless corpses of their translators.
+"It's dead," Sho said.
 
-Across the room, two chairs scraped against the floor as a couple got up to leave, but even that noise didn't disrupt the deafening silence.
+"Está descargado," Lara said.
+
+"We can't communicate," Sho said.
+
+"No podemos comunicarnos." Lara said.
+
+An absolute speechlessness fell over the café as they stared at the lifeless corpses of their translators.
+
+**Lara**
+
+Lara's blood remained frozen, just like the rest of her body.
+
+How had they never planned for this?
+
+All those days of staying late and almost having their phones die... Not once had either of them thought, "We should bring a power cord."
+
+Across the room, two chairs scraped against the floor as a couple got up to leave, but even that didn't disrupt the deafening silence.
+
+**Sho**
 
 He needed something.
 
 Anything.
 
-There had to be some way to communicate his love to her, some universally ubiquitous word or action that could encapsulate all of that into something she would understand.
+There had to be some way to communicate his feelings to her, some universally ubiquitous word or action that could encapsulate all of that into something she would understand.
 
 His eyes darted to hers.
 
@@ -330,27 +526,15 @@ The way her bushy curls framed her face, the flecks of copper and gold in her am
 
 She was gorgeous.
 
-He needed to say something, *needed* to.
-
-There was one word; she watched enough anime, surely she would get it, right?
-
-Everyone knew it, *everyone*.
-
-Right?
-
 **Lara**
 
-As Sho's phone went blank, so did Lara's mind.
+The dead phones glared up at her as Lara's mind began to reboot.
 
-How had they never planned for this?
+She had... so much she needed to say.
 
-All those days of staying late and almost having phones die, not once had either of them thought "we should bring a power cord".
+She was going to be direct.
 
-Wasn't she supposed to be "smart"?
-
-That last message... that she needed to go at some point... They had so much to talk about.
-
-She needed to explain to him that her conversation with her Mom had only made Lara resolute in returning to Tokyo.
+Lara needed to explain to him that her conversation with her Mom had only made Lara resolute in returning to Tokyo.
 
 This wasn't forever.
 
@@ -362,11 +546,21 @@ She loved that he had taken up a random stranger without question just to keep t
 
 She loved how he had applied himself to learning to cook with a passion that even surpassed his own.
 
-She loved that he invited her into his life.
+It was too much.
 
-Lara had spent years with parents who, directly or indirectly, caused her to create distance, but here was someone who pulled her in, making her *want* to be pulled in.
+**Sho**
 
-Sho was an anchor, but the oceans had never been what Lara travelled for.
+A thousand scenes played through his mind.
+
+Wait.
+
+There was one word; she watched enough anime, surely she would get it, right?
+
+Everyone knew it, *everyone*.
+
+Right?
+
+**Lara**
 
 "Daisuki," Sho suddenly said with determination.
 
@@ -378,15 +572,25 @@ The perfectly messy black hair sitting above olive-flecked brown eyes... Eyes th
 
 She loved those eyes.
 
-She loved him.
-
-She needed to tell him that.
+She needed him in so many ways.
 
 What did he say? *"Daisuki"*?
 
-She didn't know that word and found herself staring blankly, lips parted.
+She didn't know that word and found herself staring blankly. Her head tilted.
 
-Her confusion seemed to confuse Sho, who cocked his head and repeated.
+**Sho**
+
+What was that look? Was that rejection? Confusion? Was she forming the perfect way to turn him down, to explain that she was going?
+
+Sho was just so bad at... so bad at reading...
+
+No. Sho knew how to read Lara. He so rarely got it wrong.
+
+That was confusion. The head tilt was always confusion.
+
+He said it again.
+
+**Lara**
 
 "Daisuki!"
 
@@ -406,9 +610,31 @@ But...
 
 The way he was looking at her, there was an urgent desperation there... It was a longing that she herself felt.
 
-Understanding crept at the edges of Lara's brain as Sho leaned over the table and grabbed the collar of her shirt.
+**Sho**
 
-Her eyes were enthralled, anchored in his gaze, as he spoke in *perfect* Spanish.
+Was *she* really not getting this?
+
+Lara?
+
+The girl who knew *everything*?
+
+The female lead whose entire role was to explain a magical and confusing world of power systems and shadow organizations that Sho had never heard of?
+
+She was going to leave.
+
+Lara was going to leave.
+
+He didn't want her to leave.
+
+He needed to do *anything*.
+
+Sho grabbed onto the only Spanish phrase he had learned.
+
+**Lara**
+
+Lara's breath came to a dead halt as Sho leaned over the table and grabbed the collar of her shirt.
+
+Her eyes were ensnared, anchored in his gaze, as he spoke in *perfect* Spanish.
 
 "This. Is why. We watch. Subs."
 
@@ -418,17 +644,33 @@ The thought evaporated from her mind as Lara was pulled across the table.
 
 Their lips met above half-finished burgers.
 
-A month of fantasies and dreams culminated in that point of contact.
+A month of fantasies and dreams erupted into reality in that moment of contact.
 
-The butterflies that had lived rent-free in Lara's stomach burst through her veins, causing every muscle to bristle with sensation.
+**Sho**
 
-The canon had been lit. And there was no stopping this explosion. Lara had no intention of trying.
+Her lips were softer and warmer than he could have ever imagined.
 
-Her hand moved subconsciously on its own, knuckles twisting as she grabbed Sho's shirt back, pressing her own lips back.
+His entire body felt like an electrical conduit, though his focus remained on that singular point of contact.
 
-His lips, Sho's lips, seized her; she was his, she was anchored.
+**Lara**
 
-And Lara had never, in her life, felt freer.
+The butterflies in her stomach fluttered to her head, narrowing her vision to near blindness.
+
+She closed her eyes and raised a hand to the back of his neck, pulling him into the kiss.
+
+**Sho**
+
+The way Lara's lips wrapped around his, Sho quickly realized he was just a *tad* less experienced at even this.
+
+He followed her lead.
+
+Eyes closed, lips molded, and his hand slid from her shirt to her back.
+
+**Lara**
+
+His lips, Sho's lips, seized her; she was his. She *wanted* to be *his*.
+
+And Lara had never, in her life, felt more *free*.
 
 It was either thirty seconds or an hour that they maintained that position. When they separated, their eyes refused to let go, enraptured in what had become a silent exchange of promises.
 
@@ -440,19 +682,51 @@ But they would find those answers together.
 
 She finally repeated the word back to him, "I love you."
 
-It earned her a smile that was more valuable than any treasure that even a pirate's map could bring her.
+**Sho**
+
+Lara said it back.
+
+She *actually* said it back.
+
+His body re-ignited in a surge of energy.
+
+What... Was this a segue into season two? Or would it pivot to side characters now that they
+
+Could they maybe hold hands? How... how would this go?
+
+**Lara**
+
+Lara was going to fuck the anxiety out of this boy.
+
+All of the energy in her body coalesced into staggered breathing and a heat in her stomach she could *not* control.
+
+A *month*.
+
+A *month* of holding back.
+
+This cannonball was lit, and there was no stopping that fuse.
+
+**Sho**
+
+He would have to follow her lead, Sho supposed.
+
+He just had his first kiss...
+
+The thought seemed impossible.
+
+**Lara**
 
 The rest of the night was a *blur*.
 
-Lara barely remembered the two devouring their remaining food.
+Lara barely registered the two devouring their remaining food.
 
-She barely remembered them scampering past the onlookers who had pretended to not stare.
+She barely registered them scampering past the onlookers who had pretended to not stare.
 
-She faintly remembered learning to hold his hand on their way to the subway, each point of contact sparking sensations that words could not describe.
+She faintly registered holding his hand on their way to the subway, each point of contact sparking sensations that words could not describe.
 
-She didn't remember the subway ride; she was too busy memorizing every contour and shade of Sho's face while he tried to fit in with the other riders who *weren't* in the middle of rewriting their life goals.
+She didn't register the subway ride; she was too busy memorizing every contour and shade of Sho's face while he tried to fit in with the other riders who *weren't* in the middle of rewriting their life goals.
 
-She remembered the brief time spent on the phone upon reaching his house, clarifying plans and questioning why Sho knew how to criticize her anime-watching preferences in Spanish but did not know how to say "I love you".
+She registered the brief time spent on the phone upon reaching his house, clarifying plans and questioning why Sho knew how to criticize her anime-watching preferences in Spanish but did not know how to say "I love you".
 
 As the phones were thrown aside and forgotten, Lara found herself embraced.
 
@@ -468,46 +742,56 @@ He simply *held her*.
 
 Like she was *precious.*
 
-And she held him back, *firmly* anchored.
+And she held him back.
 
-Lara vaguely remembered a brief internal struggle with the concept of "responsibility" in the context of a new relationship, and the irony of having just told her Mom, not even an hour earlier, that she had nothing to worry about from this boy.
+Lara vaguely registered a brief internal struggle with the concept of "responsibility" in the context of a new relationship, and the irony of having just told her Mom, not even an hour earlier, that she had nothing to worry about from Sho.
 
-She most *definitely* remembered choosing to disregard *all* such ruminations of "responsibility" and pushing the perfect boy onto his back.
+She proceeded to disregard *all* such ruminations of "responsibility" and pushed the impossible boy onto his back.
 
-And she remembered that they, in fact, never watched a dub ever again.
+She took only a few moments to register the shocked expression combined with an eager nod as she held up a phone with the words written, "I want to have sex."
+
+And she finally registered, quite resolutely, deciding to never watch a dub again, as she chucked the phone aside and vowed to never depend on it again.
 
 **Sho**
 
 Sho couldn't help but feel that that had escalated quickly.
 
-He had a girl in his bed.
+A... little bit more than hand holding.
 
-He had *Lara* in his bed.
+*Lara* was in his *bed*.
 
 Her head rested on his chest, curled up into his side, snoring softly. Her soft curls brushed against his skin with the rise and fall of his breath.
 
-His intention had been to grab onto her and keep her from leaving, but the way she currently clung to him left him questioning who had just claimed whom.
+His intent had been to just tell her she was wanted, needed even... But the way she currently clung to him left him questioning who had just claimed whom.
 
 This was a mistake, right?
 
-They escalated from confession to... well... her wearing his shirt... in an hour.
+They progressed from confession to... well... her wearing his shirt... in a matter of hours.
 
-That's not how it goes in the anime; that's the kind of thing that you need to get the light novel for. They had no fewer than 12 episodes that should have occurred between confession and even hand-holding, right?
+That's not how it goes in the anime; that's the kind of thing that you need to get the light novel for.
 
-The air felt still, calm. The room remained simply Sho and Lara, no demons.
+His hand shifted, twirling his fingers lightly in the thick curls of her hair. The texture was so real. The way the back of her neck bristled as his fingertips gently caressed.
 
-His parents didn't seem to be offended.
+Lara was really here. In his arms. This was *real*.
 
-That surprised Sho.
+The lightness in his body... his chest felt loose, warm even... his head felt... quiet? The noise from their judgment, from his shame, had... reduced to near nothing. He honestly had not realized just how noisy it had been. Maybe the demons had been closer than he thought.
 
-He expected judgment, shame... This was *not* what he was supposed to be doing with his life, right?
+All signs that his parents approved.
 
 Lara shifted, the moonlight illuminating the whites of her eyes as she looked up at Sho.
 
-It was so hard to feel like this was a mistake when she looked at him like that. She was just so beautiful...
+She was just so beautiful...
 
-They exchanged a smile, and as her eyes closed again, Sho let his head fall back and relax.
+So... *real*...
 
-Well, if his parents were satisfied, he was satisfied.
+They exchanged a smile, and as her eyes closed again, Sho let his head fall back and relax, letting her warmth seep into his skin and soothe his anxieties.
+
+But if... if this was real. Then...
+
+His parents... What he had watched...
+
+He banished the thoughts to the shadow realm.
+
+Not now.
 
 The house creaked in silent submission under a breeze in the night air, and Sho let himself slip into the most contented slumber he had experienced in years.

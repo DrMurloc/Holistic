@@ -14,6 +14,8 @@ Capital fucking "T".
 
 Granted, it was just one song, but it was still unprecedented. A *female* *American* at the top of a leaderboard?
 
+And on a day when she had been feeling like *shit*.
+
 A grin splashed across her face, and pride erupted from her like a *nova*.
 
 She reflexively looked over her shoulder to meet Leo's own grin.
@@ -26,45 +28,65 @@ Perfectly permed and faided hair, a too-white smile against dark skin, and a blu
 
 "Wow, that was over a thousand combo!" the suit said.
 
-Fucking Zach.
+Zach.
 
 "It's still so crazy to me that you can do that. I would trip over my own feet, I'm such a klutz. And you're playing *both* sides at once!"
 
+**Now, some of you are likely thinking, "Oh, he's being supportive and trying to understand! What's so wrong with that?" You are technically not incorrect.**
+
+**Zach is, for all intents and purposes, a nice guy. He is quite successful, well-read, contributes a significant portion of his income to helping get kids off the streets and into education, and is an activist on multiple fronts to push for "self-advocacy" and "nothing about us without us" in government.**
+
+**That being said, when you are** ***so*** **specialized in a particular domain, especially a niche one like Pump it Up, the knowledge gap can become so wide that, no matter how intelligent the other person, they will sound like a toddler asking a decorated quantum physicist why apples fall down and not up.**
+
+**Zach, in this case, was that toddler.**
+
 The exhilaration—the raw, primal *euphoria*—was sucked out of May's body as if Zach had opened an airlock.
 
-Bringing him here had been a mistake. But May's mother would not stop hounding her to "just give other men a try" and insisted that "Zach is just the most perfect bachelor."
+May glanced down at her phone, switching over to the notes she had written the other day.
 
-Well, here May was.
+Take Mother up on offer for date with corporate blowhard
 
-Giving other men a try.
+Take him on date to Arcade (guarantees no second date)
 
-And finding herself deeply, deeply disappointed as Zach proceeded to spout off every single cliche, cringey phrase that any normie had ever uttered around the game.
+Have community members tell Leo you are dating someone
+
+Leo will show up
+
+Fuck Leo in bathroom
+
+???
+
+Success
+
+Several more notes lay scattered beneath it. It had been a confident day. Or so she had thought. But looking at the list now...
+
+This was the dumbest plan she had ever concocted. She was worse than Cale.
 
 "So, how long does it take to memorize a song?"
 
-It physically wounded May's very soul.
-
-What the fuck was she doing?
+May physically cringed as the words reached her ears.
 
 "I... That's not..." May started between pants, unable to even muster the motivation to correct the dumbass.
 
-She leaned over the back of the bar and stared towards the arcade entrance.
+She leaned over the back of the bar and stared towards the arcade entrance. The bass of the score-screen music from behind her reminded her of exactly what she had just accomplished.
 
-She needed *anyone* to walk through those doors and recognize what had just happened. Literally *any* community member. The score screen still sat up behind her.
+This wasn't even about Leo anymore. She just wanted to *feel* the victory.
 
-As if a prayer had been heard, the doors opened, bathing the arcade entrance in golden light from outside, casting a Leo-sized outline.
+She needed *anyone* to walk through those doors and recognize what had just happened. Literally *any* community member.
+
+The doors opened, bathing the arcade entrance in golden light from outside. As if answering a prayer, the light cast a Leo-sized outline.
 
 May's heart rate skyrocketed well past the hard cap as the outline resolved into messy blonde hair and blue eyes. The thrill from earlier sucked straight back into her bloodstream, and the fatigue from pushing her body to its absolute limit simply evaporated.
 
 Leo's eyes met hers, and she watched as that dumb, wonderful sheepish smile grew from ear to ear.
 
-As he got closer, Leo looked over May's shoulder at the score screen and almost tripped, jaw falling wide open.
+As he approached, Leo looked over May's shoulder at the score screen and almost tripped, jaw falling wide open.
 
 "May, what the *fuck?*" His phone was out in an instant, taking a picture and checking other scores online.
 
 There it was. *That* was what she had needed.
 
-A small stimpack of hormones burst through May, filling her with the validation and accomplishment she had *craved*, that she *deserved*. Leo knew just how to make anyone playing the game feel like they were on top of the world, regardless of skill level. And right now, May fucking was the top of the *fucking* world.
+A small stimpack of energy burst through May, filling her with the validation and accomplishment she had *craved*, that she *deserved*. Leo knew just how to make anyone playing the game feel like they were on top of the world, regardless of skill level. And right now, May fucking was the top of the *fucking* world.
 
 May wanted to do nothing but ride that surging ecstasy inside of her, grab Leo, and drag him straight to the bathroom.
 
@@ -84,13 +106,11 @@ Knowing Leo, he was about to attempt to recruit her "date" to the community.
 
 Zach shook his head and laughed softly. "Leo, what a name. Zach, a pleasure, I'm sure. But, no. I could never. I would hurt myself. May here seems quite adept for the both of us."
 
-May had not told Zach about Leo.
+Maybe all of her plans weren't dumb.
 
-He did not realize that he had just indicated to the love of May's life that he was on a date with her. If one could call this a date, and not simply "getting mom to shut the fuck up."
+Leo met May's eyes, and she glanced to the back of the Arcade, towards the bathroom.
 
-Leo met May's eyes, and she looked away, likely confirming his worry.
-
-"She's... the best. You know," Leo said with affectionate resignation. May knew he wasn't talking about the game.
+"She's... the best. You know," Leo said slowly as he followed her gaze. May knew he wasn't talking about the game.
 
 "Leo, that's a lie, and you know it," May stated, turning to face the game, finally exiting the score screen, and mindlessly scrolling through songs.
 
@@ -98,13 +118,11 @@ Leo met May's eyes, and she looked away, likely confirming his worry.
 
 May was still pretty confident he wasn't talking about the game.
 
-"Technique? Like how she holds the bar? Is that cheating?"
+"Technique? Like how she holds the bar? Is that cheating?" Zach asked.
 
-May stopped scrolling and looked back at Zach. Both he and Leo were looking at May in confusion.
+May stopped scrolling and looked back at Zach. Both he and Leo were looking at May with raised eyebrows.
 
-Zach seemed legitimately lost at why May was so exasperated with him, and Leo seemed baffled at what the fuck May was doing with this man.
-
-May, herself, was on the same page as Leo.
+Fuck it.
 
 "You know I played-" Zach started.
 
@@ -118,9 +136,7 @@ Zach was already in a state of shock at May's "mind reading".
 
 May could only imagine what his face looked like as she proceeded to drag Leo past him and towards the arcade front desk.
 
-She could only imagine it, as she did not look back at the idiot while she grabbed the bathroom key from behind the desk, blatantly ignoring the "NOT ALLOWED IN BATHROOM" sign with May's picture under it, before proceeding to drag Leo towards the back of the arcade.
-
-Leo was *not* shocked by this turn of events.
+She could only imagine it, as she did not look back at the idiot while she grabbed the bathroom key from behind the desk, blatantly ignoring the "NOT ALLOWED IN BATHROOM" sign with May and Leo's picture under it, before proceeding to drag Leo towards the back of the arcade.
 
 "It was good to meet you, Zach! The game is fun, I promise!" Leo yelled back before they disappeared from the man's line of sight.
 
@@ -146,6 +162,8 @@ The typical pattern would be for them to go play, release any residual pent-up e
 
 The look May gave him as she approached—and the one he hoped he managed to give back—said it was time to break that pattern.
 
+Her phone was up, reading through something.
+
 "This isn't working," May stated, beginning a steady pace through the arcade.
 
 Oh.
@@ -154,21 +172,57 @@ That was more of a pattern break than Leo had expected.
 
 His heart sank as he fell in step. "But I thought..."
 
-"No. I said that wrong. Clearly, something is working. But... Fuck."
+"No. I said that wrong. Clearly, something is working. But... Fuck." May lowered her phone.
 
 "What are we missing?" Leo's eyes trailed along the floor. He wasn't quite sure if he should take her hand, though he desperately wanted to.
 
-"Maybe we approach this from the other angle? What *is* working?"
+"I... Wrote notes the other day? Like I've seen you and Astrid do occasionally. I thought it would help," May said. Her voice didn't sound terribly convinced, though.
 
-Leo supposed that was a smart move. The known knowns... like Cale said.
+Leo blinked.
 
-They exchanged glances, then both looked down at Leo's chest, which was covered in marks of claim.
+She had thought ahead.
 
-Well, that most *certainly* was working; they both seemed to silently agree on that.
+That was good! Right? Leo always did better when he prepared.
+
+"What do they say?" Leo asked.
+
+May hesitantly passed him the phone and stepped aside to lean against a basketball game.
+
+Leo read.
+
+Be blunt
+
+This isn't working
+
+Cycle needs to change
+
+We are both right
+
+Relationships built on boundaries and rules
+
+Bring relationship back to basics
+
+Sex = basics
+
+What?
+
+He... didn't understand the logic behind some of those. But they sounded right?
+
+And like she wrote... they were both right. Right? That's what they learned?
+
+May grabbed the phone out of Leo's grip. "No, they're dumb. Leo, we just need to-"
+
+"No! I trust you. If you wrote these, there had to be a reason. Maybe we try it out?"
+
+May paused. The assertion of trust didn't seem to quite sit right with her, as her face twisted in contemplation.
+
+She just needed to be encouraged.
+
+Leo could lean into that.
 
 "So... what... friends with benefits until we... I don't know... figure out... us?" Leo couldn't even find the right words for this.
 
-"It's better than not seeing each other, right?" May asked, sounding unsure herself.
+"It's better than not seeing each other? Basically what year one was." May laughed, but the laugh didn't quite reach potency.
 
 Cale said to keep things simple.
 
@@ -176,27 +230,35 @@ Sex was simple.
 
 Sort of.
 
-He still loved her. Which made it complicated.
+Leo took a deep breath, intentionally causing a fresh bite mark on his side to throb.
 
-Or was that simple?
+Considering his... performance problems... in his first relationship, he was never convinced the... sex... part... of sex was what he strove for.
 
-Even now, his hand kept gravitating towards hers as they walked. Their pinkies brushed more than once. The boundaries were going to be... hard.
+Was May the same?
 
-But...
+Her notes were right, though... Something needed to change.
 
-Something needed to change.
+"It's better than wallowing. What... what are the rules?" Leo asked.
 
-"It's better than nothing. What... what are the rules?" Leo looked up in an attempt to read her.
+He looked up in an attempt to read her. She had turned back to her phone, likely scrolling through more notes she had left herself.
 
-May was definitely churning. He wasn't used to her not having answers ready; this was apparently a problem complex enough for someone all-knowing to need to sort through.
+"No affection? Fuck, I don't know. You're the one who's better at rules."
 
-"No affection? Fuck, I don't know Leo. You're the one who's better at rules."
+That was too high level... Leo could already picture the trouble he was going to have with it. He needed a no-brainer granular one.
 
-"No hand holding," Leo added. That felt like a no-brainer.
+"No hand holding," Leo added.
 
 "Kissing is... OK, but only when... banging?" May's brow furrowed with each rule.
 
-"No staying overnight," Leo added, then, reluctantly, "No scratching backs."
+"No staying overnight," Leo added.
+
+Wait. What did that accomplish? Did that mean they couldn't hook up after KBBQ and soju? He would definitely fall asleep.
+
+"Wait, I take that-" Leo started.
+
+"That's a good one," May said.
+
+She didn't sound like she believed that.
 
 This was definitely not simple.
 
@@ -204,9 +266,7 @@ They continued to walk. The typically comforting electrified air of the arcade f
 
 Was this wrong?
 
-May wouldn't let them make a bad decision, though. If she was on board, he was on board.
-
-Besides, what else would they do? They clearly were worse off apart than together.
+They were doing what May wanted. And as established, they both were... right... right?
 
 They finally came to the arcade entrance.
 
@@ -222,15 +282,15 @@ He could almost hear her own unspoken "I love you".
 
 "Thank you," was all she gave verbally, though. Her eyes managed to flicker everywhere except at him before turning back towards the game.
 
-It... that... just "thank you"? That wasn't May. Were they acting now?
+It... that... just "thank you"? That wasn't May. Were they back to acting now? Performing like they did in year one?
 
 But... rules were rules.
 
 So he left.
 
-The glaring sun of the outside world beat down on him accusatorially. The heat was overwhelming, and forced him to hurry to the car. He briefly considered running back in and throwing his arms around May.
+The glaring sun of the outside world beat down on him with accusation. The heat was overwhelming, and forced him to hurry to the car. He briefly considered running back in and throwing his arms around May.
 
-But... they needed to try this iteration, right? Something needed to change.
+But they were both right. Right?
 
 Leo could not help but think that he had left worse than he had entered.
 

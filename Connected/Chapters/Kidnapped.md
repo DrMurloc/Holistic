@@ -14,21 +14,13 @@ Naina hoped Zoey would kidnap her again. They had a streak going; it was nice. N
 
 Her hyperfixation on Zoey had not lessened, although it didn't seem to be interfering with anything, so Naina let it exist. It was somewhat strange for one to last this long.
 
-Maybe she was a special interest? An algorithm in the shape of a fluttery ball of novelty that managed to make dopamine feel earned.
+Maybe she was a special interest? Some algorithm her brain identified as a sustainable source of dopamine in the shape of a fluttery ball of novelty.
 
 It wasn't uncommon for a hyperfixation to evolve into a special interest. Naina, however, had never had *either* for someone who wasn't fictional or a celebrity before.
 
-The semester had ended well, though. And Naina was happy. Well, she was not *unhappy*.
+Both.
 
-To be honest, she hadn't realized that she had even been *unhappy*.
-
-The definition of happiness sort of eluded her.
-
-Psychologically, she felt more hedonic than eudaimonic. She "felt good," or at least didn't "feel bad," which was an improvement. But as for purpose and self-realization, she was a ways off.
-
-Happiness as a core term felt like a marketing term designed to sell you drugs.
-
-Content. Naina was content. That was a good word.
+Zoey could be both.
 
 Good talk, ceiling.
 
@@ -48,13 +40,13 @@ To her horror, the prowling boy approached her. She had no idea who he was.
 
 "Hi?" Naina... asked?
 
-Naina was afraid to ask his name; she didn't remember ever interacting with this boy. She remained lying down, though; she was not convinced this was a sitting-up conversation yet.
+Naina was afraid to ask his name; she didn't remember ever interacting with this boy, but had she met him in passing at some point? She remained lying down, though; she was not convinced this was a sitting-up conversation yet.
 
 The boy came to a stop.
 
-Now, Naina wasn't really good at reading people, but that dirty blonde hair appeared to be intentionally styled to look nonchalantly messy. The way he carried himself with his hands in his pockets seemed strange, as if he were trying to appear less intimidating.
+Now, Naina wasn't really good at reading people, but considering the boy's hair was freshly dyed grey, the way it was left to look unstyled felt intentional, making it seem nonchalant. The way he carried himself with his hands in his pockets seemed strange, as if he were trying to appear less intimidating.
 
-Combined with jeans and a t-shirt, it was as if he were selling an image of casual uninterest, distinctly betrayed by the way his gaze focused on her as if she were prey.
+Combined with jeans and a t-shirt that read "show me them crits", it was as if he were selling an image of casual uninterest, distinctly betrayed by the way his gaze focused on her as if she were prey.
 
 Naina was sure she was overreading it, though.
 
@@ -66,7 +58,7 @@ That was what you did to make friends, right?
 
 "Yes?" Naina paused. "Why?"
 
-The boy considered the question philosophically. "Curiosity. It's rare for Zoey's attention to fixate on anyone."
+The boy considered the question philosophically. "Call it curiosity. It's rare for Zoey's attention to fixate on anyone. Life is lived through questions, not answers, after all."
 
 "Rowan, don't play with your food. Eat the rabbit or leave it." A sharp voice sliced through the air, cutting through all semblances of social etiquette.
 
@@ -76,25 +68,27 @@ The girl appeared Hispanic, with sharp cheekbones, a button-down tucked into a m
 
 Naina didn't know much about clothes; she stuck to her comfy wardrobe. But this girl appeared to be dressed the opposite of the boy. Her outfit was clearly meticulously put together to sell controlled refinement.
 
+Of course, Naina was likely overthinking it.
+
 "Oh, Reina, our queen graces us with her presence." The boy, Rowan, bowed deeply, a move that didn't seem quite socially appropriate for the situation.
 
 Wait, was Naina called a rabbit?
 
-"I'm glad you're aware of your spot on the food chain, scavenger. But drop the sarcasm, it doesn't fit you. Stick to your pitiful jokes; at least jesters contribute value." The girl scoffed, continuing her pace unbroken.
+"I'm glad you're aware of your spot on the food chain, scavenger. But drop the sarcasm, it doesn't fit you. Stick to your meaningless philosophy; it keeps you out of the way of those who provide real value." The girl scoffed, continuing her pace unbroken.
 
 Naina couldn't help but feel that this had escalated quickly.
 
-"Oh! My dumb wit has garnered the attention of royalty! I'm honored." The boy laughed, and Naina could hear a faint growl come from Reina.
+"Oh, I wouldn't dream of inhibiting the value of our humble ruling class. I'm sure the three hours it took to condition your hair and apply your mask just to show a bunch of college students 'their place' was quite the contribution to the human race." The boy laughed, and Naina could hear a faint growl come from Reina.
 
-"You're a disappointment to your parents, Rowan," Reina stated before exiting the building.
+"You're a disappointment to your parents, Rowan."
 
-The statement only seemed to make Rowan laugh, and his gaze returned to Naina.
+"Oh, you have no idea," Rowan responded with a laugh as Reina exited the building. His gaze returned to Naina.
 
 Naina had just witnessed a battle of alphas.
 
 Maybe the rabbit comparison wasn't too far off; she definitely felt paralyzed. It was less fear and more... not knowing what she could contribute.
 
-"Don't mind her. Listen, let me cut to the chase. There's a party for the few of us unimportant enough to not have summer plans. You want to join?"
+"Don't mind her. Listen, let me cut to the chase, you seem to be the type for 'direct'. There's a party for the few of us unimportant enough to not have summer plans. You want to join?"
 
 Naina studied Rowan.
 
@@ -106,7 +100,7 @@ Why Naina, though?
 
 She needed to know more.
 
-"Are you using self-deprecating humor as both a mechanism to protect yourself and to make yourself seem less imposing? That's really clever. The world can't hurt you if you beat it to it. Do-" Naina cut herself off.
+"Did you use self-deprecating humor as both a mechanism to protect yourself and to make yourself seem less imposing? That's really clever. The world can't hurt you if you beat it to it. Do-" Naina cut herself off.
 
 She probably should have asked about his goals regarding her joining at the party, not engaged in psychoanalyzing a stranger.
 
@@ -114,7 +108,7 @@ Oops.
 
 Rowan paused, considering her assessment.
 
-His smile steadily broadened, almost hungry, and his eyes sharpened.
+His smile steadily broadened, almost hungry, and his grey eyes sharpened.
 
 Naina most certainly now felt like a rabbit that had caught the attention of a stray wolf.
 
@@ -152,7 +146,7 @@ As soon as he disappeared, Zoey's demeanor shifted from protective pack-leader i
 
 "Rowan seems nice," Naina stated as she let herself get helped up.
 
-"He's... not a bad person. He's like my cousin; he's only missing an Astrid. If I could get him and Reina in a room alone with one another..." Zoey trailed off as they began their trek towards her dorm.
+"He's... not a bad person. He's... sort of like my cousin; he's only missing an Astrid. If I could get him and Reina in a room alone with one another..." Zoey trailed off as they began their trek towards her dorm.
 
 "You think those two would work?" Naina attempted to picture the ship. Two dominant alphas sometimes made beautiful chaos.
 
@@ -260,6 +254,8 @@ The phone was held up for both of them to watch. It took a few moments for Zoey 
 
 Naina took the phone, rotating it slightly so she could see more easily. "Wait, that's Mimi Galaxy! Is this the concert from yesterday?"
 
+**Wait, what?**
+
 The most adorable grin spread across her face.
 
 "I think Cale's parents were at it. You know her?"
@@ -269,6 +265,14 @@ The most adorable grin spread across her face.
 They watched the pink-haired girl dance across the stage. The smile on Naina's face sent tingles through Zoey's body. Naina replayed the video a few times, then passed the phone back.
 
 Naina continued, "There is a whole controversy. Some guy reportedly kissed her backstage. But the agency is covering it up. I think it's intentional propaganda to get her name out there."
+
+**Oops.**
+
+**OK.**
+
+**It's OK.**
+
+**I'll let this play out first.**
 
 Naina's smile persisted, and she turned back to the movie.
 
@@ -312,10 +316,136 @@ She wondered often if Naina felt those same flutters.
 
 It didn't matter.
 
-Zoey didn't really want more; they were both happy. Naina was unique, and Zoey knew that. She didn't... see people the same way. And that was OK.
+Zoey didn't really want more; they were both happy.
 
-Besides, as established, Zoey wasn't worth it.
+Right?
+
+"Are you happy?" Zoey asked, careful not to break pace in placing the next fairy light.
+
+"No."
+
+Zoey nearly fell off the stepping stool. Her smile and cheerful posture simply unravelled and dropped to the ground around her in a ragged mess.
+
+"What?" Zoey asked, stepping down and plopped into her chair, not bothering to stitch her smile back on yet. "I... thought you... we..."
+
+Had Zoey done something wrong? She thought she was doing her job well.
+
+"Oh, that probably sounded wrong. I'm not *unhappy.*" Naina clarified, which didn't explain much.
+
+"Isn't 'not unhappy' happy?"
+
+"I don't.... really believe in 'happy'. It's an oversimplification of more complex emotions."
+
+"But you believe in 'unhappy'?"
+
+"I mean... yes? Well, no. But... I think 'unhappy' is a more real emotion than 'happy'."
+
+Zoey blinked.
+
+How does one respond to being told that their entire persona was built on something that was 'not real'?
+
+"Sorry, let me try to explain... It's not as bad as it sounds. Um..." Naina rolled off the bed as the WolfMan jumped through the glass of a window and howled, brandishing his knife.
+
+Zoey pushed her chair to the center of the room and spun her chair to follow her friend pacing in circles around her.
+
+"So... Happiness is a loaded term. It's typically used to sell either drugs or fantasies... Societal constructs like the 'nuclear family' that bring some state of perfect mental homogony that somehow will lead to a surplus of dopamine, serotonin, oxytocin, and endorphins. That's how the theory works."
+
+"And you don't have those?"
+
+"I do! Well, sometimes. Much more than I did before I met you." Naina stopped her pacing and plopped onto the side of the bed, not quite looking at Zoey.
+
+The tension that escaped Zoey's body in that moment likely could have been measured in megatons.
+
+"If you aren't happy, then what are you?"
+
+"Um... I never thought about it."
+
+"You... need to think about it? Don't you just... feel it?" Zoey furrowed her brow.
+
+"*I* do. Some people on the spectrum don't, or feel them dampened. It's... um... alexithymia... I sort of need to... rationalize feelings and context? But for me, stomach flutters could mean a lot of things, rationally. With rejection sensitivity, demand avoidance, all of the different triggers for misleading emotions, you learn to just... distrust your emotions? They're important, but they just turn into a data point, not a processing style."
+
+"That... sounds exhausting."
+
+Zoey knew it was exhausting.
+
+It was much easier to ignore the feelings and just paste on a smile.
+
+"It... yes? But also, some people just do what their emotions tell them without thinking, and *that* sounds exhausting to me."
+
+Zoey found her mouth moving before she could stop it, "I... wish I could just do what my emotions told me."
+
+A moment of silence fell between them.
+
+Zoey had said too much.
+
+"Do... do you want to talk about it?" Naina asked.
+
+"No," Zoey lied. She took a deep breath and stitched her smile back on.
+
+The silence felt oppressive.
+
+Zoey had ruined it.
+
+It was her fault.
+
+It was always her fault.
+
+This is what happened any time she-
+
+"OK. I understand," Naina said as she rose to her feet.
+
+Zoey blinked. She felt disappointed. Had... had she *wanted* Naina to dig?
+
+No. Rule four.
+
+"Happiness, though..." Naina continued. She began pacing in circles around Zoey again. Zoey didn't turn with her this time, taking the moments of facing away to let her smile slip off.
+
+Naina continued, "Traditional pillars were hedonic, which is more on the pleasure side of things, and eudaimonic, which is more oriented around fulfillment. The PERMA model, which is newer, breaks it down into a few more categories... All of which can coexist with 'sadness'."
+
+Zoey turned her head to glance at Naina at this assertion. Happiness and sadness coexisting? The concept felt foreign, but she supposed, given her state of mind today... It was right?
+
+She didn't stitch her smile back on.
+
+"That's... a lot of thinking," Zoey noted.
+
+"I mean, it's what we do. We think a lot. We could be in the middle of a Mimi galaxy concert, surrounded by the most 'happy' and energetic of music while ruminating on our emotions. We could be *performing* in the middle of a Mimi galaxy concert and ruminating on our emotions." Naina plopped back onto the side of the bed, falling backwards and staring at the ceiling.
+
+"So if you're not happy, what are you?" Zoey winced at the words 'not happy'. The binary system of 'happy' and 'unhappy' would be hard to abandon.
+
+"Content? I think 'content' is a good word."
+
+Content... "Content" was most certainly better than how Zoey had found Naina. The thought returned a shimmer of sun to the back of her mind.
+
+Just a shimmer.
+
+"That feels so... neutral?"
+
+Naina shrugged.
+
+"What's wrong with neutral?"
+
+"It's... so... I..." Zoey tried to answer, but couldn't actually come up with anything. It felt so backwards, life was about achieving happiness, right? That was the goal?
+
+Was Zoey not doing her job, or did she misunderstand the assignment?
+
+Zoey slipped out of her chair and returned to her fairy light placements.
+
+She stole another glance at Naina, stimulating those butterflies into motion.
+
+Naina made Zoey happy. She knew that.
+
+But... as established, Zoey wasn't worth it. She just always made things worse.
 
 Zoey banished that uncomfy thought with comfy fantasies of her cheeks nestled in soft red hair.
 
 Fantasies of a Zoey that deserved a Naina.
+
+**OK, hold on. I think I got these events slightly out of order.**
+
+**Time zones... I swear...**
+
+**Humans have a perfectly universal time standard, literally called Coordinated Universal Time, and they decide to use an arbitrary region-based flavor tied to an arbitrary event like "when does the sun come up". And some of them even pretend to "save" time by adjusting it at random?**
+
+**I will never understand it.**
+
+**Oh, here we go. The Mimi concert. Let's back up a few hours.**

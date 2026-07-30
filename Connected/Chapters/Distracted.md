@@ -22,7 +22,7 @@ Not-Naina friends.
 
 When did they get to the dorm lounge? Weren't they just in the library?
 
-Zoey sat on the couch, her hand lightly resting on the arm, where Naina's head was not. The others, Kev, Sarah, and Justin, stood a few steps away, staring.
+Zoey sat on the couch, her hand lightly resting on the arm, where Naina's head was not. The others, Kev, Mia, and Justin, stood a few steps away, staring.
 
 "Cafe, bubble tea. You game?" Kev stated.
 
@@ -46,21 +46,23 @@ Absolutely, she was.
 
 Naina said she had a schedule change to which she was acclimating. Zoey knew that changes in routine hit the girl hard, but five days? Of course, they still texted, but it wasn't quite the same.
 
-"Zoe!" Sarah's voice came from behind, and Zoey turned, confused.
+"Zoey!" Mia's voice came from behind, and Zoey turned, confused.
 
-A moment later, she realized that she had, in fact, followed the wrong group at a turn in the road.
+A moment later, she realized that she had, in fact, followed the wrong group at a turn in the road. That was *not* Mia's messy bun.
 
-She stapled her smile back on, the damn thing kept falling off, and ran back to her friends.
+Zoey stapled her smile back on, the damn thing kept falling off, and ran back to her friends.
 
 "Girl, where is your head?" Kev said.
 
-Sarah leaned in. "Are you OK? This is very unlike you. Well, actually, it's not too far off."
+Mia leaned in. "Are you OK? You're like... extra 'Zoey' today."
 
 "Yeah! I'm great, why?" Zoey failed miserably at a grin.
 
-"Where's Naina? It's so rare to see you without her now." Sarah asked, causing the grin to melt into a puddle.
+"Where's Naina? Did you two break up?" Mia asked, causing the grin to melt into a puddle.
 
-"I don't know. I think she's... busy..." Zoey trailed off as her eyes caught a flash of red.
+"What! No! We weren't... I..." A dozen words attempted to escape Zoey's mouth at once, resulting simply in a deflated groan. "I don't know where she is. I think she's... busy..."
+
+Zoey trailed off as her eyes caught a flash of red.
 
 "Anyways, so the car was coming, right-" Kev started.
 
@@ -82,11 +84,11 @@ But definitely not Naina.
 
 Zoey pursed her lips and placed her hands on her hips, slightly frustrated. Yet another not-Zoey emotion. Was this how Astrid felt all the time? It was terrible.
 
-"Who even are you?" Zoey demanded.
+"Who even are you?" Zoey demanded. That probably came out sharper than she meant...
 
-"I'm... Mark?" he said with a weak smile.
+"I'm... Mark?" he said with a weak smile. It was cute. But not "Naina cute".
 
-Zoey looked down at her clenched hands. No, this boy didn't do anything wrong. This was a Zoey problem, not a Mark problem.
+Zoey looked down at her clenched hands. This boy didn't do anything wrong. This was a Zoey problem, not a Mark problem.
 
 Zoey flashed the widest grin she could muster, managing to get out, "Your hair's nice."
 
@@ -94,13 +96,13 @@ She spun on her heel and walked away, leaving the not-Naina baffled.
 
 Zoey was pretty sure her friends shouldn't have their mouths open that wide on a humid day in Pennsylvania, unless they were trying to collect gnats.
 
-"Zoey?" Sarah asked cautiously, clearly speaking for the group.
+"Zoey?" Mia asked cautiously, clearly speaking for the group.
 
-"What?" Zoey walked by them towards the cafe. She felt Sarah's hand grab her shoulder and turn her around in the correct direction.
+"What?" Zoey walked by them towards the cafe. She felt Mia's hand grab her shoulder and turn her around in the correct direction.
 
 Kev and Justin burst out laughing as they approached the building.
 
-Let them laugh; they don't understand *love*. Otherwise, Kev would be walking with Sarah. *He* knows where *she* is.
+Let them laugh; they don't understand *love*.
 
 The doors to the cafe opened, and Zoey's heart practically leapt into her throat.
 
@@ -124,7 +126,7 @@ Zoey felt her friends fill in behind her and realized how much of a scene she ha
 
 "Brown sugar tapioca with iced coffee, please," Zoey said as calmly as she could, emphasizing each word as if that made her sound more in control. Energy threatened to burst her at the seams, though; her body was at risk of vibrating through the floor.
 
-Kev snickered, and Zoey heard a soft thud as Sarah smacked him in the shoulder. Those two needed to go to an amusement park.
+Kev snickered, and Zoey heard a soft thud as Justin smacked him in the shoulder. Those two needed to go to an amusement park.
 
 The rest of the group put in their orders, and everyone paid, taking a seat at a large table in the far corner. Zoey's eyes lingered on Naina, who was still looking away.
 
@@ -132,7 +134,7 @@ The rest of the group put in their orders, and everyone paid, taking a seat at a
 
 "What?" She asked, receiving a chorus of blank stares. She definitely wasn't getting out of it this time.
 
-"So you and her...?" Sarah asked.
+"Zoey." Mia rolled her eyes. "You two are clearly dating."
 
 "Who, Naina? Never met her."
 
@@ -144,7 +146,7 @@ Justin tried this time. "And Naina is?"
 
 "Her." Zoey nodded over her shoulder with a smile as if it explained everything.
 
-"Zoey and her have been inseparable," Sarah noted.
+"Zoey and her have been inseparable," Mia noted.
 
 "We're separable! Look at us being separate right now!" Zoey exclaimed, gesturing to the space that divided her from her red-headed obsession.
 
@@ -184,19 +186,25 @@ She turned away from the boring conversation, watching Naina count straws and co
 
 She heard a chair pull up next to her.
 
-Sarah leaned in and whispered, "That bad?"
+Mia leaned in and whispered, "That bad?"
 
 "What? No!" Zoey turned sharply. The boys were distracted by whatever dumb topic they had.
 
-"Zoe." Sarah smiled knowingly.
+"Zoey, it doesn't take a literary major to identify reciprocal longing."
 
-Zoey growled. "Fine. She makes my insides want to pop."
+"Naina calls it mutual pining," Zoey said.
 
-"Tell her," Sarah said.
+Mia groaned, "She's into that fanfic trash too."
 
-"It's not that simple. Maybe it is. I can't tell her yet, though." Zoey sighed.
+Zoey decided this wouldn't be a good time to mention the times she had caught Mia reading Zoey's phone over her shoulder.
 
-Sarah held up a finger as Naina approached the table with two drinks, handing them to the boys. A short moment later, she returned with theirs.
+She growled. "Fine. She makes my insides want to pop."
+
+"You need an inciting incident, Zoey. Tell her," Mia said.
+
+"I don't know. I think we're already very 'incited'. I don't want anymore incidents. It's not that simple." Zoey sighed.
+
+Mia held up a finger as Naina approached the table with two drinks, handing them to the boys. A short moment later, she returned with theirs.
 
 Zoey turned to accept hers, and their eyes met briefly as their fingers overlapped during the cup handoff.
 
@@ -208,7 +216,7 @@ Was Zoey just looking for excuses? She always blew these things out of proportio
 
 Naina smiled and walked back to the register.
 
-"Zoe, oh my god, your face. You are dying. She has to know." Sarah laughed.
+"Zoe, oh my god, your face. *That* is longing. She has to know." Mia held her hand up to her mouth with a delicate chuckle.
 
 "No! She's... bad at social cues. It makes it very complicated. And if I'm wrong and she rejects me... I don't want to do that to her. We're happy now."
 
@@ -218,7 +226,7 @@ They *were* happy, right? Of course they were. This is what happy looks like.
 
 How would Zoey even explain?
 
-If Sarah knew Zoey, the *real* Zoey, she would understand. That girl wasn't worth a Naina. That girl wasn't even worth a not-Naina. Naina didn't seem to care about that, though, which made Naina perfect. But it left Zoey... and not-Zoey... with complicated thoughts.
+If Mia knew Zoey, the *real* Zoey, she would understand. That girl wasn't worth a Naina. That girl wasn't even worth a not-Naina. Naina didn't seem to care about that, though, which made Naina perfect. But it left Zoey... and not-Zoey... with complicated thoughts.
 
 And complicated things were dumb.
 
@@ -234,11 +242,19 @@ At that moment, the door opened, and a somewhat familiar face walked in.
 
 "Naina's like Asher, but different," Zoey noted, nodding to the quiet boy.
 
-"Oh," Sarah stated, understanding what Zoey was getting at.
+Mia groaned, rolled her eyes, and turned her chair away from the newcomer.
 
 The boy ordered, then paused.
 
-"Has Asher met Naina?" Sarah asked.
+"Has Asher met Naina?" Miles asked from several seats over, causing both Zoey and Mia to jolt in their seat. His mid-length, slicked-back hair was tied in a ponytail.
+
+He already had a drink?
+
+When did he sit down? Zoey didn't even hear him come in. She swore he could teleport with special... Chinese ninjutsu or something.
+
+"Miles, stop doing that," Mia said with a hand to her chest.
+
+"I'm a vampire, boo," Miles said in his deadpan voice. "But Naina, she hasn't received the Asher special?"
 
 "No." The back of Zoey's mind thrummed with anticipation for what Asher would whip up for Naina. The front of Zoey's mind whipped through a series of icebreakers to get Naina back into their routine of hanging out.
 
@@ -260,27 +276,33 @@ Maybe Zoey could channel Naina, how about, "I have borderline destructive underl
 
 Close. Not quite, though.
 
-Zoey grabbed Asher's arm and directed him into the seat next to her on the other side of Sarah, and he didn't resist. Zoey could make out Naina thawing from her strange encounter and piecing together Asher's order.
+Zoey grabbed Asher's arm and directed him into the seat next to her on the other side of Mia, and he didn't resist. Zoey could make out Naina thawing from her strange encounter and piecing together Asher's order.
 
-"OK, Asher, this needs to be a good one," Zoey stated, already distracted from her distracted state.
+Mia, notably, stood up and moved to another table.
 
-"Zoey, they're all good ones," Sarah countered.
+Eh, it was worth a try.
+
+"OK, Asher, this needs to be a good one," Zoey stated, distracted from her distracted state.
+
+"Zoey, they're all good ones," Miles countered.
 
 Asher ignored them, flipping through his notebook and mumbling a list of adjectives under his breath.
 
 "But this is *Naina*, it has to be the best."
 
-"Red and green... Fire and life? No... more timid... Sky... a sunset... and a forest...." Asher mumbled to himself in a low voice that carried a slight growl that drove most girls bonkers. He was the most unintentionally charming boy on campus.
+"Red and green... Fire and life? No... more timid... Sky... a sunset... and a forest...." Asher mumbled to himself in a low voice that carried a slight growl that drove most girls bonkers.
 
-Both Zoey and Sarah leaned forward, listening to the rapid fire of adjectives and phrases.
+Both Zoey and Miles leaned forward, listening to the rapid fire of adjectives and phrases.
 
 "Verdant..." He paused, then gave a grunt of approval at himself, and his voice grew too quiet to hear, likely attempting to piece together the final results.
 
-"I like verdant," Sarah noted. Zoey nodded, her legs bounced under the table, though she attempted to repress them to avoid distracting the focused writer.
+"I like verdant," Miles noted. Zoey nodded, her legs bounced under the table, though she attempted to repress them to avoid distracting the focused writer.
 
 Naina managed to pick the perfect time to drop off Asher's drink.
 
-Asher flipped a page in his notebook and went still. The sudden quiet made Sarah and Zoey tilt their heads, instinctively waiting. Naina hesitated, her hand lingering on the taro milk tea she'd just placed down. Even the boys had gone quiet and turned their gazes towards the boy.
+Asher flipped a page in his notebook and went still. The sudden quiet made Miles and Zoey tilt their heads, instinctively waiting. Naina hesitated, her hand lingering on the taro milk tea she'd just placed down.
+
+Zoey noted that even Mia had stilled, and could make out her leaning back to catch every word spoken.
 
 Asher's lips began to move and his eyes shifted up to Naina's, saying loud enough for his voice to carry, but still dripping with gravelly seductive charm, "Verdant meadows of glistening emerald, embraced in the tender afterglow of sunset."
 
@@ -292,13 +314,15 @@ She wasn't able to hold back for long, as multiple days of pent-up anxiety exude
 
 "Thank... thank you?" Naina stated, her eyes darting between Asher and Zoey.
 
-Asher grunted in acknowledgement, and his eyes turned to his notebook, jotting down several notes. His mumbling had ended, and the focus shifted to analysis and documentation.
+Asher grunted in acknowledgment, and his eyes turned to his notebook, jotting down several notes. His mumbling had ended, and the focus shifted to analysis and documentation.
 
 "Naina, this is Asher. We like Asher," Zoey noted, hands and legs still vibrating with ripples of release.
 
-"All the girls like Asher," Sarah noted.
+"All the girls like Asher," Miles noted.
 
-Except Mia. Zoey was working on that. They were too good together.
+"Speak for yourself," Mia mumbled. Zoey looked back and noted the girl hiding her face. "The prose was purple at best. Completely impractical for commercial usage."
+
+All the girls except Mia. Zoey was working on that. They were too good together.
 
 Naina had a distinct smile on her face, a smile most girls left with after their first encounter with Asher.
 
@@ -310,7 +334,7 @@ The boy didn't even look up as they talked about him. He only ever really talked
 
 "Oh! External processing and verbal self-stimulation! That's really cool, actually." Now it was Naina who was studying and cataloging Asher, who remained unfazed by the scrutiny.
 
-Sarah and Zoey exchanged glances, and Zoey grinned with pride for her redhead.
+Miles and Zoey exchanged glances, and Zoey grinned with pride for her redhead.
 
 Oh, wait, there was something Zoey needed to do, by orders of tapioca.
 
@@ -333,3 +357,7 @@ Zoey stole a brief glance at the cute redhead as her hands fidgeted under the ta
 They had their routine, their contract, their ritual... They were happy.
 
 This was what happiness looked like, right?
+
+**I really need to rewind and check up on that group. I sincerely hope Rowan and Reina aren't stirring up too much trouble.**
+
+**A thought for a different time.**

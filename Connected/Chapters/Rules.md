@@ -6,8 +6,6 @@ No hand holding.
 
 No kissing when not... banging.
 
-No backscratches.
-
 Right now, Leo was pushing the limits of "No staying overnight."
 
 He wasn't going to stay the whole night. So it was fine.
@@ -16,9 +14,15 @@ But feeling her chest rise and fall, her skin against his with the remnants of d
 
 She was just so perfect, beautiful, serene... how could he *not* test the upper limits of the rule?
 
-He couldn't help but think he was breaking "no affection"; that was the trickiest one. Leo's entire life was built around showing affection for May; stripping that away made him feel... robotic.
+But "no affection"...
 
-It was like he was only following scripts and not living them.
+That was exhausting.
+
+Having to spend the entire time with her controlling his thoughts to avoid the wrong emotions was a lot. He could start asking for amendments to the rules. It had been a few weeks without any arguments, so maybe it was time to iterate?
+
+But they also hadn't had many opportunities *to* argue.
+
+There was clearly a logical fallacy in this experiment.
 
 May's head rolled slightly towards him, though she remained asleep, her steady breath washed across his face.
 
@@ -40,13 +44,15 @@ She hadn't fully moved back in, even after all these months. Something about tha
 
 As the door cracked open, he heard May shift.
 
-He turned his head to find her staring at him, moonlight revealing her body and filling him with a desire to jump right back into bed with her.
+He looked back to find her staring at him, moonlight revealing her body and filling him with a desire to jump right back into bed with her.
 
 She turned her head away and nodded slowly.
 
 Rules were rules.
 
-Leo slipped out of the room, and picked his way through the small maze of hallways. It wasn't quite a "mansion", but it definitely made one question where the line was drawn on such a categorization.
+Leo slipped out of the room and picked his way through the small maze of hallways. It wasn't quite a "mansion", but it definitely made one question where the line was drawn on such a categorization.
+
+His face buried in his phone, catching up on a night of community drama and success as he walked.
 
 He had always felt like an intruder in this house, and "sneaking" out really didn't help. The air was pristinely still, and the moonlight from oversized windows lit Leo's path without revealing as much as a single dust mote.
 
@@ -84,7 +90,7 @@ They creaked slightly under each step; the sound felt like a large crack in the 
 
 "What do you think you're doing?" A voice cut across the large room; it was spoken softly, yet still carried an air of precision and command.
 
-Tanya, the older sister.
+Tanya, the older sister
 
 Leo froze mid-step just above the ground floor, his mind racing through responses as his stomach dropped and twisted at the potential for confrontation.
 
@@ -92,7 +98,13 @@ He hadn't thought anyone was here but May and her parents. If Tanya was here thi
 
 Was this an intervention?
 
-"Leaving?" Leo finally answered, hoping that would be sufficient.
+The implications were overwhelming.
+
+His mind swam at the looming confrontation, and his mind filled with a million scripts designed for de-escalation.
+
+In the back of his mind sat a tiny hope he refused to acknowledge. Maybe *this* was the route to "simple"...
+
+"Leaving?" Leo finally answered, hoping that would be sufficient but knowing it wouldn't.
 
 "Nuh-uh." Tanya's footsteps approached from behind.
 
@@ -102,15 +114,15 @@ His body attempted to do both at once, which resulted in him simply stumbling do
 
 "With May. What are you doing?" Tanya planted herself directly in front of Leo. She was dressed professionally, in a slate-gray pantsuit and a double-breasted blazer.
 
-Leo couldn't help but feel the look was meant to indicate that she meant business.
+He needed to... what... what was his goal?
+
+Give her power over the conversation; de-escalation has always been the priority, and people de-escalate when given what they want.
 
 "Do you want me to actually answer that?" Leo cautiously asked.
 
 Tanya rolled her eyes. "I know you two are fucking. That's not what I'm asking."
 
 "Then what do you want to know?"
-
-Leo had minimized conversation with Tanya historically. He didn't dislike the woman; she was more or less to May what Leo was to Astrid. But he just... didn't know how to talk to her. So he didn't.
 
 "You know she's hurting?" Tanya said.
 
@@ -124,27 +136,33 @@ Both his mind and his heart raced at the admission; they felt taboo.
 
 Did that count as a breakage of "no affection"? Or was this interaction outside the boundaries of that... game?
 
-Tanya let the words echo through the house, slowly returning them to the imposing silence.
+Tanya stayed silent as the words echoed through the house, slowly returning them to the imposing silence.
 
 Was Leo supposed to defend himself here? Was this where he monologued about how much he loved May? Did he need to prove himself? Some feat of strength to show his devotion?
 
 Tanya's eyes narrowed even further, and Leo couldn't help but feel his mind was being read.
 
-"But you are leaving?" she asked. It sounded like an honest question.
+"You love her, and you are leaving?" she asked. It sounded like an honest question.
 
 "I..." Leo shuffled his feet, preparing a line for de-escalation, averting his gaze to the floor.
 
-Tanya wasn't venting, though. She wasn't frustrated. There wasn't anything to de-escalate. None of his lines fit here.
+Tanya wasn't venting, though. She wasn't frustrated. There wasn't anything to de-escalate.
 
-So he went with honesty. "She established boundaries to protect herself. I'm respecting them."
+None of his lines fit here.
+
+She wanted to actually listen? That felt strange; most people approached conversation with an agenda, whether they admitted it to themselves or not.
+
+Tanya continued to study him; he wouldn't have long to think before it appeared he was crafting lies.
+
+So he went with honesty. "May established boundaries to protect herself. I'm respecting them."
 
 Although he didn't mention that technically, "no staying overnight" was a rule he himself had contributed to. May wouldn't have agreed if it wasn't important to her.
 
 The response earned a *long* silence.
 
-Leo wasn't quite sure what he was supposed to do, so he stared at a distant grandfather clock, watching its pendulum swing slowly back and forth in rhythm with his thoughts.
+Leo wasn't quite sure where to look, so he stared at a distant grandfather clock, watching its pendulum swing slowly back and forth in rhythm with his thoughts. His phone remained gripped tightly in his hand as if squeezing it hard enough would summon May.
 
-"I don't... what am I supposed to do?" He found himself asking, returning his gaze to her.
+"I don't... what am I supposed to do?" He found himself asking.
 
 "Well, that's the item up for debate." Tanya sighed, beginning to pace in a half circle around Leo. Her fingers rubbed her temple like she was solving a complicated puzzle.
 
@@ -170,37 +188,203 @@ Leo's blood froze as he turned his head to find a figure enveloped in the shadow
 
 This was most definitely a planned intervention.
 
-Leo's voice came out flat. "Would you believe me if I said I agree with Deja?" He wasn't entirely sure if that was a lie.
+Leo's voice came out flat. "Would you believe me if I said I agree with Deja?" It was honest... but also not?
 
 He could make out Deja's head tilting ever so slightly, though she didn't respond.
 
 "I would, and do, believe you. And that's the problem."
 
-"Why is that a problem? It's what I should do, then. I'm hurting her. We all agree about that. This is clearly abusive." Leo turned back to Tanya, finding pursed lips and an attentive stare that felt like it grabbed onto and studied every word that escaped his lips.
+Leo spoke, "Why is that a problem? It's what I should do, then. I'm hurting her. We all agree about that."
 
-It had been the first time he ever said "abusive" out loud; he didn't like the word. It often villainized and undermined the complexity that composed "human beings."
+Leo turned back to Tanya, finding pursed lips and an attentive stare that felt like it grabbed onto and studied every word that escaped his lips.
 
-But that was what this was, right?
+"Did you just admit that you're abusive?" she finally asked.
 
-Tanya shook her head. "You could define it as abusive if you want. There's an established cycle of harm, sure. But I can tell you, Deja and I have both had *abusive* relationships, and you, Leo, are *not* an *abuser*."
+"No!" Leo said with widened eyes, "Wait... Maybe?"
 
-That last word smacked Leo in the face.
+Tanya didn't respond.
 
-The implication being that an abusive relationship could exist without an abuser felt... right? He still wasn't quite sure he wanted to categorize their relationship as abusive; it sounded like Tanya was hesitant as well.
+Leo had to fight the urge to move, and his leg began to bounce with energy.
 
-But something was *clearly* wrong with them.
+Tanya's gaze fell to the leg, though she said nothing, as if noting a data point. Leo groaned internally.
 
-Leo looked back at Deja, but found her missing.
+He grabbed for any words to shift the focus away from bodily movements he struggled to control.
 
-"But doesn't that just complicate things?" Leo turned back to Tanya.
+"I... never liked the word abusive. It gets used to reduce complex people to oversimplified accusations based on-"
 
-"Yes."
+"You're saying abuse isn't real?" Tanya interjected sharply, her eyes turned sharp enough to cause Leo's leg to go still.
 
-That single word filled the silence with the noise and nuance of a million unspoken assertions.
+Leo felt a flare of heat and pressure through his head that he did his best to ignore.
 
-Some piece of Leo's mind had hoped that May's sisters would just tell him what he knew: that they should just end things and move on with their lives. It would simplify things, though the feelings that would follow would most certainly be anything but simple.
+"That's not what I said!"
 
-Instead, he had just been struck with yet another layer of complexity. It was so much easier when he could just view himself as the bad guy, but if May's own sisters were saying that wasn't the case...
+"You just said the label 'abuser' is reductionist," Tanya said.
+
+The pressure in his head grew, practically restricting Leo's vision.
+
+"No! I was attempting to state that the term mislabels a lot of people based on bad faith and defensiveness. It's harmful to use so loosely. May and I-"
+
+Tanya interjected. "So you don't like a word that gives victims language simply because it gets used wrong occasionally?"
+
+Leo's mouth hung open.
+
+Was that what he had said?
+
+He could see how it *could* come off that way...
+
+But it wasn't what he meant.
+
+"That's... not..." Leo's mind rapidly fired, pushing through the thick fog building in the front of his brain.
+
+Leo began to pace a short line along the bottom step of the stairwell, his eyes tracing the ground. He could feel Tanya's gaze on him with every step, and caught occasional glimpses of Deja leaning against the hallway entrance and watching.
+
+What *was* he trying to say? He was trying to say that he didn't *feel* like an abuser. He was doing what he legitimately thought was best for May. But that's what an abuser would feel... right? Was he abusive?
+
+"You think a lot," Tanya said.
+
+"Is that a problem?" Leo asked.
+
+"No. Simply an observation."
+
+Leo came to a stop where he had started. He wasn't prepared for this conversation. He simply wasn't. The thought boiled the pressure in his head over, causing it to erupt into words from his mouth.
+
+"Why... Why is the burden of proof falling on me? Why is it that when *I* try to communicate, every word I say gets picked apart and proven wrong? Meanwhile, everyone else gets to say whatever they want, and the world just moves on? What am I doing differently? Of course, I think a lot! That's the point! Well-informed opinions and honesty, right? The honest truth is, I love May, I'm doing my best, and my best is *clearly* not good enough."
+
+Leo's legs went tense as if ready to run. Every thread in his brain fired on preparing responses to the escalation that was surely to come from both Deja and Tanya. That *surely* had pushed things over the ledge.
+
+Instead, silence followed.
+
+A long silence.
+
+Tanya simply continued to study him, categorizing every facial movement, every flexed muscle, every dart of the eye.
+
+Then she smiled.
+
+"You're right. Do you want to talk through things, get some answers, or do you want to go?"
+
+Leo blinked. She was using his own de-escalation technique on him. Giving him an out.
+
+He was speaking to someone who understood nuance. Maybe he should have spent more time getting to know May's sisters.
+
+"Answers. Please," Leo said.
+
+Tanya glanced to the side. Leo followed the gaze, expecting to find Deja. He found the hallway empty.
+
+What had he said that de-escalated this? Hadn't he *escalated*?
+
+Tanya stepped over to the stairwell and took a seat on the bottom step. Leo paused briefly, then sat on the opposite side of the step, staring out the window at the distant, moonlit, and cloudy night.
+
+When she spoke, it lacked the accusatory sharpness of previous assertions. "Deja and I both had abusive relationships. I'm sure you could, psychologically, reduce both cases to 'defensive' or 'learned behavior'. 'Doing their best', as you put it. It's most certainly how *we* rationalized their behavior, for much longer than we should have."
+
+Leo exhaled slowly, piecing together his words carefully.
+
+This would not be the first time he'd need to use a line like this, so much of it was familiar.
+
+"I sounded insensitive, my apologies. I help run a large community. We have a lot of... misunderstandings. People get accused of being creeps or assholes all day, and every time I look into it, it always comes back to circumstantial evidence. I didn't mean to trivialize anything you've been through."
+
+A cloud cast the room into darkness.
+
+"Thank you. Most people would have just said 'I'm sorry,'" Tanya noted.
+
+"It would have been disrespectful to your history to reduce it to that," Leo said, truthfully.
+
+That earned another several moments of silence from Tanya, measured out by the grandfather clock.
+
+"Why does May say you refuse to have difficult discussions? You tackled that one with a rare level of tact." Tanya asked.
+
+Leo furrowed his brow as the moon began to peek through, casting a sliver of light onto the center of the hardwood floor.
+
+The question didn't feel like the full problem space.
+
+May and he had good talks... they debated community problems all the time. They regularly motivated each other out of spirals of self-doubt.
+
+There *had* been progress from year one. May knew when to step away, and Leo had learned to give her a few days to cool down. Or a week. Or several weeks.
+
+But he understood that... It often took *him* weeks to process things.
+
+"I don't... think I do? But when she decides she wants to have them, those are the days when it's difficult to talk to her."
+
+Tanya laughed. The sound echoed up and filled the house. "Trust me, we know that feeling."
+
+Leo glanced over again. "That's not just a me thing?"
+
+"No. It's... let's just say it's how she is," Tanya said.
+
+It felt like Tanya knew something. Leo wished he could dig; if there was some magic key to understanding May, he *craved* it. But he couldn't. It wasn't his place.
+
+"The way you talk," Tanya pivoted. "Tonight, at least... You ride a fine line between bravery and ignorance to say, essentially, 'abuse is complex' to someone you know little about."
+
+Leo thought back to his defense of Cale.
+
+"I feel like my entire life is a race condition between bravery and ignorance," Leo said.
+
+Tanya gave a sharp hum of agreement.
+
+"If it doesn't match an already accepted social message, it will be scrutinized. It's a very common problem in medication when new data emerges. Institutional knowledge moves slower than emerging theory, and lived experience constantly reveals patterns not explored in theory. The professionals exploring nuance receive the most pushback."
+
+Leo stood and walked towards the window. His arms crossed, and he stared across the long front lawn, towards the distant woods.
+
+That *was* what it was, wasn't it?
+
+He was far from a "professional"... but Leo *did* take the time to understand people. No one else seemed to want to do that? It was like they *preferred* to be mad and move on rather than understand.
+
+Like they were OK being wrong.
+
+"It's a fucking dumb rule," Leo finally said.
+
+"What rule?"
+
+"Conform or be ostracized. Stick to the pre-established social expectation. We have several autistic community members. They... think differently. Not wrong, just different. We were raised to be empathetic to everyone, but as soon as someone is different, that empathy doesn't apply?"
+
+"Do you..." Tanya said, "No know-"
+
+"Can you..." Leo interrupted as a thought forced itself to the front of his brain. "Can you lay off May a little? On her job, her career. She's not... interested in leaving a 'footprint'. I think she feels like... well... ostracized because she's not conforming to family... expectations. That *can't* be good for her stress."
+
+Tanya went silent.
+
+When Leo looked back, he found her staring at him as if trying to solve a puzzle, with her eyebrow raised.
+
+"What?" Leo asked.
+
+He had thought it was a perfectly valid request.
+
+When she spoke, the words came carefully, like she was treading a minefield. "Have you ever been to therapy, Leo?"
+
+What?
+
+What did that have to do with *anything* Leo had just said?
+
+"Therapy?" Leo asked.
+
+Was he broken?
+
+What did she see?
+
+Was his face doing something wrong?
+
+What had he said?
+
+Tanya stood and glanced up towards the second-floor hallway leading to May. "Therapy. It's good. You would be surprised at the things that it can turn up."
+
+"I... Never considered it?" Leo... said?
+
+Tanya nodded slowly without looking back.
+
+"I'm going to talk to the family. It appears there are a few misunderstandings. I agree with you. The pressure we put on May was wrong. I want to refocus it."
+
+She... *agreed?*
+
+People could do that?
+
+The words washed over Leo in a wave of profound relief, pushing back mental clouds he hadn't realized existed.
+
+Reduced pressure on May.
+
+Would that decrease her stress levels? Possibly cause her to not have weeks when she seems irritated by everything?
+
+How did therapy play into all of that?
+
+"But what would-" Leo started.
 
 Footsteps echoed out of the second-floor hallway like gunfire, causing both Leo and Tanya to turn their heads up.
 
@@ -212,30 +396,30 @@ A flurry of steps took her down the staircase.
 
 "Dressed like that? The fuck you were." May landed directly in front of Tanya, placing her face inches away from her sister's.
 
-The move bought Leo an escape angle, though he wasn't sure Tanya would stop him at this point.
-
 Tanya ignored her encroaching sister. "Leo and I had a conversation, didn't we, Leo?"
 
 "That's the shit people say in movies when they interrogate someone, cut the shit, Tanya," May growled.
 
-"No, May. You don't understand. It was good. It helped." Leo moved towards the door, very briefly meeting Tanya's eyes.
+"No, May. You don't understand. It was good. It helped," Leo gave his best smile, which he was quite aware was clumsy at best.
+
+"Leo, don't-" May began to snap.
+
+"No, May. Really. I'm not covering for your sister. It wasn't an interrogation; it was perspective sharing." Leo moved towards the door, very briefly meeting Tanya's eyes before turning his gaze back to his portal of escape.
 
 The statement had the intended effect, and May took a step back.
 
-With the bomb disarmed, Leo slipped out of a door for the second time that night. He felt three sets of eyes on him as he left, combining with the distant glares of the family portraits.
+With the bomb disarmed, Leo stepped out the door. He caught Tanya's lips mouthing the word "therapy" one last time before he emerged into the night.
 
-The house's imposing presence was replaced by the still isolation of a moonlit night.
+He felt three sets of eyes on him as he left, combining with the distant stares of the family portraits. They felt less... judgmental, now, though.
 
-How could Cale suggest that he just keep things simple?
+The house's presence was replaced by the still isolation of the dimly lit night.
 
-None of this was simple.
+He felt he had cleared the level, but was still defeated... His princess was *not* in another castle; she was right there in this one... separated only by a bunch of dumb rules.
 
-He could at least give himself some slack, which helped. Tanya was right, he wasn't intentionally hurting May.
+And now he needed to look into therapists?
 
-But did that actually make it better?
+What the fuck was Cale talking about, "simple"? None of this was simple.
 
 Leo sighed as he started his car, the soft hum of the electric engine providing a sense of grounding to his racing thoughts.
-
-He felt he had cleared the level, but was still defeated... His princess was *not* in another castle, though; she was right there in this one...
 
 He was beginning to suspect that he disliked rules.

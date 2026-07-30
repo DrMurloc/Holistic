@@ -22,7 +22,7 @@ She showed him the dysfunctional girl. The girl that she never understood. The g
 
 And he had called that girl *beautiful.*
 
-Astrid's eyes flickered over her new boyfriend for what felt like the thousandth time in the last hour. It appeared that *she* was now the one to steal glances.
+Astrid's eyes flickered over her new... boyfriend?... for what felt like the thousandth time in the last hour. It appeared that *she* was now the one to steal glances.
 
 Cale had, in fact, to Astrid's horror, pulled a blazer out of a locker in the metro and thrown it over his t-shirt. The way it sat on his squared shoulders, though...
 
@@ -52,8 +52,6 @@ Their lips locked, finding a now familiar tilt and angle.
 
 Do kisses cause chapped lips? Would Astrid need to start carrying Chapstick? These were not things that she ever needed to consider before.
 
-Their tongues ventured with this kiss; it felt like the next evolution of the thumb wars that had quickly become customary.
-
 When they pulled apart, the now cool air left Astrid's moist lips tingling.
 
 *Definitely Chapstick.*
@@ -62,7 +60,7 @@ The city, which had the decency to retreat during their intimate moment, returne
 
 "OK, so where is this Ruby Tuesday's?" Astrid's searching eyes caught a *very* well-dressed couple, a suit and an elegant sequin dress, who turned into a glass double door just beyond where they stood.
 
-Not even the warmth of Cale's protective embrace was able to fight off the chill that filled her veins.r lips
+Not even the warmth of Cale's protective embrace was able to fight off the chill that filled her veins.
 
 Cale donned his smirk and led her by the hand forward and through the two glass doors under a large, stylized sign that read "Harmony".
 
@@ -80,9 +78,29 @@ He didn't immediately respond as he interacted with the host. Her head darted ov
 
 "Cale, I'm clearly underdressed…" Astrid whispered as they approached the table, eyes lingering on a woman with hair done up in a bun with dozens of golden accessories.
 
-"Don't worry about them. It sucks for them that even with multimillion-dollar dresses and makeup, they're still not even half as gorgeous as you." He whispered back.
+Cale came to a stop and looked back. His lips parted briefly. Was that concern?
 
-Now, Astrid had suspected on multiple occasions over the years that Cale had caused her heart to, in fact, skip a beat.
+"If you're concerned, we can run across the street, I'll buy you a quick outfit," he said.
+
+"Those were *designer* brand stores."
+
+"And?"
+
+Astrid glanced past him to the patiently waiting host, then back outside, then back to Cale, who retained the parted lips.
+
+"You'd buy me a designer outfit for a single dinner," Astrid said flatly.
+
+"Of course. This isn't just *any* dinner," Cale said with a grin.
+
+Astrid shook her head. "No. It doesn't actually bother me. I just... expected them to turn us away."
+
+It wasn't *entirely* true... But she couldn't let him just... buy her an outfit, right?
+
+Her eyes scanned the room as she took a few steps towards the table.
+
+"Don't worry about the others. It sucks for them that even with multimillion-dollar dresses and makeup, they're still not even half as gorgeous as you." He whispered.
+
+Astrid had suspected on multiple occasions over the years that Cale had caused her heart to, in fact, skip a beat.
 
 In that moment, though, her entire body seemed to completely forget that it had any functions to perform beyond a dropped jaw and wide eyes as the man who had spent her whole life as a babbling idiot so casually dropped that comment like he was talking about the weather, then proceeded, without breaking rhythm, to pull a chair out for her.
 
@@ -96,13 +114,11 @@ Astrid found words as her body restarted, "Who the *fuck* are you? Look, you don
 
 And there was the grin.
 
-There was a *serious* part of Astrid's brain that contemplated pulling a Leo-and-May, how private were the bathrooms here?
-
 Something he had said played back in her head as she accepted the seat, "Wait, did you say million-dollar dresses? An exaggeration, right?"
 
 "Oh, yes, an exaggeration. The goal was to make you feel pretty, in case that had been missed." Cale took his own seat, which had been pulled out by the host.
 
-"It was an honorable attempt." Astrid lied. She had felt like a *queen*.
+"It was an honorable attempt." Astrid lied.
 
 Cale chuckled and continued, "Most of them are probably only several thousand. Two Michelin stars get you quite the attention. I had to book this a month out, and even then, I got lucky that they had a cancellation."
 
@@ -126,11 +142,9 @@ Cale checked the time on his phone. Astrid checked her own: 7:03 PM.
 
 She raised her eyes to find a raised champagne glass as Cale exclaimed, "To new beginnings."
 
-Astrid shook her head slowly and made no motion for her own glass; she would *not* start a relationship based on unknowns and secrets.
+Astrid shook her head slowly and made no motion for her own glass.
 
 He sighed and put the champagne down, "I had a job offer. A very good one."
-
-*Nope. Keep going.*
 
 Her gaze remained resolutely locked on his.
 
@@ -138,9 +152,9 @@ The band switched into a slower rhythm, and the room lowered to a whisper in rea
 
 Astrid shook her head again, "You can't just leave it at that. I'm not drinking any of this… likely overpriced… champagne until you tell me what in the world got you to finally take this leap."
 
-The smile flickered on and off Cale's face a few times before he continued, "It was pretty much the same position at the same pay. But in Osaka. I don't know if I have to explain the implications of a job in Japan on American City pay…"
+The smile flickered on and off Cale's face a few times before he continued, "It was pretty much the same position at the same pay. But in Osaka. I don't know if I have to explain the implications of a job in Japan on equivalent American City pay…"
 
-Astrid leaned back, beginning to understand, "Life of luxury. Got it."
+Astrid leaned back, beginning to understand, "Big quality of life improvement. Got it."
 
 Her arms crossed, but her armor was never designed to protect from pains within.
 
@@ -160,9 +174,19 @@ But to hear that it had impacted *him* so much.
 
 Astrid needed to turn her head away, "I… I didn't realize this was affecting you that much… I'm… sorry…"
 
-*Wait, there was an important word he used in that sentence.*
+"No! Astrid!" Cale said.
 
-She looked back, "But, you used the past tense. Had."
+Astrid looked back to find his furrowed brows and parted lips.
+
+What was he-
+
+Her hand raised and found a tear on her cheek. She studied it and took a brief inventory of the confusing mess of heat and tension that sat in her stomach.
+
+"This is why I didn't want to tell you, I-" Cale began.
+
+"It's nothing, I'm fine," Astrid lied. She wiped the tear on a napkin and looked back to Cale. "But, you used the past tense. Had."
+
+Cale paused, but leaned back.
 
 "The job offer, and coincidentally a pretty decent offer on my condo, expired exactly…" Cale rechecked his phone, "Eight minutes ago."
 
@@ -194,7 +218,7 @@ Because he only had *one* day.
 
 Light applause erupted somewhere distant in the room; neither Astrid nor Cale even flinched at the noise.
 
-Astrid grasped for any words that could possibly convey how much she *loved* him right now.
+The feeling in her stomach spread to her chest, and she grasped for any words that could possibly let it out.
 
 "You are…" She found words and began to shape those words into something that was most certainly a sentence: "an absolute, bona fide moron."
 
@@ -202,11 +226,9 @@ The statement slowly began to return them to real time.
 
 Cale grinned and leaned back with crossed arms.
 
-*He DOES enjoy it. How much have we fucked each other up?*
-
 Astrid leaned forward, her own arms crossing, "Legends will be written about your stupidity. A case study for all future Neanderthals to learn from."
 
-A few tears escaped, but none were quite as traitorous as the smile that filled her face.
+A few further tears escaped, but none were quite as traitorous as the smile that filled her face.
 
 Cale's grin somehow managed to widen even further, his hands turned palmed up and flexed fingers in challenge, "You have more, come on, you can do better than that. I believe in you."
 
@@ -218,13 +240,11 @@ He nodded in encouragement, "Oh, that was good. I'm putting that in the blog."
 
 Astrid found yet another, "The monkeys with typewriters comment couldn't have even applied, at least the monkeys would have the common sense to figure out how to hit the typewriter."
 
-He grunted in approval, "Tying it back to previous insults, I love it."
+He grunted in approval, "Tying it back to previous insults; I love it."
 
 She legitimately wasn't sure he would get this: "All the times they needed to use a frictionless vacuum for physics experiments, they only needed to look no further than between your ears."
 
 "Was that frictionless for a brain with no wrinkles? Astrid, that was phenomenal. Are you reading these off somewhere?" He turned around briefly to jokingly check behind him.
-
-*Oh, he IS clever.*
 
 "You…" she wiped away a few tears to buy time, but couldn't find any more.
 
@@ -234,7 +254,7 @@ So she went with her favorite.
 
 "You are an idiot."
 
-Cale stood briefly, giving a small golf clap, "Stuck the landing with a classic. Well delivered, ten out of ten. Poetic to a T."
+Cale stood, giving a small golf clap, "Stuck the landing with a classic. Well delivered, ten out of ten. Poetic to a T."
 
 Astrid snorted, avoiding eye contact as several nearby tables eyed the man who was giving a standing ovation.
 
@@ -252,23 +272,15 @@ Astrid stared at her glass.
 
 *New beginnings, that I almost screwed up.*
 
-No, it was behind them.
-
-Astrid couldn't soak in that thought.
-
-She was here, now, across the table from the man that she had loved for years. And she was finding out that he was somehow infinitely more charming than she had ever dreamed.
-
-And *oh,* there had been dreams.
-
 Her chest rose and fell with a deep breath, and she finally raised her glass, clinking it against his, "To new beginnings, long overdue."
 
 They drank.
 
-Astrid knew nothing about champagne; she was a bourbon girl.
+Astrid knew nothing about champagne.
 
 Was this dry? Wet? Can you call wine wet? In any case, it didn't suck. Cale seemed to have a positive but not overwhelming response.
 
-"How overpriced?" She asked, curious. She was wholly ready to find out that Cale was somehow an enlightened wine aficionado at this point. She began to understand why Zoey kept accusing Cale of being a super spy.
+"How overpriced?" She asked. She was wholly ready to find out that Cale was somehow an enlightened wine aficionado at this point. She began to understand why Zoey kept accusing Cale of being a super spy.
 
 Cale considered the champagne, tilting it beneath the light and studying the tablecloth.
 
@@ -294,7 +306,7 @@ Cale sighed and similarly began to poke at his meal.
 
 They both slowly made their way through their first plate, letting everything sink in.
 
-Astrid found her eyes turned away, replaying the conversation they had just had. The reservation had been for one.
+Astrid turned her eyes away, replaying the conversation they had just had. The reservation had been for one.
 
 She caught Cale craning his neck in an attempt to catch her stare.
 
@@ -306,7 +318,7 @@ Cale smiled; it seemed it was his turn to look away. He placed one of the pieces
 
 "Cale." Astrid pressed as he delayed the question.
 
-He shook his head, turning back to her, "No. I've come a long way since we fought, but I had no confidence that I had come far enough."
+He shook his head, turning back to her, "No. I've... put a lot of work in changing, I like to think I've come a long way, but I had no confidence that I had come far enough."
 
 The server topped them off with champagne.
 
@@ -328,41 +340,19 @@ Cale paused momentarily, smile fading and hand raising to rub his chin as he stu
 
 Astrid narrowed her eyes, causing him to follow up, "I kid. My apologies. It… means a lot. Really, especially coming from you, who also means a lot."
 
-They emptied their plates as the music shifted into a more upbeat and lively rhythm.
+The way he said it... didn't quite sound like he believed her.
 
-An old couple took to dancing in an open space near the band.
+Did he actually have confidence issues?
 
-"Gochujang burrata with charred scallions, served with a soy-balsamic reduction."
+The thought did complicated things with her heart, and she opened her mouth to press. But overstepping boundaries had been their problem to begin with... right?
 
-Astrid felt her phone buzz and pulled it out. "Hold on, Leo is asking how it's going, I swear I'm not being rude."
+She didn't want to hurt him; she never had.
 
-Leo had simply sent a series of question marks.
+A different sentence came out, "This is just confirming Zoey's conspiracy to some extent."
 
-Astrid considered an appropriate response. She settled on a smiley face.
+Cale paused, then bit onto the change of topic. "To her point, maybe we *should* have been secretly dating this entire time."
 
-She looked up to find Cale kneeling down next to her, positioning his phone for a selfie.
-
-"Really?" Her smile betrayed her yet again.
-
-"Oh yeah, Zoey's gonna love this." Cale tilted his head towards her. She rolled her eyes, but very willingly went in for the kiss as he took the shot.
-
-She... may have let the kiss linger a little longer than it needed to.
-
-What if he needed multiple shots?
-
-As he pulled away to return to his seat, she observed, "That'll make quite the conversation piece for the family."
-
-The photo appeared on her phone, and it was promptly set as her background image.
-
-Cale returned to the burrata on his plate, "Your mom hates me. I hope I don't get you removed from the inheritance."
-
-"She doesn't *hate* you… Well… she just doesn't want you around me. Or Leo. And wishes we had never met, OK, yeah, that's going to be a fun conversation. Your cousin is going to have a field day, though." Astrid laughed, popping her entire burrata in her mouth at once.
-
-"This is just confirming Zoey's conspiracy to some extent. To her point, maybe we *should* have been secretly dating this entire time." Cale leaned back and sprawled with his smirk, having finished his current plate.
-
-“I mean… that camping trip… I think we almost did." Astrid felt her cheeks warm as she thought back to that night.
-
-Their plates were swapped: "Soondubu ravioli in an anchovy dashi brown butter sauce".
+"I mean… that camping trip… I think we almost did." Astrid felt her cheeks warm as she thought back to that night.
 
 Cale cocked his head, "How so? You mean when we were stuck in the tent with pouring rain and spent an hour fighting about whether brown or black bears were native to North America? The funny thing is, we had our phones right there. Could have just looked it up."
 
@@ -370,27 +360,13 @@ Cale cocked his head, "How so? You mean when we were stuck in the tent with pour
 
 Cale's eyes widened with a grin. "I had a very similar thought myself, to be honest. Man, so close but so far. Not sure we would have worked well back then, though."
 
-He chuckled, popping a ravioli into his mouth.
+Were they working now?
 
-"Absolutely would not have. We acted like eight-year-olds until we were twenty-two. And then honestly, I think we just saw each other less, so it gave us time to simmer."
+Was this "working"?
 
-They basked in the moment of nostalgia, eyes drinking in each other like a limited resource.
+They emptied their plates as the music shifted into a more upbeat and lively rhythm.
 
-It was a shame the table was between them; Astrid could think of nothing she wanted more than to return to that silly swan boat.
-
-Cale pulled out his phone, laughed briefly, and returned it to his pocket.
-
-"What's so funny?" Astrid asked.
-
-"Leo is being dumb."
-
-Her own phone vibrated, and she checked it.
-
-Leo, in all of his grace and tact, had sent, "Astrid, no banging on the first date."
-
-The hypocrite.
-
-She had to take a deep breath to fight back the blush, assuming Cale had received a similar message. "I'm going to just leave that on silent."
+An old couple took to dancing in an open space near the band.
 
 The server interrupted the awkward moment, "Black cod alla jjigae."
 
@@ -417,6 +393,18 @@ The server looked between Cale and Astrid for a brief moment. Astrid glared betw
 The server nodded and promptly removed himself from what *had* to be getting referred to as "that table".
 
 "Idiot," Astrid said once the man was out of earshot, barely holding back a bout of laughter.
+
+**Now, I would like to take a moment to shift the camera out of the inexperience-fueled rose-tinted goggles Astrid has always had for Cale.**
+
+**There is likely a divide among readers right now. Some of you might be thinking, "OH my golly gosh, those two are cute now that they know how to communicate! This is what healthy communication looks like! The restaurant is even named 'Harmony'! How quaint!"**
+
+**The rest of you likely currently have your palm on your face while thinking something along the lines of "For the love of all things crustacean, you can't solve ten years of relationship trauma with cute banter". You are likely keeping inventory of every single moment these two managed to dodge meaningful communication, like Keanu Reeves dodging bullets in a digital simulation.**
+
+**I would like to think this is open to interpretation; after all, all relationships are different. Who am I to judge?**
+
+**I would like to think that, but then I would be wrong.**
+
+**The face-palmers are correct.**
 
 Cale eyed her for a moment, "You know, if you really want to own the trope, you can just call me baka."
 
@@ -450,11 +438,11 @@ Astrid nodded towards him, "But now you owe me for fulfilling your twisted fanbo
 
 Astrid turned to her own stew, which she noted tasted nothing like cereal.
 
-"You have therapy, I have eating. And drinking, to some extent. Man, that sounds bad when I put it that way…"
+Cale paused, "Some have therapy, I have eating. And drinking, to some extent. Man, that sounds bad when I put it that way…"
 
 Astrid's eyebrow raised with her own slight smirk, "Am I dating an alcoholic?"
 
-"No! No, well, depends on your definition. But when I would get overwhelmed, I would eat good food, drink specialized drinks. It made me feel in control, a reminder that I'm on a positive path. And when I got bored with local food… well…" Cale shrugged, placing a bite in his mouth as if to make a point.
+"No! No, well, depends on your definition. But when I would get overwhelmed, I would eat good food, drink specialized drinks. It made me feel in control, even when I know I'm not... It's... a reminder that I'm on a positive path. And when I got bored with local food… well…" Cale shrugged, placing a bite in his mouth as if to make a point.
 
 Her hand rose to stroke her lips, "Secretly cultured. How about that?"
 
@@ -468,8 +456,6 @@ She couldn't wait to take it off, among other things.
 
 "Right? See? But no. Not cultured. I just know what I like. Case in point." He gestured with two hands across the table at her.
 
-*Oh, that was clever.*
-
 Astrid's head raised back to bask in the praise, "I'll have you know this flattery will get you everywhere."
 
 *Every. Where.*
@@ -482,7 +468,7 @@ Their plates were switched: "Freshly imported hanwoo short rib ragu tagliatelle,
 
 Cale looked to Astrid, who nodded enthusiastically. "Yes, two of those please." The server left.
 
-"Are you familiar with Hanwoo?" He asked. She shook her head, "Very similar to wagyu. I'm surprised they import it, freezing this stuff would be sacrilegious, so there's a lot of money that went into getting this here… Likely is the majority of the bill."
+"Are you familiar with Hanwoo?" He asked. She shook her head, "Very similar to wagyu. I'm surprised they import it. Freezing this stuff would be sacrilegious, so there's a lot of money that went into getting this here… Likely is the majority of the bill."
 
 Cale took a bite and closed his eyes. Astrid studied the piece of meat for a moment and placed a bite of it in her mouth.
 
@@ -522,13 +508,13 @@ Astrid dropped her fork to the table, getting the attention of a few neighboring
 
 *And he would cover it?*
 
-Cale ignored the noise, holding up his phone with several gifs of dancing bears, "Zoey says congratulations, in much fewer words, by the way."
+Cale ignored the noise, holding up his phone, "Zoey says congratulations, in much fewer words, by the way."
+
+Astrid didn't even register the message on the screen.
 
 The number of times Astrid needed to grasp for words today, she had begun to contemplate organizing them alphabetically, "We… we couldn't… could we? Cale… depending on your definition, we've been dating for less than twelve hours."
 
 He nodded, accepting the perspective, but offered, "Based on some marriages I've seen, we've been married for ten years."
-
-*Fair*.
 
 She reached for *any* rationale *not* to, although something about a spontaneous retreat spoke to her deeply, "What if we just go back to fighting the whole time?"
 
@@ -536,15 +522,7 @@ She reached for *any* rationale *not* to, although something about a spontaneous
 
 Astrid snorted, looking down at her empty plate and contemplating a pool of sauce as if it were philosophically profound.
 
-"Mom would be furious." She stated.
-
-"Is that a problem?"
-
-She looked back up with an amused grin, "No, it would be hilarious. You're going to get so chewed out."
-
-"Tell her we are eloping." It got another snort out of her.
-
-Their thoughts were interrupted by the server approaching yet again with the last course.
+Their thoughts were interrupted once again by the server approaching with the last course.
 
 "As a palate cleanser, a Makgeolli granita with Meyer lemon, and dessert is a tteok tiramisu."
 
@@ -590,11 +568,11 @@ They knew one another.
 
 Well, she was *pretty* sure she knew him. Most of him. Enough of him.
 
+She tucked that thought away.
+
 And this dinner... If they had a week of *this* in store...
 
 They did have a *lot* of catching up to do. "Lost time" was a phrase that had passed through Astrid's head multiple times since that first kiss.
-
-That first kiss...
 
 She raised the glass to her lips, taking a sip. Oh, that was good.
 
@@ -638,7 +616,7 @@ The image of his pleading eyes when Astrid turned the corner to find him with hi
 
 She pointed at him, "You… you… It was even the *wrong* vending machine. The drink you wanted was in the *other* one…"
 
-Nearby tables filled with their own chuckles, eyes turning to him.
+One or two nearby tables filled with their own chuckles, though many simply averted their eyes.
 
 Cale basked in the humiliation.
 

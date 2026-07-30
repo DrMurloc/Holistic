@@ -2,15 +2,15 @@
 
 The sounds of distant clattering from the kitchen echoed through the empty church. Early afternoon light pooled at the edges of the room as the rooftop bar rubbed its eyes and began to stir.
 
-Diego leaned back, basking in the aura of pre-shift emptiness, a peaceful serenity. It would be some time before the congregation arrived, and only the lord knew what it would bring.
+Diego leaned back, basking in the aura of pre-shift emptiness, a peaceful serenity. It would be some time before the congregation arrived, and only the Lord knew what it would bring.
 
-A buzz from his pocket caused his phone to flip out in a flash.
+A buzz from his pocket caused their phone to flip out in a flash.
+
+The photo stared up caused a smile to spread across their face. Lara and Sho were surrounded by Carmen's dozen or so siblings, cousins, and parents. The crisp, blue coast stretched out behind them, and Sho, notably, was wide-eyed in a hug from Carmen.
 
 *That boy is a blessing.*
 
-The photo Sho sent of Lara grinning atop a mountain in the Swiss Alps was all Diego needed to make it through the day.
-
-Voices echoed into the room from the distant elevator, ripping Diego's eyes from his daughter with a cocked eyebrow.
+Voices echoed into the room from the distant elevator, ripping Diego's eyes from their daughter with a cocked eyebrow.
 
 They still had thirty minutes to open...
 
@@ -24,7 +24,7 @@ That was an unfamiliar voice.
 
 That voice was quite familiar.
 
-Lola snapped into place, leaning against the bar with her hip thrust out. "Cale! Honey! I was afraid you had moved on!"
+Lola snapped into place, leaning against the bar with their hip thrust out. "Cale! Honey! I was afraid you had moved on!"
 
 Cale grinned and shook his head. "I've... been... drinking less."
 
@@ -32,11 +32,15 @@ Lola waited for some witty explanation or deflection.
 
 None came.
 
-Lola nodded in appreciation. The man continued to evolve.
+Lola nodded in appreciation and took note of the way Cale's eyes didn't quite linger in contact.
 
-Her eyes, instead, turned to the friend.
+A breath Lola had held for years escaped slowly, carrying away what felt like the last piece of tension they had left.
 
-Khakis and a hoodie with hands retracted into the sleeves... Faint traces of circles under the eyes... Eyes trained on the floor... Curved, slightly numb posture...
+Cale had found a therapist.
+
+Their eyes, instead, turned to the friend.
+
+Khakis and a hoodie with hands retracted into the sleeves... Faint traces of circles under the eyes... Eyes also trained on the floor... Curved, slightly numb posture...
 
 The look reminded Lola of Cale in the early days.
 
@@ -44,7 +48,7 @@ Lola shifted on her pulpit behind the bar to face the boy. "Be careful with what
 
 Cale chuckled.
 
-"I... pardon?" The new boy furrowed his brow, clearly not getting it.
+"I... what?" The new boy furrowed his brow, clearly not getting it.
 
 "That stank, honey. It is *thick.*"
 
@@ -60,9 +64,9 @@ Did he just apologize?
 
 The boy's shocked expression was *delicious.*
 
-He attempted to study Lola; she suspected Cale had done nothing to prepare the boy for the reads he was about to get. This was good; Lola preferred it that way.
+He attempted to study Lola; they suspected Cale had done nothing to prepare the boy for the reads he was about to get. This was good; Lola preferred it that way.
 
-"Cale, what is this?" He turned to the idiot, who was leaning back, making it clear he would not get involved.
+"Cale, what... what is this?" He turned to the idiot, who was leaning back, making it clear he would not get involved.
 
 "Leo, trust me. Just go with it."
 
@@ -76,9 +80,9 @@ Lola grabbed a glass, eyes remaining on Leo.
 
 "Soju, honey?" Lola raised an eyebrow and met Cale's gaze.
 
-Well, almost met his gaze. He wasn't quite looking at her.
+Well, almost met it.
 
-Lola would need to catch up on that one later; there had definitely been some evolution there since she saw him at Gamfest two months earlier.
+Cale just shook his head in silence.
 
 "I don't know. Whisky. Ice." A muffled voice came from the folded arms of Leo.
 
@@ -90,15 +94,19 @@ The non-alcoholic paloma was placed in front of Cale, who nodded in appreciation
 
 "A girl. I guess," the pile of hoodie stated.
 
-"All I've gotten from that is that it's not a boy. Doesn't narrow it down, not in this, the year of our Lord. The details, honey, the juicy details. The devil is in there somewhere, and we need to find him."
+"All I've gotten from that is that it's not a boy. Doesn't narrow it down, not in this, the year of our Lord, 2026. The details, honey, the juicy details. The devil is in there somewhere, and we need to find him."
 
 Lola poured the bourbon into a tumbler glass, dropped in an ice cube, and placed it on the bar. Leo lifted a head and reached for it, but she pulled it back, flashing a teasing smile.
 
-"What do you want to know?" he asked with a sigh.
+"Like... What do you want to know?" he asked with a sigh.
 
 "Let's start with a name."
 
 "May."
+
+Ah. Right.
+
+Cale's other "friend".
 
 Lola smiled. "May. Beautiful name, May. Fireflies, fresh rain, warmth. I'm assuming you love this May. Does May love Leo? How long has there been a May?"
 
@@ -106,11 +114,11 @@ A fingernail tapped the glass.
 
 Leo considered, staring longingly at the bourbon.
 
-"We've dated off and on for almost four years now. Mostly on. I… I love her. She... I don't know... She used to love me. It's been three months..."
+"We've dated off and on for almost four years now. Like... Mostly on. I… I love her. She... I don't know... She used to love me. It's been three months..."
 
 The elevator door opened and Marcus entered, pausing briefly before heading towards the kitchen. Lola flashed a smile but otherwise didn't react.
 
-"Why the off then?" She turned her gaze back to Leo.
+"Why the off then?" They turned her gaze back to Leo.
 
 "We… fight," he said.
 
@@ -120,7 +128,7 @@ Lola looked to Cale, who shrugged slightly but shook his head.
 
 Leo looked back at Cale and groaned.
 
-"She gets mad and leaves," he admitted.
+"She gets... heated? And leaves," he admitted.
 
 Cale nodded.
 
@@ -128,129 +136,185 @@ Lola slid the glass to Leo, and he took a rather large sip, clearly wincing at t
 
 "And what do you do when she gets mad?"
 
-"I… I mean, what can I do? She's always right."
+"I… What *would* I do? She's her own person. I... like... I respect her decisions."
 
-Lola reached forward and snatched the drink away from him. He was left staring at his empty hand.
+Lola paused, then looked to Cale, who nodded.
 
-Lola had expected him to jerk up, get mad, indignant, anything.
+"And she... disrespects yours?"
 
-Leo just furrowed his brow, like the action needed processing.
+Leo thought for several moments on that. The sound of plates and trays clinking from the kitchen filled the air.
 
-"Is this… are you punishing me?" he finally asked.
+"No. She respects me, I'm pretty sure," Leo said.
 
-"If you treat yourself like a dog, I will too," Lola asserted, holding the drink up a few feet in front of his face.
+Lola nodded thoughtfully, "You said you fight?"
 
-He growled softly, and Lola grinned, although she wasn't sure he had picked up on what he had just done.
+"We... It's not fighting. Like... it's... she gets... fast? I can't keep up," Leo said.
 
-"You don't understand-"
+Flashbacks to Carmen spouting off hatred faster than Diego could respond flashed through Lola's mind. She closed her eyes, pushing back the thoughts.
 
-"What I understand is that this wonderful gentleman over here, one of my greatest clients, would not bring me someone just because a girl was right a lot. Honey, I'm going to need you to be honest with me about everything, including yourself. Spill. That. Tea."
-
-Leo looked back at Cale, who nodded encouragingly, otherwise remaining in his disengaged posture.
-
-"It... It's not like she's *entirely* right... but she's mostly right... and she... boxes me in, and leaves me with no logical arguments."
-
-Lola scoffed. "When did logic *ever* have anything to do with love, or any emotions for that matter?"
-
-Leo left an unspoken "what" on the tip of parted lips.
-
-"Ok, honey. Look to your right."
-
-Leo looked over to find Cale smiling back, knowing very well that he was about to be used as an example.
-
-Lola continued, "Half a decade of throwing himself into the fire day after day, changing nothing but expecting a different result is not logic, it's insanity."
-
-Cale leaned back with a widened grin, as if the accusation of insanity pleased him. The man was still a love-sick fool, regardless of whatever else he had going on behind those tired eyes.
-
-Leo looked back. "What, you're proposing I spend four years training myself to be the right person for May while passively manipulating her to tone herself down, then present her with an ultimatum?"
-
-Lola laughed. "Oh god, no, honey. Please, for all of our sakes, don't follow in that melodramatic idiot's footsteps."
-
-"Hey! That's Astrid's word," Cale exclaimed.
-
-"Shush, idiot." Lola held up a finger.
-
-"Then what?" Leo ignored Cale's objection.
-
-"When she gets mad, does she look over her shoulder before leaving?"
-
-Leo paused, and Lola could see the film replaying behind his eyes. "Every time."
-
-Lola grunted. "Get mad."
-
-"I'm not yelling at May."
-
-"No, you're not yelling *at* May. You're not here to hurt her feelings. You're yelling *for* May."
-
-Leo's brow furrowed. "What does that solve?"
-
-"I can tell you, first hand, if she actually loves you, even through whatever dumb accusation she's making, she feels hurt and alone. It's clear she doesn't want you to rationalize it; in that one moment, it's not logic she's looking for. It's your love. You're meeting heated, desperate cries for connection with cold rationalization. Show her the unyielding spirit, the tenacity of the lionhearted Leo."
-
-Cale grunted in support.
-
-Leo's eyes remained turned down to his drink.
-
-Lola tapped on the counter, leaning forward. "Up here, my feral feline."
-
-Leo reluctantly met her eyes; it seemed difficult for him to do, but he didn't look away.
-
-What was with everyone's eye contact today? Did Lola have something on her face?
-
-"I'll keep this simple, honey. Do you love her?"
+"Boxes you in?" Lola suggested.
 
 "Yes."
 
-"How much do you love her?"
+"Demands you look at her?"
 
-Leo took a deep breath, his eyes fixating on some bottle of liquor behind Lola.
+"Yes!"
 
-After a moment of thought, he finally responded, "How do I even answer that? I love her with all of me. Every morning, I wake up with her missing, and it feels like the world has lost its meaning. I've surrounded myself with hundreds of friends, supporters, people who care about me. They come and go, they have their own lives, and I have mine; that's just how family is. But May... if every single friend left me, if Cale and Astrid moved across the world, if I lost my job and found myself on the streets, starving and otherwise alone... If all I had was May, I would die with a smile on my lips."
+"Insults and demeans your value?"
 
-Now, Lola had, on multiple occasions, heard clients wax poetic about their love.
+"Ye- No!"
 
-She had heard it all: the writers, the poets, even the classical musicians who simply loved to embellish. All of their soulmates were worth dying for, some tragic end that sacrificed everything they had for "even a single moment".
+Lola's brows furrowed as she opened her eyes. She found Leo swirling his drink in contemplation. That boy was thinking *deep*. Lola tucked that data point away.
 
-On Lola's scale, she would give Leo a six out of ten for the words.
+"Honey, is she mad at you or not?"
 
-But it wasn't Leo's words that left her and Cale's jaws dropped.
+Leo looked back at Cale.
 
-It was the fire in his eyes.
+"May... says a lot of things about a lot of people," Cale said. "Neither Astrid nor I have heard her say anything negative about Leo."
 
-Lola had been attempting, this entire sermon, to bolster this timid cat to live up to his namesake.
+"Until... well... last time," Leo said.
 
-She had been largely unsuccessful.
+"Then why does she leave?" Diego's voice emerged, and they leaned forward on the counter, glancing between the two. The sudden drop in voice caused Leo to jump in his chair and snap his gaze back to Diego.
 
-But the passion, the raw predatory fervor that Leo had spoken with, the way his eyes had stabilized and grabbed Lola's with a level of factual assertion that almost caused her, herself, to look away... Well, Lola was now entirely convinced that this man *would* die for his love.
+After a moment, Leo shook his head and recovered from his shock. "She gets... Like... Irritated?"
 
-Lola fanned herself, taking a step back and averting her eyes to gather Cale's reaction.
+"At you?"
 
-Cale, who had almost fallen out of his seat, laughed. "Holy shit, Leo. Have you been reading Astrid's books?"
+"I used to think it was at me. Because I can't keep up. But... the pattern isn't quite right. I don't... know how to explain it. It's like she's... mad at herself? Irritated, maybe?"
 
-Leo shrank with a slight blush, giving an uncertain smile that had no rightful place on the face that had uttered such conviction moments earlier.
+This was clearly outside of Diego's experience.
 
-"Yeah... maybe. I've... had free time. Maybe too much. I haven't been to an arcade in a month."
+"Why does she stay?"
 
-Lola leaned back across the bar, determined to not lose momentum. "Wait, no, roll back a moment. That. All of that. Maybe not the words, but the way you said them. When May attempts to box you in, you give her *that*. And if she *still* leaves? Honey, then you have no right option."
+"Oh, she's only like that for part of the cycle. The other parts... I don't know. It's like we're on the same wavelength or something."
 
-Leo contemplated, but gave a sigh of resignation. "What do I do about all of the arguments I've been avoiding?"
+"Hormones? Monthly cycle?" Diego asked.
 
-Lola raised an eyebrow. "Do you really need me to answer that?"
+Leo squirmed in his seat, and his hands retreated into his hoodie. Diego rolled their eyes.
 
-Leo shook his head, but Lola could see the uncertainty in his eyes.
+"Leo, my Lord. Women have hormonal cycles. It doesn't mean you can reduce them to that, but it's reality. If you plan on dating one, you need to know that," Diego exhaled and straightened up.
 
-Lola's voice dropped to Diego's, causing Leo to jump slightly. "I'm going to tell you, avoiding the painful topics isn't good for you or her, or anyone else involved. You won't find immediate solutions to many of them, just the next step. I promise you, though, if any of them are true, absolute dealbreakers that you can't work past, grow into, or change around? Then you need to *get out* sooner rather than later."
+They turned on the sink faucet, splashing in some dish soap to continue prepping for open.
 
-Diego's eyes grabbed Leo's. With a slight cocked head, he made it *very* clear that this advice stemmed from experience and was not to be ignored.
+"It's not monthly, though," Cale noted.
 
-Leo nodded, and Lola could see just enough concern and fear in those eyes to make her confident that he was actually contemplating the assertion.
+"Tell me about you, Leo," Diego said.
 
-Leo excused himself to the bathroom, leaving Lola and Cale alone at the bar.
+"I'm not... important," the answer came quick, prepared.
 
-"Oh, before I forget." Cale pulled a letter from his pocket and slid it across the counter.
+Diego did a quick run-through of the entire conversation. The parallels to Cale were unignorable. Diego had no idea what was going on with this "May", but one thing was for sure...
 
-"Oh, honey, I was beginning to wonder if you had forgotten about me." Lola grinned as she ripped open the wedding invitation.
+"Cale, what were the first words you said when we met?" Diego asked without looking up. They stepped across the bar, checking inventory.
 
-"It would be awkward if we forgot you; it would be hard to have a wedding without an officiant."
+"'Give me a cup of tequila,'" Cale said.
+
+He was technically right.
+
+Diego rolled their eyes. "Lord, I will-"
+
+"'I'm not important.'" Cale added with a chuckle.
+
+Leo groaned.
+
+"Cale, what's one of the first things I suggested for you?"
+
+"Therapy," Cale added with no shortage of cheerfulness.
+
+A soft thud came from across the bar as Leo's head fell back into his arms.
+
+"I'm not-" Leo started.
+
+"Cale," Diego continued, "What's the one thing you wish you had listened to me immediately on?"
+
+"Ru Paul's Season 5. The black and white," Cale said. His head tilted back, and his mouth opened in mock ecstasy.
+
+Diego raised a hand to their face, hiding a smile and barely holding back a laugh.
+
+"It was no season 7 finale. The blue cocktail dress? The energy she brought?" Diego said.
+
+"She should have won," Cale said, shaking his head.
+
+Leo gawked at Cale like he had grown an extra arm.
+
+"What? Astrid *loves* it," Cale said with a grin.
+
+Diego tapped a fingernail on the bartop. "Ok, the second thing."
+
+"Talking to Astrid."
+
+Fair.
+
+"Ok, the third-"
+
+"Therapy."
+
+The scraping of a chair cut through the bar, and when Diego looked back, they found Leo halfway to the exit.
+
+"Leo, I'm sorry, we-" Cale started.
+
+"Lord... Leo, we were just lightening the mood," Diego said.
+
+The door to the elevator room shut with a thud.
+
+"Probably shouldn't have joked. Fuck," Cale said, leaning back and taking a sip from his paloma.
+
+"We were trying to help. If he doesn't want help, we won't be able to." Diego stepped over and leaned forward on the counter, staring at Leo's now-empty seat.
+
+"I tried to convince him to come by himself," Cale said.
+
+Diego's nails clacked against the bar top as they considered the abandoned whisky.
+
+"Does he know he's on the spectrum?" Diego finally asked.
+
+"No. Been trying to get him to take the test. But you know how it goes..."
+
+"Anything and everything you suggest is the last thing he'll do?"
+
+"Yarp."
+
+Diego grunted, then glanced over at his friend.
+
+"*You* seem to be doing well," Diego said.
+
+"I got *stimulants*," Cale said with a broad grin, "I'm so *stimulated*. You know how much of my personality was apparently just anxiety?"
+
+Diego couldn't hold the laugh back. "Yes! Lord, yes! *All* of it. They're helping?"
+
+"Immensely. Have to be careful with drinking, but apparently all of *that* was just me regulating anxiety too... so I'm just chalking it all up as a win," Cale said.
+
+"For I will restore health to you, and your wounds I will heal, declares the Lord," Diego muttered.
+
+"Preach," Cale said with a laugh.
+
+For a moment they fell into silence. Diego moved to make another mocktail, but Cale raised a hand and shook his head. He stared off out the distant window.
+
+"Gotta say, it's annoying being on the other side of it," Cale said. "The 'I'll do it myself' thing."
+
+A smile found Diego's lips as they began to remove the covers from the chorus of liquor.
+
+"Try raising a daughter with it," Diego said.
+
+Cale laughed, "Did you find anything that worked for her?"
+
+Diego pulled the phone out of his pocket, slid it across the bar, and leaned against the table. Cale caught it and looked down at the picture of Lara and Sho.
+
+"Faith. She found an equal she could have good faith in," Diego said.
+
+Cale considered the picture for a moment. His hand rose to the back of his neck and scratched.
+
+"You think Leo doesn't view me as an equal?"
+
+"Couldn't tell you. Sounds like he treats that May girl as one," Diego said.
+
+"Welp. I hope Astrid's having better luck than us then," Cale slid the phone back.
+
+The steady rhythm of R&B filled the air as Marcus turned on the sound system. The distant, faint chime from the elevators caused Diego to take a deep breath.
+
+"Should have listened to you sooner," Cale said. The smirk he wore... He was baiting Diego.
+
+Diego pushed off the bar and straightened up, letting Lola flash into place as the door opened.
+
+"Oh, honey, if only it were that easy. Some people just need to be shown, not told."
 
 **Astrid**
 
@@ -260,7 +324,7 @@ As Astrid took a seat across from her friend, May crossed her arms and looked ou
 
 "You're not getting me in that orange dress," May asserted.
 
-"May, there's a whole color theme!"
+"May, there's a whole color theme!" Astrid said with a groan.
 
 "I look like ass in orange!"
 
@@ -270,9 +334,9 @@ May's head turned at the sudden forfeiture of an argument that had been going on
 
 "You didn't get me here to talk wedding, did you?"
 
-Astrid cursed herself internally; she wasn't good at this. She attempted to deviate to a smoother segue.
+Astrid cursed herself internally; she wasn't good at this.
 
-"How are you doing?"
+"How are you doing?" she asked.
 
 May sighed and shook her head, attempting a smile, "Brad is-"
 
@@ -296,7 +360,7 @@ The public perception that the two suddenly had a flawless and perfect relations
 
 It seemed to get May to back down momentarily.
 
-"What would you fight about? Astrid, it's Cale! You two literally-"
+"What would you fight about? You two literally-"
 
 Astrid cut her off again. "I had a mental breakdown in the first few weeks of being home, of launching into a new career. You know what it was over? Laundry. I cussed him out over laundry. And I left. I stayed with Leo at Mom's for four days."
 
@@ -304,47 +368,49 @@ May's face contorted in an attempt to picture such an outlandish scene. "You lef
 
 "No! I gave us distance. Do you know how challenging it is for two people to suddenly live together, with all the day-to-day stressors? Two workaholics who have zero boundaries on work commitment? You know what I did the very night I left?"
 
-"Cried?" May grinned, but Astrid didn't even acknowledge it.
+"Cried?" May grinned, but Astrid did nothing to acknowledge it.
 
 "I texted him that I loved him and would be back soon."
 
 "Look, I get trying to figure out settling in is one thing, but-"
 
-Astrid wasn't done. "October. We had been talking about going to Spain for months. I had a series of big cases that kept me busy. Cale got tired of waiting and just... went."
+Astrid cut her off, "October. We had been talking about going to Spain for months. I had a series of big cases that kept me busy. Cale got tired of waiting and just... went."
 
-May's face fumed. "That motherfucker, that was after you were engaged? He just-"
+May's face fumed. "That crapsniffer, that was after you were engaged? He just-"
 
-"No, May, stop. Cale had spent the last four years doing what he wanted when he wanted. The travel, the food, the freedom, it's important to him. When he got home, we established boundaries."
+"No, May, stop. Cale had spent the last four years doing what he wanted when he wanted. The travel, the food, the freedom, it's important to him. He was doing what I wanted him to do, which was to prioritize himself; he just crossed a line we hadn't spoken about. When he got home, we established boundaries."
 
 "But love is about sacrifice, that's the fucking point, right?"
 
-Astrid shook her head. "You don't sacrifice everything, don't be so melodramatic-"
+Astrid shook her head. "You don't sacrifice everything, don't be so dramatic-"
 
-"Melodramatic? Astrid, did *you* just call *me* melodramatic?"
+"Dramatic? I'm just telling you what we we grew up with-"
 
-"That's not... May... You're not listening."
+"May, those lessons were built by people who didn't know what the hell-"
 
-"I didn't ask you to come here, you asked me."
+May huffed, "Look. I didn't ask you to come here, you asked me."
 
-"Leo deserves-"
+"Leo needs-"
 
-"Leo can come get me himself if that's what he fucking wants."
+"Leo needs me gone."
 
 "May when-"
 
-"Why are you sitting there and not him?"
+"Do you think I don't want to make it work? Do you think I don't *love* him? Why the *fuck* do you think I'm staying away?"
 
 A cup fell and shattered across the room, earning a hush through the cafe, though neither Astrid nor May reacted. A barista who had frozen next to them quickly scurried off to help clean up the mess.
 
 Astrid wondered briefly what she possibly could hope to accomplish here.
 
-Leo was the mediator. Cale was the smooth talker. Astrid... Astrid had built her entire vocabulary around debate and holding an unstoppable offensive. Astrid had gotten better, but still was not good at that whole "hug your emotions" out thing, and suspected it wasn't what May needed anyway.
+Leo was the mediator. Cale was the smooth talker. Astrid... Astrid had built her entire vocabulary around debate and holding an unstoppable offensive.
 
 "May, do you want to hear me out or not?" Astrid tapped her finger against her crossed arm.
 
 The two remained unmoving, glares met in a clash of unrelenting blades of ice against a raging stream of fire.
 
-What was this accomplishing? Astrid was better than this.
+What was this accomplishing?
+
+Astrid was better than this.
 
 Astrid sighed and uncrossed her arms, conceding. "You win, May. I don't want to fight with you. I'm not losing my maid of honor over this."
 
@@ -354,7 +420,7 @@ The grin quickly faded, leaving a furrowed brow of confusion in its wake.
 
 "I... I'm dating Brad," May said. It sounded like it was more directed at herself than at Astrid.
 
-Astrid stood. "If you're done with Leo, tell him. Because he's cutting himself off from the community the same way you are, hoping that will give some closure. But it won't. Only you can give him that."
+Astrid stood. "Leo's hurting himself. *He's* withdrawn from the community. He's on the cusp of losing his job. Cale and I spend as much time as we can with him, but we have our own lives. If it's over, help him move on. Give him a verbal, explicit end. Please."
 
 "I... Astrid, I don't... I can't trust myself around Leo. I... fucking can't trust myself around anyone. At least with some random normie, I don't give a shit if I hurt them..."
 
@@ -368,7 +434,7 @@ May didn't respond. Astrid felt that any further pushing would only fuel the coo
 
 After thirty seconds of no response, Astrid turned and left.
 
-Astrid didn't feel successful. She had told the girl to dump her brother.
+Astrid didn't feel successful. She had told the girl to dump her brother. But maybe that was the right move.
 
 The words rang in her mind, though... "I can't trust myself."
 

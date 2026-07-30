@@ -2,7 +2,7 @@
 
 Astrid sat on the metro, head leaning against the window, eyes focused on nothing in particular. The air hummed with silent anticipation. The city lights flashed by, a colorful mirage of energy and potential.
 
-Cale sprawled on the seat next to her, their hands overlapping on her leg.
+Cale sprawled on the seat next to her, his hand overlapping hers on her leg.
 
 There was no banter.
 
@@ -14,15 +14,25 @@ For the first time in their life, they simply soaked in one another's presence.
 
 A stop was announced, though Cale made no move to get up. He seemed to be lost in his own thoughts. The doors slid shut, and their vessel continued its rumbling progress.
 
-Astrid stole a glance at Cale, noting his mask was off.
+Astrid stole a glance at Cale, noting his armor... mask... whatever was off.
 
 Her mind had begun to draw a divide in how she viewed her boyfriend. Gone was "old Cale": the brash, opinionated, and relentless boy from high school and early college. "New Cale" carried charm, charisma, and calculated restraint.
 
-She had, at some point, fallen in love with the old Cale, but the new Cale was the one who won her.
+Harmony had been a rush...
 
-Did she love the old Cale or the new Cale?
+But...
 
-Even the word still felt foreign to her.
+Who was he?
+
+Could she trust him? He clearly knew *exactly* what she wanted to hear.
+
+He had shown real concern for her, though.
+
+That had been real, right?
+
+Or was it what she had *wanted* to hear and see?
+
+She forced the thought into the far reaches of her mind.
 
 The car shook lightly as a train passed on the opposing track, and her eyes drifted back out to the passing city.
 
@@ -34,9 +44,7 @@ Had they done that to each other? Or was this who they were?
 
 Or was she overthinking it?
 
-It had been an emotionally exhausting day, and they weren't even done. Cale had worked his charm all day, and Astrid had been charmed all day.
-
-The ebbs and flows of realizing how compatible they actually were had been a ride more thrilling than any coaster could achieve.
+It had been an emotionally exhausting day, and they weren't even done.
 
 Cale patted her knee as the next stop was announced.
 
@@ -152,8 +160,6 @@ What would she have done if she hadn't been able to verbally manipulate him into
 
 She didn't know, and that scared her.
 
-"Self-sabotaging tendencies" was a phrase her therapist had spent years trying to get into her head, and right now she felt it.
-
 But no, the reality wasn't that she was here to stake some physical claim.
 
 This was not her redeeming a prize.
@@ -162,7 +168,7 @@ The reality was that those boxes were *ready*.
 
 Cale had been *ready*.
 
-Ready to make a move that sounded like he *genuinely* thought would lead to a happier her.
+Ready to make a move that sounded like he *genuinely* thought would lead to a happier them.
 
 She felt Cale's hand find her back, though he offered no words to fix things.
 
@@ -171,8 +177,6 @@ She loved that he didn't.
 Her legs wobbled. She did nothing to stop the collapse onto her knees, nor the flood of tears that followed. This was a dam that had filled for some time.
 
 Her body shook, and her face fell forward as if hiding accomplished anything.
-
-A word managed to surface through the noise: Why?
 
 She attempted to pick up the shattered pieces of rationality that lay around her. Anything. Absolutely any logic that could explain...
 
@@ -196,7 +200,7 @@ Wait, that second one wasn't hers...
 
 She looked over and found Cale's own dam had broken, though it ran beneath eyes that held firm and unwavering.
 
-Astrid was unsure if she had ever seen him cry, even in the earlier days when their fights carried venom. Was this part of the new Cale or a piece of the old one she had never been exposed to?
+Astrid was unsure if she had ever seen him cry. Was this part of the new Cale or a piece of the old one she had never been exposed to?
 
 "No crying, idiot," she said, wiping her own eyes, "You're apparently the strong one now."
 
@@ -212,9 +216,7 @@ When she spoke again, her voice had partly cleared up, "You just… You set this
 
 Cale laughed weakly, "Oh man. You have no *idea* how many people it took to convince me to talk to you before I left. I was ready to ditch and hate myself forever for your sake."
 
-Something in that sentence grounded Astrid...
-
-With a slightly-less-than-dignified sniffle, the tears dried, letting her focus.
+Something in that sentence grounded Astrid. With a slightly-less-than-dignified sniffle, the tears dried, letting her focus.
 
 She cocked her head, "Cale, how many people have you talked to about us?"
 
@@ -238,9 +240,9 @@ The thought of using that confession as ammunition had never even crossed her mi
 
 Cale nudged his shoulder into her and squeezed her hand, "See? This has always been a two-player game."
 
-She worked through that assertion. Were they doing it again, now? Crafting a new game that would lock them in place? It seemed like they were, but maybe the place that locked them in was better.
+She worked through that assertion. Were they doing it again, now? Crafting a new game that would lock them in place? It seemed like they were, but maybe the place that locked them in was better?
 
-“This… us… We *will* work, right?" she said cautiously, almost afraid of any answer he would provide.
+"This… us… We *will* work, right?" she said cautiously, almost afraid of any answer he would provide.
 
 She expected a witty remark, a deflection, or a downplay of the concern.
 
@@ -258,11 +260,73 @@ When she didn't respond, he followed up, "A wise bartender once told me that the
 
 A celebration of connection… that's what today had been.
 
-It had been all the best parts of their lives, but shedding the worst. It didn't matter if this new Cale was different from the one she knew before, though she still had a lot to mentally work through on that topic.
+Right?
 
-That connection was still there.
+Or were they just continuing a cycle?
 
-Astrid slowly stood up, pulling him up with her.
+Astrid shook her head slowly. "We have a lot to talk about."
+
+"Understatement of the fucking century. I'm surprised one of us didn't end up starving to death next to the other's ghost." Cale said with an exhaled breath.
+
+Astrid raised an eyebrow and tilted her head in an attempt to read Cale's face. He held the faintest of smiles. It felt... authentic?
+
+"I'm surprised you know that reference," Astrid said.
+
+"I'm not surprised you *do."*
+
+"What does *that* mean?" Astrid narrowed her eyes.
+
+"Nothing," Cale shook his head. The smile flared for a moment before fading off into the nether.
+
+Astrid sighed.
+
+Wuthering Heights was one of her favorites; she read it often. It sat back at home on her desk right next to A Farewell to Arms and Anna Karenina.
+
+Cale was just being stupid.
+
+The silence enveloped them.
+
+No words. Just the imposing stares of the packed boxes, and the occasional faint strobing light of a passing car. The faint smell of cardboard was almost calming, now that the initial shock had passed.
+
+The silence *should* feel wrong, right?
+
+Their entire thing was... noise. Banter. Bickering. Whatever Cale wanted to call it.
+
+"I... We're dating, right?" Cale finally asked.
+
+"Yes? I sort of assumed that started with the kiss... but in hindsight... I'm not really sure what we changed."
+
+The word "assumed" floated around in the back of Astrid's mind; she couldn't quite latch onto the thought.
+
+"I mean, the kissing *is* nice," Cale said.
+
+"Agreed," Astrid said, letting a smile peek through.
+
+"We're dating *now*?" Cale asked.
+
+"Yes."
+
+"When did we start?"
+
+Silence enveloped them again.
+
+Astrid reached down to get her phone to look up the definition.
+
+Cale lightly caught her by the wrist. "No. We... I don't think it matters. We're dating now. We have time to figure out the rest. I don't know about you, but... my brain is... give me a word."
+
+"Overloaded," Astrid offered.
+
+"Threadbare."
+
+"Cognitively saturated."
+
+"Oh, good one," Cale said with a grunt.
+
+They exchanged glances again, and Astrid shook her head with a smile. Slowly, she stood to her feet, extending a hand.
+
+"May is going to dig for details. What... what do we tell her?" Astrid asked.
+
+"No fucking clue. We'll think of something." Cale said as he took the hand and rose.
 
 They walked down the hall, into the bare bedroom.
 
@@ -277,3 +341,9 @@ Nothing more was said.
 They had used up their emotional fifth wind on something much more important than a physical claim.
 
 They kissed gently for a while, but it wasn't long before their all-encompassing exhaustion took them both into a deep and contented slumber.
+
+**OK, one down.**
+
+**They'll get there at this point.**
+
+**Let's check on the others and see what we're working with.**

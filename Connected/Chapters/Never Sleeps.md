@@ -8,7 +8,7 @@ Naina was not upside down. She sat at the back of the bed, cross-legged. *Cross-
 
 She was reading her phone, but it was different.
 
-That wasn't how she read fanfic; there were no occasional breaks to let a chapter sink in, no flip-flaps.
+That wasn't how she read fanfic; there were no occasional breaks to let a chapter sink in, no adorable flip-flaps.
 
 And she was *typing*? Was she typing to someone? Who would she be typing to?
 
@@ -122,13 +122,21 @@ For now, though, Zoey pulled open her phone, following the link Naina had sent h
 
 To Naina's relief, it appeared that Zoey had, in fact, read the fanfic. It was a long one, and it was hard to put down.
 
-The result was a lightly snoring Zoey in the passenger seat of Naina's car.
+The result was a lightly snoring Zoey in the passenger seat of Naina's car. She wore her favorite white sweater dress, with her hair back in the braid that wove the pink stripe in spiral patterns that made Naina's heart skip.
 
-Granted, it would have been unusual for Zoey to be awake at "old people time". However, the red mark on her face from where she had stumbled into a stop sign, thinking it was Naina, only further supported the fact that Zoey had been successfully tranquilized.
+Naina, herself, had stepped from her hoodie into a black-and-white striped knitted mini dress that Zoey had helped her pick out.
 
-This was good. Naina needed a tranquilized Zoey.
+She missed her thumb holes.
 
-The goal was to get the girl as close to the city as possible without her realizing it. The closer she got, the more romantic she would take the gesture.
+The things Naina did for love.
+
+Granted, it would have been unusual for Zoey to be awake at "old people time". However, the red mark on her face from where she had stumbled into a stop sign, thinking it was Naina, only further supported the fact that Zoey had been, essentially, tranquilized.
+
+This was good.
+
+Naina needed a tranquilized Zoey.
+
+The goal was to get the bundle of joy as close to the city as possible without her realizing it. The closer she got, the more romantic she would take the gesture.
 
 Zoey loved a good scheme. And Zoey deserved a good scheme.
 
@@ -142,15 +150,23 @@ Naina thoroughly enjoyed working with the man on this project. It was good to ha
 
 But tranquilizing Zoey was only step one.
 
-Naina couldn't remember how many steps there were today. She had a plan, and when she looked at each individual step of said plan, she felt confident. But she couldn't fit the whole plan in her head. And as usual, it was the pieces that didn't fit that scared her.
+Naina couldn't remember how many steps there were today.
+
+She had a plan, and when she looked at each individual step of said plan, she felt confident. But she couldn't fit the whole plan in her head. And as usual, it was the pieces that didn't fit that scared her.
 
 There were dozens of social interactions for which Naina did not have talk tracks: hotel check-ins, theater ushers, and expensive restaurants.
 
-Would she need to feed pigeons in Central Park? Should she get bread? What if someone tried to talk to her on the subway? What if she embarrassed them for eating steaks the wrong way, there were specific forks, right? What if she bought tickets for the wrong Broadway?
+Would she need to feed pigeons in Central Park?
 
-*Deep breath. People less intelligent than me have done this.*
+Should she get bread?
 
-A mantra that Naina had recently begun telling herself when faced with unknowns. She was aware it wasn't logically sound, but the sentiment grounded her.
+What if someone tried to talk to her on the subway?
+
+What if she embarrassed them for eating steaks the wrong way, there were specific forks, right?
+
+What if she bought tickets for the wrong Broadway?
+
+Naina took a deep breath, clearing her head, even if temporarily.
 
 Naina was used to this anxiety, the eternal feeling of being underwater due to the unknowns that creep just out of vision, but something about this trip being for *Zoey* made it so much worse.
 
@@ -291,6 +307,8 @@ Or... maybe she should just kiss Naina, then the dreams wouldn't be necessary.
 Wait!
 
 There were steps you could do *before* kissing someone, right? Maybe Zoey could ask her on a date. A date would be nice.
+
+Was she allowed to do that?
 
 What would they do?
 
@@ -512,7 +530,9 @@ This had definitely evolved into "self-destructive". Naina couldn't give Zoey an
 
 "Wing it," it was.
 
-"Zoey, you have ADHD." Naina finally let the words rip out of her mouth.
+*No beta, we die like men.*
+
+"Zoey, you have ADHD." Naina let the words rip out of her mouth.
 
 Zoey paused briefly with an averted gaze before turning back. "I know that. Zimmerman would let me know every time I went in. Why do you think I stopped going? Why-"
 
@@ -808,7 +828,7 @@ Zoey looked over to Naina, but she seemed equally confused.
 
 Zoey extended a hand with a grin, "Hi! I'm Zoey! This cute redhead is Naina. She's my girlfriend."
 
-He took the hand and shook it, "Hawthorn. A pleasure. Cale's cousin, as I understand it."
+He took the hand and shook it, "Hawthorn. A pleasure. Cale's cousin, I presume?"
 
 They knew Cale? This guy looked huge and very imposing. And a Japanese mystery singer who was likely an undercover identity for a J-pop idol?
 
@@ -820,42 +840,262 @@ Hawthorn blinked several times.
 
 He clearly had not been ready for Zoey to blow his cover.
 
-"She's just like that. Don't mind her." Naina recovered from her laughter.
+"She's just like that. It's cute." Naina recovered from her laughter.
 
-Shaking his head, he pulled a phone out, "In any case, given your network proximity to my client, and the names you just said out loud. I'm going to need you two to sign this."
+Naina called her *cute*.
+
+Zoey was *cute*.
+
+Shaking his head, the Yakuza pulled a phone out, "In any case, given your network proximity to my client, and the names you just said out loud. I'm going to need you two to sign this."
 
 The phone slid over to Naina, who read through, "Zoey, you might have actually been right this time."
 
-She signed something and slid it over.
+Naina's finger hovered over the phone.
 
 Zoey looked at the singer on the stage. She *had* been right? So that was...
 
-Zoey took a deep breath, a deep squeal building inside of her. She turned to Naina and promptly found a hand over her mouth.
+Asuna, *Mimi*, launched into a new song, this one with a bit of a jazzy uptone that Zoey had never heard in her songs online.
 
-"If I could just get your autograph right down there, it would be greatly appreciated." Hawthorn nodded to the phone in front of Zoey.
+"I mean, what happens if we don't sign this?" Naina asked.
 
-She signed without reading; it all looked boring. Naina would explain later.
+"Naina! Sign it, or else they'll send-"
+
+Hawthorn laughed, cutting off Zoey. It was loud enough to get a glance from a nearby table.
+
+"Y'all really... Half a year of her insisting on getting people to sign this goddamn thing, and some college-aged girl is the first one to call out the obvious. Think most people assume they're on the inside if they sign. Mostly observant fans."
+
+"So we could just... not sign?" Naina asked.
+
+Zoey pulled over the phone. She attempted to read it several times, but could barely get past the words "Identification of parties".
+
+"Damn right."
+
+Naina slid the phone back and skimmed it again. "If we *don't* sign, is that a breach of good faith? You *are* a friend of Cale?"
+
+"No. Would be the smart move. Business is business. Friend of Cale and Astrid is a friend of ours. Don't need no contract for that. You ask good questions. Naina, you said? Good name."
+
+Naina pushed the phone back. "Not as cool as Hawthorn."
 
 The undercover yakuza boss collected his phone, tipped an invisible hat, and returned to his seat in front of them.
 
-The two took this as an opportunity to leave. There were many kisses and cuddles to be had back at the hotel, and Zoey was done waiting for them.
+Naina had stood up to the *Yakuza*! Alone!
 
-As they stepped out into the street, Zoey turned to her delightful redhead, planted a kiss on her lips, then frolicked off towards the hotel.
+Zoey was dating the most powerful girl who had ever existed.
+
+Naina placed her head against Zoey's shoulder, and they melted back into the upbeat rhythms and passive chatter of the bar.
+
+A server passed by to check on them, and Naina waved them off. It was one of the most attractive things Zoey had ever seen from her introverted girlfriend.
+
+"Zoey, you know they're wrong, right?" Naina finally asked.
+
+It only took Zoey a second to realize Naina was returning to the earlier topic. Zoey didn't immediately respond, though.
+
+The words rang through her head. Words that had plagued her through her entire life, both spoken by others and spoken to herself.
+
+*Lazy.* *Un-focused. Unmotivated. Unreliable. Procrastinator.*
+
+Her hand fidgeted with the hem of Naina's knit mini dress. She didn't stitch on her smile; she left "Zoey" as a pile of fabric on the floor.
+
+"I don't know that," Zoey admitted.
+
+"You're doing your best, Zoey. We both are. Lazy people don't do their best."
+
+"Am I? If I just-"
+
+Naina, apparently, read her mind. "Just because you have an image in your head of you doing better doesn't mean you aren't giving it your all."
+
+"But there are times I can do like... everything! I..." She trailed off. How could she word this?
+
+"That's the thing with dopamine disregulation. Your performance won't be constant. And even if you *could* find angles to constantly engage dopamine fixations, you'd likely... well... burn out. Our brains aren't designed for that much engagement."
+
+Zoey didn't respond. She simply watched Asuna Starlight, who swayed slowly as she sang a song of immortal love.
+
+Naina continued, "Lazy implies bad intention. It's doing the least you can for the sake of doing the least you can. Is that what you are doing?"
+
+Zoey turned her head and found Naina's eyes leveled on hers up through lashes.
+
+"I... no. But that's not what they all-"
+
+Naina cut her off. "The words weren't built for you. 'They' don't know you like you know you. Neurodivergence is a relatively new understanding. It simply has a different motivational system, one that society didn't build a process around. 'They' are operating off the idea that responsibility alone can be a motivator, that even *money* alone can be a motivator. You've listened to Rowan and my discussions on this. And you understand them, I know you do."
+
+Zoey went quiet for a moment, nodding slowly. She rose her glass to her lips and swirled the large ice cube for a moment before taking a sip of the citrusy liquid.
+
+Naina had always seen her.
+
+Zoey was created to hide. She knew that. She was created to shift expectations into what people expected to see...
+
+But Naina expected to see *her*.
+
+She didn't need to hide.
+
+Zoey finally responded, "But what does it matter? Even if we're living in a society that has systemically used process as a mechanism to artifically create a 'disability' that didn't exist before... that disability exists now. If others perceive me as lazy, I'm lazy."
+
+"In some regards? Yes. But their perception is not your reality. You're attempting to live assimilation, which has proven to cause burnout and *high* rates of self-harm. *Many* people have *died* from that approach."
+
+"But what am I supposed to do?" Zoey narrowed her eyes, staring deep into her drink. "I can't just tell 'the system' that it's wrong. I can't just tell my dad he's being ableist and carrying generational trauma based on his own success with 'the system'. What would it solve?"
+
+Naina didn't provide an immediate answer. Zoey tilted her cheek against the top of Naina's head. The soft caress of her hair was soothing, deeply satisfying.
+
+"I've seen your exhaustion," Naina finally said. "We're all exhausted. Most of that exhaustion is from pretending to be people that we aren't."
+
+Pretending to be someone she isn't...
+
+Zoey... Zoey was...
+
+Zoey was doing her best.
+
+She knew it.
+
+"I'm not lazy," Zoey said.
+
+The words felt wrong.
+
+Naina read her mind again. "It'll feel wrong. Self-perception is hard to change; it takes time to really believe it."
+
+"Do *you* believe it?" Zoey asked.
+
+Naina took a deep breath and sat up, her hand joined Zoey's on her thigh.
+
+"I mean... Logically? Yes. Emotionally? For me... It's hard not to get fixated on all the things I'm *not* doing. And there are a *lot* of things I'm not doing."
+
+Ahead of them, Hawthorn shifted, glancing back over his shoulder briefly at them.
+
+Naina's earlier words rang through Zoey's mind.
+
+*Zoey is a complex mix of overlapping layers.*
+
+Which of those were exhausting?
+
+She picked up one that she knew was at least fun.
+
+Zoey whispered, "We should go before he decides to interrogate us on the location of Cale. I'm not caving to his demands, just so you know."
+
+Naina's body shook with a silent chuckle. "I'm pretty sure Cale's blog tells everyone where he is."
+
+Oh.
+
+Well.
+
+Zoey supposed that was true.
+
+"Cale is a really bad spy," Zoey stated.
+
+Or a really *good* one, if he was making even *Zoey* second-guess herself.
+
+After Naina navigated the social minefield of paying the check, which Zoey found distinctively attractive, the two slipped out into the night.
+
+Their hands clasped between them with interlaced fingers as Naina lead them towards the hotel.
+
+"Are you..." Zoey began, stealing a glance at her girlfriend. She knew the answer that came was complicated, but she needed to ask. "Are you happy?"
+
+Naina paused for a long while as they walked along the well-lit street. Digital billboards with various cartoon characters watched them walk, pushing through pockets of crowds in a city that, like Zoey and Naina, didn't seem to understand that this time of night was for dreaming and not hyperactivity.
+
+"Yes." Naina finally stated as they turned into their hotel. The glass double doors slid open as a doorman greeted them.
+
+"Just... yes? I thought-" Zoey started.
+
+"By your language. I'm happy. In every sense of the word." Naina looked over and gave Zoey a smile while they waited for the elevator.
+
+The words filled Zoey with warmth, she felt her own smile spread across her face, beaming for all the right reasons.
+
+Naina continued, "I mean... the feeling is still complicated. But I think sometimes I can let complicated things be simple. Especially if it's for the person I love."
+
+Zoey didn't even try to hold it back.
+
+She squeeled.
+
+As the elevator doors closed, she threw her arms around her girlfriend.
+
+And she kissed her.
+
+And she kissed her again.
+
+And again.
 
 **Naina**
 
-Naina let the girl frolic in the wrong direction for a block or two before course-correcting her back in the right direction.
+The hotel room door opened, not even opening fully as it bumped against the queen-sized bed that took up eighty percent of the room. Their suitcases had been unceremoniously thrown into the room earlier and took up the majority of the remaining floor space.
 
-Zoey clearly had some energy to get out.
+The only window had a magnificent view of the brick on the building ten feet away.
 
-Naina herself was still mentally reconciling the last thirty minutes.
+"And there was only one bed," Zoey muttered as they slid into the cramped room.
 
-She had spent months envisioning tonight, daydreaming, planning. Nothing had prepared her for just how perfect it had been. And they had another three days in the city.
+"Yeah... I tried to-" Naina started, then realized the reference Zoey was making. Naina grinned. "I'm so proud of you."
 
-She was glad that she was on the other side of this project; it had consumed her quite a bit. Naina was ready to keep giving this wonderful girl the grand gestures of love and affection that she deserved.
+She found Zoey staring down at the bed with a furrowed brow, though.
 
-Naina, however, was most definitely going to need to find a way to pace it. It was a *lot.*
+Ah.
 
-She stole a glance at her hyperfixation, her special interest, who was skipping merrily next to her.
+Naina, too, had been nervous about this moment.
 
-Of course, it would always be worth it.
+Her mind filled with endless branches of dialogue but couldn't quite find any readily available to help diffuse the incoming awkwardness.
+
+"I've... never..." Zoey tried to find words.
+
+"Nothing happens that you don't want to happen, Zoey." Naina offered, climbing over the bed before rummaging through her suitcase.
+
+"What if you want... things?" Zoey asked.
+
+"Zoey, until I met you, I had zero interest in even kissing anyone."
+
+"But you read all of those... the... well..."
+
+"Smut?" The word still felt weird to say out loud. Naina turned back, holding up her pajamas, which displayed a series of blue telephone booths flying through space.
+
+"Yeah." Zoey climbed over the bed and began her own rummaging.
+
+Naina contemplated, a second half of her mind spun on if she needed to change in the bathroom or if it was appropriate to change in the main room.
+
+"I mean... I... The stuff I read... isn't a reflection of what I want? It's... fantasy. But not *my* fantasy? I don't know how to explain it well. I'm not... uninterested? But it's not a priority."
+
+Zoey held up her own pajamas... well... her short-shorts and a large t-shirt she appeared to have stolen from her cousin that read "Stability: My Stabs Crit Every Time".
+
+They stared at each other for a moment.
+
+Then their eyes turned collectively to the bathroom, which was smaller than any changing room Naina had ever encountered.
+
+"I think this is the point where most stories cut to black because it's hard to write for two ace-spec girls figuring out boundaries," Naina noted.
+
+"We're... dating... right? So it's not...awkward?" Zoey hesitantly reached for the zipper on her sweater dress.
+
+"I mean... It's only awkward if we make it awkward, right?" Naina felt her cheek warm as she lifted her own mini dress off.
+
+Several quick minutes that felt like centuries later, after many exchanged glances and averted blushes, the two found themselves finally in bed, under the covers.
+
+Zoey had quite naturally found a position curled up against Naina, her head buried in the crook of Naina's neck.
+
+"OK. This part is less awkward. I've decided." Zoey said. Naina could swear she felt a tail wagging as Zoey settled further against her.
+
+"Agreed. But... Zoey, I don't think anything else really changes unless you want it to. I'm still Naina, and you're still Zoey." Naina smiled at the ceiling, which briefly lit blue from a passing emergency vehicle.
+
+"Then what was the point of... all of... this?"
+
+"I mean... I asked myself that a lot. A large part of it was because you deserve it. But really... I think the answer is simply 'because I wanted to'. It felt like the best way to make it clear that you're... well... claimed. You have... tackling boys... I have... um... absurd grand gestures. Apparently." Naina furrowed her brow, questioning her life decisions around that assertion.
+
+Naina desperately wished she would stop finding reasons her brain was designed to self-sabotage itself with fixations she wasn't socially equipped to support.
+
+"I'm *claimed*?" Zoey squealed, and the arm draped over Naina's waist tightened.
+
+Naina paused before tilting her head down towards Zoey's.
+
+"Yeah. I think the word commonly used... um..."
+
+She pressed with this kiss, finding Zoey's lips to be more than eager and willing to cave to Naina's advances.
+
+Lips parted and tongues explored.
+
+Several sensual and wet moments later, Naina pulled back.
+
+"*Mine.*" Naina asserted firmly, glad that the room was dark enough to hide her blush that would betray the confidence behind the word.
+
+Zoey squeeled again and set forth a several-second wiggling crusade, eliminating any and all space that existed between the two of them.
+
+"I love you," Zoey said.
+
+"I love you, too," Naina responded.
+
+And they slept.
+
+Restfully.
+
+For the first time in what felt like their entire life.

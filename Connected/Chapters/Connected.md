@@ -10,9 +10,9 @@ Gamfest.
 
 Dozens of cars lined up as people flowed around him like water, carrying suitcases, cosplay, boomboxes, gaming consoles, and boxes that clearly held more alcohol than the hotel allowed.
 
-"Those girls realize it's January, right?" Astrid stepped up next to him, trailing their two suitcases. She nodded towards a group of girls in various colored fox-like outfits that left little to the imagination, despite the below-freezing temperature.
+Zoey had already darted ahead with a mighty squeal, bouncing between and admiring the various cosplays of Anime, Gaming, Pop-culture, archaic memes, you name it. Naina frantically tried to keep up, hauling their own suitcases.
 
-Zoey had already darted ahead with a large squeal, bouncing between and admiring the various cosplays of Anime, Gaming, Pop-culture, archaic memes, you name it. Naina frantically tried to keep up, hauling their own suitcases.
+"Those girls realize it's January, right?" Astrid stepped up next to him, trailing their two suitcases. She nodded towards a group of girls in various colored fox-like outfits that left little to the imagination, despite the below-freezing temperature.
 
 "I think you'll find that treating your body well is nowhere near the top hundred priorities of this event," Cale noted.
 
@@ -20,7 +20,7 @@ Almost to prove his point, a man walked by in a white karate gi, very open at th
 
 Astrid groaned. "Fine, whatever. So, what do we do? We have an hour or two until the panel."
 
-"What do we do?" Cale scoffed, taking a step back as if struck by a dagger.
+"What do we do?" Cale scoffed, taking a step back with a hand to his chest as if struck by a dagger.
 
 He paused under Astrid's flat stare, giving her a measured moment to not engage in his hypothetical question.
 
@@ -28,7 +28,7 @@ He paused under Astrid's flat stare, giving her a measured moment to not engage 
 
 "Cale, no one is paying attention to-"
 
-"We *live!*" Cale interjected, beginning a slow pace towards the large glass sliding doors. "This is the mecca of modern culture. An Olympics of subculture. A haven for introverts to lower their guards and scream to the heavens, 'I exist and you can't stop me.'"
+"We *live!*" Cale interjected, beginning a slow pace towards the large glass sliding doors. He held his hands outwards, gesturing to... well, everything. "This is the mecca of modern society. An Olympics of subculture. A haven for introverts to lower their guards and scream to the heavens, 'I exist, and you can't stop me.'"
 
 Almost as if in response, someone in the distance roared, a roar that spread out and was mirrored by other attendants, spreading in a wave through the hotel and convention center and filling the air with a cacophony of electric camaraderie.
 
@@ -36,9 +36,9 @@ Astrid rolled her eyes, "Did you practice-"
 
 "Gamfest is freedom. Gamfest is love. Gamfest is *inclusivity* at its *peak*."
 
-Several people in large, cartoonish furry wolf suits walked by, one of whom gave Cale a high five, earning quite the look from Astrid. Cale had many friends here.
+Several people in large, cartoonish furry wolf suits walked by, one of whom gave Cale a high five, earning quite the look from Astrid. Cale could not have asked for better timing.
 
-"Are you done?" Astrid crossed her arms and raised an eyebrow.
+"Are you done?" Astrid crossed her arms and raised an eyebrow. She showed no smile; she rarely did anymore, but he could feel it.
 
 "Am I done?" Cale scoffed again, looking around and gesturing with his arms, slowly rotating to face out into the vast, open atrium sprawled ahead of them, which rose nineteen floors.
 
@@ -110,7 +110,9 @@ White dress and Jumpsuit raised shocked hands to their mouths, eyes widening.
 
 Black gown laughed, turning to Sho. "Oh, honey, you just made my day. What's your name?"
 
-"Sho?" Sho was confused at this interaction.
+"Sho?" What did they want?
+
+Was this how foreigners were outside of Japan?
 
 "Sho." The woman pulled a phone up, pausing briefly as she did a search, "Oh, beautiful name, Sho. To soar, to fly. A name of victory. What brings you to this event, Sho? We have a long wait; we might as well kill some time."
 
@@ -118,7 +120,7 @@ Black gown laughed, turning to Sho. "Oh, honey, you just made my day. What's you
 
 The boy in front of Lola hesitated.
 
-Lola supposed her and the girls would come off as imposing to anyone not used to queen culture. She found his uncertainty cute, though.
+Lola supposed they and the girls would come off as imposing to anyone not used to queen culture. They found his uncertainty cute, though.
 
 "A girl," Sho said simply.
 
@@ -128,35 +130,41 @@ Oh, this was definitely in Lola's domain. Lola exchanged glances with the other 
 
 "From Japan, actually. I landed about four hours ago."
 
-"Oh, Japanese, oh my. You are a *treat,*" Candy exclaimed.
+"He *is* Japanese, oh my. You are a *treat,*" Candy exclaimed.
 
 "Girl, turn that heat down, this one's taken," Tiff said.
 
 "Mm. But if things don't work out, room four-o-five." Candy winked. Lola knew Candy was playing; that wasn't, in fact, their room. The boy was also clearly eight years younger than her.
 
-The boy seemed completely put off, though, so Lola pivoted. "Honey, that's a hell of a long way to fly for a girl. She must mean a lot to you."
+"I do not know how to respond to that," Sho said.
 
-The elevator doors finally opened, and Lola watched as the boy's face lit up into a smile. "She's everything. I sold my house and quit my job; now, everything I own fits in my suitcase. I'm crazy. She makes me crazy."
+Oh, direct.
+
+Lola pivoted. "Honey, that's a hell of a long way to fly for a girl. She must mean a lot to you."
+
+The elevator doors finally opened, and Lola watched as the boy's face lit up into a smile. "She's everything. I sold my house and quit my job; now, everything I own fits in my suitcase."
 
 All three of the girls stared at him with wide eyes.
 
-"Honey, you *didn't*." Lola felt a wide smile spread across her face. She had met a lot of love-sick fools in her life, but this one might have just topped even Cale.
+"Honey, you *didn't*. That is a *lot* to do for a girl at your age." Lola said with a raised eyebrow. She had met a lot of love-sick fools in her life, but this one might have just topped even Cale.
 
-"It's a mistake, right? I'm an idiot?" Sho asked, his smile fading into uncertainty and vulnerability.
+"You do not know my demons. You cannot judge me. Only she can judge me, and she won't."
 
-"'Crazy' and 'Idiot' are both potential descriptors, yes." Lola laughed. It got hums of agreement from the other two.
+He stepped off the elevator, leaving the space silent as the doors closed behind him.
 
-The boy didn't seem to care; the smile returned to his face as he stepped out of the elevator on the next floor.
+He hadn't even flinched.
 
 "He *is* crazy, though," Tiff stated once the door was closed.
 
 "Absolutely, crazy delicious," Candy stated.
 
-Diego ignored them.
+Sho.
 
-A Spanish-speaking Japanese boy who chased a girl from Japan to DC...
+Lola found themselves nodding in approval. That type of confidence was rare.
 
-He shook his head, letting Lola snap back in as the doors opened on the next floor, and a short Japanese girl and a rather tall Caucasian got on.
+Lola desperately hoped it wasn't arrogance or foolhardiness.
+
+They shook their head as the doors opened on the next floor, and a short Japanese girl and a rather tall Caucasian got on.
 
 "Oh, size kinks with these two," Candy noted in Spanish.
 
@@ -200,7 +208,7 @@ Asuna froze, and Hawthorn turned a head, exclaiming for both of them, "What?"
 
 Another roar erupted from the crowd in the atrium below them, though no one in the elevator reacted.
 
-"You're Lara's dad? She works for us," Asuna said slowly, the words feeling impossible. She exchanged a glance with Hawthorn.
+"You're Lara's Dad? She works for us," Asuna said slowly, the words feeling impossible. She exchanged a glance with Hawthorn.
 
 The woman's voice dropped to a masculine one. "You're Miss Morita? And the broody American?"
 
@@ -330,7 +338,7 @@ To Zoey's shock, Naina responded in Spanish as they stepped aside to let the swa
 
 "Naina, you speak Spanish?" Zoey asked.
 
-"Hyperfixation," Naina stated, with no further explanation.
+"Hyperfixation," Naina stated, with no further explanation, because she was adorable.
 
 **Lara**
 
@@ -340,7 +348,7 @@ She was able to pick out a few of them, but her English was nowhere near profici
 
 "Do you know when the costume contest is? I'm hoping to get pictures," she asked the girl who spoke Spanish.
 
-"Oh! We're going to that tonight. It's at eight. Panels Three, I think?" The curly black haired girl responded. She asked her friend a few things, then nodded. "Panels three, eight."
+"Oh! We're going to that tonight. It's at eight. Panels Three, I think?" The curly-black-haired girl responded. She asked her friend a few things, then nodded. "Panels three, eight."
 
 "Ah! I'm so excited!" Lara bounced slightly; the energy was too much to keep in. "The cultural crossing of so many subcultures... this event is so incredible! I've never seen such an intersection between so many demographics, it-"
 
@@ -402,43 +410,47 @@ Her brain and feet forgot to communicate for a moment as she stumbled to a stop.
 
 "Dad?" Lara asked.
 
-"Lara?" Her dad turned to face her, speaking as Diego.
+"Lara?" Her Dad turned to face her, speaking as Diego.
 
-Lara bolted forward, throwing her arms around him in an embrace. She hadn't seen him in what felt like over a year.
+Lara bolted forward, throwing her arms around them in an embrace. She hadn't seen them in what felt like over a year.
 
 "What are you doing here?" She asked.
 
-"What are *you* doing here?" Her dad countered. It was a fair question.
+"What are *you* doing here?" Her Dad countered.
+
+It was a fair question.
 
 "I uh, I'm visiting Mom." Lara felt almost ashamed for admitting it. Her mom was still not kind to her father, and admitting Lara spent time with her felt like a betrayal of sorts.
 
-He hesitated, speaking with carefully chosen words. "That's... good. I'm happy you are." It felt slightly forced, but Lara was happy he said it. "How is... that*...* going?"
+They hesitated, speaking with carefully chosen words. "That's... good. I'm happy you are." It felt slightly forced, but Lara was happy he said it. "How is... that*...* going?"
 
-"Better than normal. She stopped demanding I go to college; it's more like a suggestion now."
+"She's going back to the island! I think it's good for her, she seems happier. She's excited to be with her family again, and she stopped demanding I go to college; it's more like a suggestion now."
 
-"With your new job, I'd imagine college would be difficult," he said with a knowing smirk.
+Her Dad paused. "She listened to me? That's..." They looked away for a moment with narrowed eyes, giving Lara a brief and rare glimpse of surprise. He turned back quickly.
 
-Lara froze, a spike of cold shot through her spine and hairs stood on end as she processed his statement and the smile.
+"With your new job, college *might* be difficult," they said with a knowing smirk.
+
+Lara froze, a spike of cold shot through her spine, and her hair stood on end as she processed his statement and the smile.
 
 "How did you find out about that?"
 
-"What, no 'sorry, I didn't tell you I had life-changing news?'" He said with a laugh.
+"What, no 'sorry, I didn't tell you I had life-changing news?'" They said with a laugh.
 
-Lara looked away; she hadn't really prepared herself to talk about this to her dad. "I don't know... it felt big when I signed... but now it just feels like I'm doing what I'm supposed to be doing? I don't want to brag about accomplishing the same thing everyone else in the world already figured out."
+Lara looked away; she hadn't really prepared herself to talk about this to her Dad. She let the words spill out of her mouth as she found them. "I don't know... it felt big when I signed... but now it just feels like I'm doing what I'm supposed to be doing? I don't want to brag about accomplishing the same thing everyone else in the world already figured out."
 
-"Lara, it's huge. Trust me, it... I'm proud of you, mi reina." She found his hand on her shoulder, though the hand stiffened.
+"Lara, it's huge. Trust me, it... I'm proud of you, mi reina." She found their hand on her shoulder, though the hand stiffened.
 
 "Thanks, Dad... that..."
 
-She looked up to find him looking over her shoulder.
+She looked up to find them looking over her shoulder.
 
 She continued, studying his gaze, "I didn't really do anything for it. Right place, right time, right?"
 
-Her dad continued to stare, then said very slowly, "I think you'll find that that's how most things in this world work out."
+Her Dad continued to stare, then said very slowly, "I think you'll find that that's how most things in this world work out."
 
 "But did I really-"
 
-Lara felt a tap on her shoulder.
+Lara felt a tap on the shoulder that her Dad was not holding.
 
 "Wandaa."
 
@@ -450,7 +462,7 @@ A dancing man with a chainsaw on his head stopped mid-motion.
 
 She could practically hear the creaking gears of an oversized mecha that ground to a halt.
 
-Her dad was suspended in a look of disbelief over her shoulder at someone behind her... the source of that voice.
+Her Dad was suspended in a look of disbelief over her shoulder at someone behind her... the source of that voice.
 
 All Lara could hear was the sound of her heart thudding against her chest like a bird attempting to break free of its cage.
 
@@ -466,11 +478,11 @@ Her eyes must be tired from the constant barrage of the colorful and chaotic men
 
 There was only one test that would satisfy Lara right now.
 
-She lunged forward, wrapping her arms around the impossible boy, and pressed her lips against his.
+She lunged forward, pulling out of her Dad's grip. She wrapped her arms around the impossible boy and pressed her lips against his.
 
 The sensation felt like coming home.
 
-His essence washed over her, familiar and embracing, welcoming her back into his arms. He smelled like travel, and she didn't care.
+His essence washed over her, familiar and embracing, welcoming her back into his arms. He smelled like travel, and *definitely* needed a shower, and she didn't care.
 
 It was him, his scent, his aura.
 
@@ -478,7 +490,7 @@ It was Sho.
 
 They melted into one another like matching lockets that had been split across the ocean, finally having found their other half.
 
-"So, mi reina, are you going to introduce me to your future husband?" The sound of her dad's voice popped the time bubble, and the rest of their surroundings crashed back into her.
+"So, mi reina, are you going to introduce me to your future husband?" The sound of her Dad's voice popped the time bubble, and the rest of their surroundings crashed back into her.
 
 "Oh! Your mother!" Sho backed out of Lara's arms and bowed *deeply.* "I apologize, I did not know who you were before."
 
@@ -486,13 +498,15 @@ They melted into one another like matching lockets that had been split across th
 
 Sho paused, taking a moment to orient around the correction.
 
-"Oh, thank goodness, I am scared of meeting your mother." Sho stood back up, though he maintained a respectful posture.
+"Oh. Good. I was not looking forward to meeting your mother." Sho stood back up, though he maintained a respectful posture.
 
-The statement earned a broad smile from Lara's dad, and she felt his approving gaze. "You found a good one, Lara. We talked earlier on the elevator."
+The statement earned a broad smile from Lara's Dad, and she felt their approving gaze. "You found a good one, Lara. We talked earlier on the elevator."
 
-There was something "knowing" in the smile her dad gave her.
+There was something "knowing" in the smile her Dad gave her.
 
-Lara turned back to Sho. "When did you get in? I missed you. When are you going back? Not that I want you to go back, but..."
+Lara turned back to Sho.
+
+There were too many questions. They couldn't fit in her head, so she blurted them out. "When did you get in? I missed you. When are you going back? Not that I want you to go back, but..."
 
 "Going back will be difficult," Sho stated. It got a laugh from Lara's father.
 
@@ -500,75 +514,75 @@ What... what did they know?
 
 "You're not getting paid for the time out here, right? How long are you-"
 
-"No." Sho shook his head, and it got another laugh from her dad.
+"No." Sho shook his head, and it got another laugh from her Dad.
 
-She looked back at her dad, shaking her own head in exasperation, "What?!"
+She looked back at her Dad, shaking her own head in exasperation, "What?!"
 
-Her dad backed up, arms raised. "Not my story to tell."
+Her Dad backed up, arms raised. "Not my story to tell."
 
 "Story?" Lara turned back to Sho.
 
 "Going back would be difficult, as we would need to find a place to stay." Sho's eyes averted hers.
 
+A cannon lit.
+
+The fuse burned while Lara's brain refused to understand the implication.
+
 "You rented out the house? That's OK, Sho! We can wait and-"
 
 "It would be hard to rent out when I no longer own it."
 
-A cannon lit.
-
-The fuse burned while Lara's brain refused to hear what was said.
-
-It fired, launching a cannonball straight into her chest.
+The cannon fired, launching a cannonball straight into her chest.
 
 All she could do was blink as her brain caught its breath. Her mind didn't even register the line of people crawling like snakes along the ground around them.
-
-He was crazy. It was a dumb move, a mistake.
-
-And she loved that it was the mistake he made.
-
-Lara's anchor was no longer an anchor.
 
 Lara was no longer sailing her ship alone.
 
 She had picked up a stray cat.
 
+And that cat was not a tangle.
+
+That cat was a knot.
+
 Tears welled up in her eyes, and before she knew it, her arms were back around Sho, her face buried in the crook of his shoulder. He grasped her back as if clinging to the mast in the middle of rough seas.
 
-"Sho, a moment." Lara's dad placed a hand on Sho's shoulder, and Lara reluctantly pulled back as the two faced one another.
+"Sho, a moment." Lara's Dad placed a hand on Sho's shoulder, and Lara reluctantly pulled back as the two faced one another.
 
-He continued, "I'm about to give you two space. All the space you ever need in the world. If you *ever* need *anything*, you can contact me. I have connections who have connections who have connections."
+They continued, "I'm about to give you two space. All the space you ever need in the world. If you *ever* need *anything*, you can contact me. I know a guy who has connections who have connections who have connections."
 
 Sho began to bow with a "Thank you."
 
-Her dad's voice was honeyed, an unusual tone from him, but one Lara recognized.
+Her Dad's voice was honeyed, an unusual tone from them, but one Lara recognized.
 
 "Oh, no no no no no. No bowing yet. What you're going to do, as soon as I walk away... are you listening?"
 
 Sho nodded eagerly.
 
-Lara sighed.
+Lara sighed and rolled her eyes. She turned and took a step away, though her focus remained on the exchange.
 
 "Good. Excellent."
 
-Lara's dad lowered his face to practically next to Sho's, his voice a gravelly whisper that was just loud enough for Lara to hear.
+Lara's Dad lowered his face to practically next to Sho's, his voice a gravelly whisper that was just loud enough for Lara to hear.
 
 "When I walk away, you are going to remain with that girl. That girl is to never leave your sight. And if she so much as catches a cold, you are to text both me and her mom. When she crosses country boundaries, you are to text us. When she changes jobs, you are to text us. Under no circumstances is that girl allowed to stay in a hostel. And you have precisely one year to propose before the passive-aggressive comments begin."
 
-Lara rolled her eyes. "Dad! Hostels are safe!"
+Lara rolled her eyes and turned back. "Dad! Hostels are safe!"
 
-Sho looked between her and her dad. "That's the part that bothers you?"
+Sho looked between her and her Dad. "That's the part that you respond to?"
 
-Lara grinned, taking his hand.
+Lara beamed, stepping forward and taking his hand.
 
 "Am I understood, or do we need a Japanese translator?"
 
-"Actually, I speak pretty good Japanese now," Lara stated in Japanese. Her dad, of course, had no idea what she said, but likely understood the concept as his eyes widened in shock.
+"Actually, I speak pretty good Japanese now," Lara stated in Japanese. Her Dad, of course, had no idea what she said, but likely understood the concept as their eyes widened in shock.
 
-Sho bowed deeply. "I will not disappoint you."
+Sho bowed deeply. "I will not disappoint you. We will keep each other safe."
 
-"Oh, I like this one, mi reina." Her dad hugged her, then hugged Sho, and walked off with a level of grace and pride that seemed quite fitting given the costume.
+"Oh, I like this one, mi reina." Her Dad hugged her, then hugged Sho, and walked off with a level of grace and pride that seemed quite fitting given the costume.
 
-It took several moments for the... "reality", if you could call it that, of the convention to soak back into them. They walked a brick path on the ground floor of the atrium, past several indoor trees and a large fountain.
+"*No hostels,*" they called back before disappearing into the crowd.
+
+It took several moments for the--"reality", was that what this was?--of the convention to soak back into them. They walked a brick path on the ground floor of the atrium, past several indoor trees and a large fountain.
 
 "You didn't answer. When did you get in?" Lara asked as they approached the escalators up to a terrace.
 
@@ -582,9 +596,11 @@ As they exited the escalators, she pulled Sho ahead towards a panel room. "There
 
 Astrid watched the latecomers wander in and take a seat near the rear of the large panel room. It looked like the Japanese boy simply fell asleep on the spot.
 
-Cale answered the question that had just been asked, "Honestly? I don't even know. There's definitely a point where we wouldn't have worked. I don't know when that changed, but more and more, I suspect it was much earlier than I originally thought. So yeah, a lot of people used to encourage me to 'just ask her to coffee', but it's hard to tell if we'd be sitting here today if I had. What do you think, Astrid?"
+"Honestly?" Cale said from beside Astrid, into a microphone that projected his voice, "I don't even know. There's definitely a point where we wouldn't have worked. I don't know when that changed, but more and more, I suspect it was much earlier than I originally thought. So yeah, a lot of people used to encourage me to 'just ask her to coffee', but it's hard to tell if we'd be sitting here today if I had. What do you think, Astrid?"
 
-Astrid drummed her fingers on the black fabric of their table, cheek pressed into her palm, elbow on the table. Cale wore a grin that spanned nations. This entire question-and-answer session had been a *blast* for him. He got to talk about himself *and* tease Astrid.
+Astrid drummed her fingers on the black fabric of their table, cheek pressed into her palm, elbow on the table. Cale wore a grin that spanned nations.
+
+Astrid wore her narrowed eyes and pursed lips. It was all she could do to keep the mask on for the crowd.
 
 A dozen or two lines of chairs, full of the strangest mix-match of dress and cosplay Astrid had ever seen, stretched in front of the stage Astrid and Cale were on.
 
@@ -596,7 +612,7 @@ Their story, however, had evolved a life of its own.
 
 Astrid had simply accepted that she was stuck in the car and made sure she was buckled in while Cale leaned into the skid.
 
-The next attendee approached the microphone in front of their little stage, "A question for Astrid. Did you find it hard to be a woman in the legal industry?"
+The next attendee approached the microphone in front of their little stage, "A question for Astrid. As a woman who has clearly found success, what advice would you have for others following in your shoes?"
 
 Astrid perked up, arms stiffening as her brain spun up several processors.
 
@@ -608,11 +624,17 @@ It earned a roar of laughter from the crowd.
 
 She composed herself, pasting on a smile, and took a moment to think about the question.
 
-"Early on, the difficulty was self-perception. The industry is built around confidence and assertiveness. We're doing a good job of breaking down societal expectations around what constitutes masculine traits. However, it's still a lingering perception that is hard to break."
+She opened her mouth, then caught herself, staring over at Cale. His masking smirk had slipped off, leaving a much fainter smile.
 
-It wasn't something she had thought about too much, but she definitely couldn't say there had been no pressures.
+"I... should probably... give some inspirational speech about the importance of confidence in successful women," Astrid said.
 
-"I will credit this idiot for helping me keep a sharp tongue, not afraid to back down when I know I'm right."
+The room fell into silence.
+
+"I... should probably say something about exuding confidence. 'You can accomplish anything you set your mind to.' Aim for the stars, settle for the moon. Be the change you want to be. Break the mold, shatter the ceiling," Astrid turned back to the room.
+
+Her eyes met briefly with the Hispanic girl who had stepped in moments earlier, who was glancing between Astrid and her phone.
+
+"The reality? Pieces of those messages worked for me. I attribute significant success to the image of a 'confident and independent woman' that I chased. And pieces of those messages failed me. There's simply too much that I, personally, need to credit this idiot for helping me keep a sharp tongue, not afraid to back down when I know I'm right."
 
 Astrid glared at Cale, whose grin broadened.
 
@@ -626,13 +648,35 @@ Astrid interrupted his comment about the dumb snake. "It doesn't count when we w
 
 "Technically, logically, literally, it does. The subset of-"
 
-"Anyways," Astrid interjected, knowing that she had been wrong. "It was still about perception, even once I was in a career. If you find ways to sell yourself as an unstoppable force, exude confidence, it's what you will become."
+"Anyways," Astrid interjected, knowing that she had been wrong. "My advice is to not look to me for advice."
 
-There was a round of applause; maybe she didn't *entirely* hate this. There was technically more she wanted to say, but they had been advised to keep answers brief.
+The room fell into silence again, and Astrid wet her tongue.
 
-The next person approached the microphone, a person whom Astrid knew very well.
+Was this really a good message? They needed inspiration, right? That was the script...
 
-She lowered her forehead into folded arms on the table.
+Astrid glanced over at Cale, who nodded slightly with a supportive smile.
+
+"Society is filled to the brim with scripts, messaging, advice, systems, rules," Astrid started, turning back to the room. "A *lot* of it is not built for *you*. The only person in this world who understands you is *you*. The rest of us leave signs and breadcrumbs in an attempt to avoid known pitfalls, but at the end of the day, only *you* know your pace, only *you* know which obstacles affect you, and only *you* know where you are going."
+
+Astrid took another deep breath as a small smattering of applause rippled through the crowd.
+
+"Fuck the scripts."
+
+The room erupted into a chaos of applause and shouts.
+
+Astrid sat back and let the energy of the room wash over her. Cale's shoulder pressed into hers as he leaned over.
+
+"And you say *I'm* the melodramatic one," he muttered.
+
+Astrid bumped her shoulder into him, whispering back, "I hardly think saying 'fuck the scripts' compares to spreading 100 actual roses across the bed simply because I said I had a hard day."
+
+Cale snickered, "You loved it."
+
+"Hardly refutes my point. And I expect 200 next time."
+
+They straightened up as the next person approached the microphone.
+
+Astrid lowered her forehead into folded arms on the table.
 
 "Why don't you travel with your mother more?" Mom asked.
 
@@ -648,11 +692,11 @@ A girl in a yellow mouse-looking onesie with a jagged tail walked up to the micr
 
 Astrid sighed and leaned back, her eyes rolled over to Cale, who was desperately attempting to hold back a smile.
 
-The truth was, as Naina had so kindly pointed out to the whole family, Astrid had a form of depression, dysthymia.
+The truth was, as Naina so kindly pointed out to the whole family, Astrid had a *bit* more than a touch of something called "alexithymia".
 
-That wasn't really a surprise to anyone, though. Astrid had learned that quite quickly when she stopped emotionally armoring within her therapy sessions.
+But that wasn't really a surprise to Astrid.
 
-Astrid, in her eternal, legal-driven state of "nitpicking on the most pedantic of word choice", had caught an important word Naina used when describing Cale's lack of social understanding: "biological".
+Astrid, in her eternal, legal-driven state of "nitpicking on the most pedantic of word choice", had caught an important word Naina used when describing Cale's lack of social understanding: "neurological".
 
 So she had promptly added Naina to speed dial and gave her a few calls.
 
@@ -662,13 +706,13 @@ Cale was on the spectrum.
 
 "Was it the Ass-trid thing?" Cale offered, wearing his smirk.
 
-They were still waiting to get formally tested. Naina also suspected Astrid was somewhere on the spectrum. According to her, most people were "somewhere" on it, even if not high enough to get diagnosed.
+They were still waiting to get formally tested. Naina also suspected Astrid was somewhere on the spectrum, though the assertion came with a lengthy explanation of "continuous trait distribution across the general population."
 
-Apparently, much of what they thought was "being emotionally unavailable and overwhelmed with work" had, in fact, been "being comfortable enough to naturally fully de-mask".
+"No, that started when we were sixteen, a year in. There was the time I convinced you to hide in a locker because your previous crush was looking for you, and you had a big stain on your shirt," Astrid said.
+
+Apparently, much of what Cale and Astrid had thought was "being emotionally unavailable and overwhelmed with work" had, in fact, been "being comfortable enough to naturally de-mask".
 
 Hindsight is a bitch like that.
-
-"No, that started when we were sixteen, a year in. There was the time I convinced you to hide in a locker because your previous crush was looking for you, and you had a big stain on your shirt."
 
 "Took me a day to remember that she had transferred schools a month earlier," Cale noted, to a laugh from the audience. "But no, closer though."
 
@@ -676,9 +720,9 @@ The two of them had *just* the right cocktail of emotional misunderstandings, mi
 
 But she was *not* about to explain any of that to this crowd.
 
-"Didn't you invent an entire language to make fun of me in front of my face?" Astrid rolled her fingers against the tablecloth.
+"Didn't you invent an entire language to make fun of me in front of my face?" Astrid said.
 
-Cale laughed and shook his head. "Astrid, I just mashed together random syllables and laughed. Leo spent so long trying to learn the language."
+Cale laughed and shook his head. "Astrid, I just mashed together random syllables and laughed. Leo spent so long trying to learn it."
 
 It earned another round of laughter.
 
@@ -692,7 +736,7 @@ It more... *explained* things?... rather than *changed* things.
 
 Cale laughed with them; Astrid had to take a deep breath.
 
-Astrid explained to the crowd, "I had one of Cale's friends switch his underwear for panties in the changing room. And before you perverts get ideas, they were unused."
+Astrid explained to the crowd, "I had someone switch his underwear for panties in the changing room. And before you perverts get ideas, they were unused."
 
 Astrid let the laughter dim down before following up. "But no, that was at seventeen. Thanks, Mom."
 
@@ -702,7 +746,11 @@ It took several moments for the crowd to simmer.
 
 Cale and Astrid's eyes met, exchanging an instantaneous alignment.
 
-This room would not get to hear *any* of their origin.
+This room would not get to hear *any* of their real origin.
+
+Cale had confessed the whole thing earlier.
+
+It was behind them.
 
 Astrid finally said, "I don't remember."
 
@@ -762,7 +810,7 @@ She was down the escalators and almost out the door when she nearly ran into a v
 
 May looked up from her phone, feeling like a shocked yellow rat as she registered Astrid's voice.
 
-"Astrid! Where's Leo? I haven't heard from him in an hour." May asked.
+"Astrid! Where's Leo? It's been an hour; he's not responding." May asked.
 
 "I think he was going to run off with Cale. He said he'd be down for your tournament, though." Astrid threw May a brief hug, then kept moving; it looked like she had places to be.
 
@@ -770,7 +818,11 @@ May twisted her lips and pocketed the phone, making her way down towards the arc
 
 Of course, the boys were hanging out.
 
-It was OK if Leo missed the tournament; it was just a convention. He'd hosted at least eight convention tournaments in the last five years himself; they were always more for the community than anything else.
+That was... good.
+
+That was good.
+
+It was just a convention. She and Leo had talked about that. It was *good* that he was taking time for himself.
 
 It was doubtful that there would be significant competition at this event anyway.
 
@@ -780,11 +832,11 @@ May felt a bump into her from the side, and she looked over to find a Japanese b
 
 "No! Don't worry about it." May smiled.
 
-She noted they fell in step next to her in the same direction, so she asked, "What are you all up to?"
+She noted they fell in step next to her in the same direction, so she asked, "Where you two headed?"
 
 The two exchanged a glance, and the girl responded, "Sorry. We are bad English."
 
-May nodded. "Don't worry about it, happy Gam."
+May shook her head with a smile. "Don't worry about it, happy Gam."
 
 "Happy Gam!" The girl responded with enthusiasm.
 
@@ -792,7 +844,7 @@ May pulled her phone out and fired off another text, *"sounds like ur with the",
 
 It was good that Leo was enjoying himself.
 
-*He* would often be the one to commit to running an event at a convention, take it *way* too seriously, burn himself out, and then barely have the mental bandwidth to actually enjoy the event.
+He deserved it.
 
 She would catch up with him later, and they would have their fun.
 
@@ -824,11 +876,7 @@ Along the furthest wall was literal heaven.
 
 Every dance game under the sun, lined up neatly with only enough space to prevent overlapping noise.
 
-Her pace picked up, anticipation building, a broad grin snaking across her lips. Her veins thrummed and her legs screamed to push herself to the point of breaking.
-
-May spent a lot of time playing these games; it wasn't as if she was gaining access to something she usually couldn't play. It was the environment. The community, the people, simply playing in a *different* place was *exhilarating.*
-
-She had no idea who to expect here, but she knew she would end up drinking with most of them.
+Her pace picked up, anticipation building, a broad smile snaking across her lips. Her veins thrummed and her legs screamed to push herself to the point of breaking.
 
 A handful of people were already lined up and playing, likely warming up.
 
@@ -844,7 +892,11 @@ To May's shock, her two companions kept pace with her as she approached the game
 
 May blinked and cocked her head at the girl.
 
-Gamfest attracted a large number of people from across the nation, but not really international players. Was this girl one of the South Americans? May didn't recognize her. And Japanese players didn't really exist for *this* game...
+An international player?
+
+At Gamfest?
+
+Was this girl one of the South Americans? May didn't recognize her. And Japanese players didn't really exist for *this* game...
 
 Murk looked up from his phone with a broad smile beneath that ridiculous kigurumi hood, "Yes! You are in the right place! What's your tag?"
 
@@ -858,13 +910,13 @@ His tag appeared.
 
 May's entire body ceased functioning as her eyes read and re-read it in complete disbelief.
 
-The thrumming in her veins *erupted*, as lightning arched along her spine.
+Her stomach lurched, did a flip, then prompted her entire body to erupt into a lightning-infused chorus of raw *thrill*.
 
 The name "NekoJoy" seemed to stand out against all other lights in the room and burn itself into May's retinas.
 
-There was *no* way. *No way*.
+"What the *fuck*," May exclaimed.
 
-"You are NekoJoy?" Murk asked, with a similar level of disbelief.
+"NekoJoy?" Murk asked, with a similar level of disbelief.
 
 "Hai! NekoJoy!" The boy bowed deeply.
 
@@ -880,7 +932,7 @@ He and May turned to the girl, and May was entirely ready to find out this was o
 
 Who?
 
-"I'm not good," she said, with a smile and hands up defensively.
+"I'm not good," she said, with a smile and raised hands.
 
 Murk laughed. "I'm sure you're great. We'll have a match for you."
 
@@ -894,15 +946,15 @@ May tapped her card to the game, and her tag "MthrFkr" appeared.
 
 "Oh! Mother Fucker!" The boy exclaimed.
 
-Now, May was typically ready for all sorts of crazy things to happen at these events.
+**Now, you have to be ready for all sorts of crazy things to happen at these events.**
 
-You never had *any* idea what kind of random shenanigans, hotel parties, or even celebrities you would encounter. Leo and she had once ended up in a hotel party with an A-list movie star pouring shots for the room.
+**You never had** ***any*** **idea what kind of random shenanigans, hotel parties, or even celebrities you would encounter. Leo and May had once ended up in a hotel party with an A-list movie star pouring shots of Pappy's for the room.**
 
-But this, right here, the current best player in her favorite game, getting *excited* to see her while saying the words "Mother Fucker", flooded May's veins with enough dopamine to incapacitate a horse.
+**But this, right here, the current best player in her favorite game, getting** ***excited*** **to see her while saying the words "Mother Fucker", flooded May's veins with enough dopamine to incapacitate a horse.**
 
-She lost it.
+**She lost it.**
 
-May fell to her knees with laughter, barely holding herself up with a palm on the cold and dusty concrete ground. She wished with *all* of her being that Leo was here for this.
+May fell to her knees with laughter, barely holding herself up with a palm on the cold and dusty concrete ground.
 
 Murk was desperately holding back a laugh, "You two probably have... uh... thirty or forty minutes until your first match. It's double-elim. Unless Apologies or Matt show up, I'm going to go out on a limb and say you two are going to have quite a few charts to play together."
 
@@ -916,17 +968,31 @@ Leo closed the hotel room door behind him while Cale consulted his phone.
 
 "They were nice," Leo noted, his hands brushing over the orange cat ears he had been donated. Cale's were pink and had a tiny ribbon.
 
-It had been intimidating being surrounded by seven men and women in the large fursuits. Leo hadn't interacted with furries before; their public perception made it a strange crowd to hang out with.
+"You've never hung out with furries? Nicest people you'll meet."
 
-Cale seemed to simply not care about perception, though. Leo admired that in him.
+"A lot of hugs," Leo noted.
+
+He liked the hugs.
+
+"A *lot* of hugs," Cale agreed.
+
+"Those suits get cooler and cooler every year. That one had a shark tail?"
+
+"Dude, you're a closet furry," Cale snickered.
+
+Leo's eyes widened, and he waved his hands in the air in defense. "Bro! No! It's fucking weird!"
+
+"The dude doth protest too much, methinks," Cale bumped into Leo's shoulder.
+
+Leo shrank, letting his eyes trail along the floor. "I... like... just think they look cool."
 
 "That one dude was a heart surgeon, how crazy is that?" Cale added, taking a swig from a water bottle, and passed it to Leo.
 
-"Bro, really, a surgeon?" Leo was not surprised to find that it was not, in fact, water in the bottle.
+"Really, a surgeon?" Leo was not surprised to find that it was not, in fact, water in the bottle.
 
 "Those suits are expensive; you have to have some sort of well-paying job to afford them," Cale noted.
 
-"Or poor budgeting habits." Leo took another swig and passed the bottle back to Cale.
+"Or... like... poor budgeting habits." Leo took another swig and passed the bottle back to Cale.
 
 "Probably both." Cale laughed.
 
@@ -939,8 +1005,6 @@ Leo pulled out his phone. "You have any connection?"
 "It wouldn't help you. Shit's always down or slowed to a crawl."
 
 "Pretty sure I have two hours until May's tournament anyway." Leo shook his head, pocketing the phone.
-
-Murk was running the tournament, and Leo wanted to be there in case he needed help. It was a significant community event every year, great for recruiting new members to the Discord.
 
 Cale suddenly stopped and knocked on a door.
 
@@ -972,7 +1036,7 @@ Cale shrugged. "Nope! I think it's about owning a lot of land or something?"
 
 Astrid reviewed her notes.
 
-"To recap, clarification on definition creep with verbal versus written advice. Minimum billing increments... redefined as fifteen-minute blocks... with exclusions for any calls lower than five minutes. A clarification on rate escalation, particularly around CPI..."
+"To recap, clarification on definition creep with verbal versus written advice. Minimum billing increments... redefined as fifteen-minute blocks... with exclusions for any calls lower than five minutes. A refinement on rate escalation, particularly around CPI..."
 
 She flipped the page and continued skimming. Rustling paper and a distant HVAC unit were the only sounds that filled the small, rented office space.
 
@@ -1052,21 +1116,31 @@ Her body moved on its own, driven by raw intuition, while her mind raced ahead, 
 
 *Stairs, bracket drills, anchors, double step the awkward twist, commit to the quarter-double run, commit, COMMIT.*
 
-The outro was where the real score was; she knew it. Her hips twisted deep and she launched herself across the pad, arms infusing her movement with power that threatened to lift the pads up into the air.
+Her mind raced ahead, planning out the outro.
 
-Her foot just needed to...
+Her hips twisted deep, and she launched herself across the pad, arms infusing her movement with power that threatened to lift the pads up into the air.
 
-It connected! Combo continued to rise, pulsing a steady blue of perfection.
+Her eyes narrowed, her muscles flexed as the outro hit.
 
-The crowd gasped, then erupted, signifying that they either both full-comboed, or May had just taken a chart.
+Her grip tightened.
+
+She took a deep breath.
+
+And May *ascended*.
+
+She burst alight with divine energy; she was *unstoppable*.
+
+The combo held.
+
+The combo *fucking held*.
+
+The crowd gasped, then erupted into cheers and screams, signifying that they either both full-comboed, or May had just taken a chart.
 
 Her heart pounded as the score screen teased her with rotating numbers, each settling one by one.
 
-The numbers settled, and a scream ripped from May's lips, and she nearly collapsed as her knees wavered. The roar from the crowd drowned out the arcade.
+The numbers settled, and a scream ripped from May's lips. She nearly collapsed as her knees wavered, practically shaking with the roar of the crowd.
 
-A mere thousand-point difference.
-
-One miss.
+*One* miss.
 
 Neko had missed.
 
@@ -1074,21 +1148,21 @@ May had not.
 
 May panted, still staring at the score in disbelief, her body shook with every breath.
 
-It was the first of a best-of-three, and Neko was most *certainly* going to take the second song. But even taking a *single* chart in person off this mysterious legend left May filled with victorious exultation.
+She had two more to go.
 
-They met between the two cabs, panting and grinning widely. The bows and fistbumps exchanged were awkward but genuine, backed by the exhilaration of competition.
+Fucking easy.
+
+She met Neko between the two cabs, panting and grinning widely. The bows and fistbumps exchanged were awkward but genuine, backed by the exhilaration of competition.
 
 May scanned the crowd and checked her phone.
 
 No Leo.
 
-Her veins drained, leaving her cold and empty. An inkling of rage reared itself in the corners of her mind.
+Where the fuck was he?
+
+Leo better fucking...
 
 She shook it off, squeezing her eyes shut and letting the vibrating pulse of the arcade invigorate her.
-
-It was irrational; she couldn't be mad.
-
-She had literally just been thinking that she was happy Leo was off enjoying himself.
 
 It was OK.
 
@@ -1126,7 +1200,7 @@ Before Leo knew what was happening, the wig was off, revealing a bald scalp, and
 
 "Bro, you're doing autographs now?" Leo asked.
 
-"Apparently! I've done about thirty today. Astrid just glares when people ask." Cale scribbled his clearly unpracticed signature on the man's head.
+"Apparently! I've done about thirty today. Astrid just glares when people ask." Cale scribbled his clearly unpracticed signature on the man's head. "I think they prefer the glare, honestly."
 
 "Me too!" Sexy corn shoved her chest forward, which was prominently displayed through a corn hole.
 
@@ -1134,9 +1208,7 @@ Cale rubbed his chin lightly, turning his head slightly and meeting Leo's gaze a
 
 "Bro, Astrid's going to find out. You know she will." Leo shook his head.
 
-"Good point," Cale stated, turning back to the girl.
-
-"It's going to be *so* worth it." Cale signed, and the girl ran back to her friends to brag.
+"Good point," Cale stated, turning back to the girl. "It's going to be *so* worth it." Cale signed, and the girl ran back to her friends to brag.
 
 "One of these days she's going to-" Leo was interrupted by multiple buzzes from his phone.
 
@@ -1208,7 +1280,7 @@ His world was a narrow path towards the arcade; the rest of the world faded behi
 
 Staff yelled for him to slow down, attendees blurred by, exclamations from near-misses attempted to catch him, but none found their mark.
 
-His mind was already preparing for the worst, his excuses, his apologies, his grovelling.
+His mind was already preparing for the worst, his excuses, his apologies, his groveling.
 
 None of them felt right.
 
@@ -1234,9 +1306,11 @@ Murk's head nodded to the side, and Leo felt the entire world drop from beneath 
 
 She sat on the ground against the far wall, legs curled up and wrapped by arms, head buried against knees. She looked so small, Leo barely could reconcile this as the proud and mighty warrior that was his girlfriend.
 
-She looked up as he approached.
+She looked up as he approached. Her eyes were *seething.*
 
 Leo froze under that gaze.
+
+He so, *so* desperately wished they could skip to the part where she left.
 
 **May**
 
@@ -1276,43 +1350,69 @@ This was the most important event of the year, and *Leo abandoned her*.
 
 He couldn't fucking give her *One. Fucking. Weekend.*
 
-"May-" Leo started, taking a step off.
+"May-" Leo started, taking a step forward.
 
 "Fuck off." May stood, her legs carrying past him and bumping his shoulder pointedly.
 
-What the fuck was she doing?
+No.
 
-Why had she said that?
+Not Leo.
 
-Why were her legs carrying her away and out of the arcade?
+She couldn't do this to Leo.
 
-Hadn't she spent the last five minutes fighting back tears and *craving* for Leo to show up? She was going to launch herself into his arms and let the adrenaline drain in a loving embrace.
+She needed to get out.
+
+Her legs were carrying her away and out of the arcade.
+
+She had spent the last five minutes fighting back tears and *craving* for Leo to show up. She *knew* that. She was going to launch herself into his arms and let the adrenaline drain in a loving embrace.
 
 May had planned it, every single step.
 
 She was... she needed to calm herself... but...
 
-The thought of Leo's absence boiled inside her, threatening to pop her body like a microwaved egg.
+The thought of Leo's absence boiled inside her, threatening to pop.
 
-"Leo! It was *Neko*!" May spun around on Leo just before the door leading outside. Leo stumbled to a stop a few steps away.
+May pushed through several attendees, accidentally bumping the wings off someone dressed as a butterfly. She didn't look back.
+
+The door outside was... right there. She needed to get out before...
+
+"Leo! It was *Neko*!" May spun around on Leo right before the door. Leo stumbled to a stop a few steps away.
 
 "I know! I mean, I didn't know, but... I should have-"
 
-"*STOP FUCKING APOLOGIZING,*" May jutted her head forward at Leo as the words sliced through the air.
+Her boiling blood popped.
+
+"*Stop fucking apologizing,*" May jutted her head forward at Leo as the words sliced through the air.
 
 All motion in the area came to a halt, and an audience of dozens turned to stare at them.
 
-The fucking... He.... It was the cat ears. They were too much.
+Her eyes fell on the cat ears.
 
 "Take those fucking ridiculous things off!" May demanded.
 
-What was wrong with her?
-
 Leo winced and took a step back.
 
-He obeyed her, and the ears dropped unceremoniously to the floor, which pushed her blood to a boiling point.
+He obeyed her, and the ears clattered unceremoniously to the floor.
 
-Of course, he would obey her. He had no fucking spine.
+"May... I was having fun. You told I-"
+
+"That was before fucking *Neko* showed up! I needed-"
+
+Leo averted his eyes, "How would I have known? I-"
+
+"*Look at me!"* May stomped her foot, causing several others nearby to take a further step back.
+
+He did.
+
+Their eyes met.
+
+"May, I can't talk to you when you're like this," he said. His voice wavered.
+
+"*Can't* or *won't*?" May growled, "*Stop* thinking for five *fucking* seconds and *man the fuck up*."
+
+He froze.
+
+Of course, he would freeze. He had no fucking spine.
 
 Because Leo was weak.
 
@@ -1328,15 +1428,17 @@ Leo was... weak?
 
 May stumbled to a stop, registering soft pricks of snow that began to flutter down and around them. The entire city seemed to come to a halt: the river, the distant Ferris wheel, the cars in the street ahead.
 
-That... wasn't... Leo wasn't...
-
-What...
+She was doing it again.
 
 Her breath coalesced as mist, carrying with it a piece of the tempest.
 
 The corner of May's vision blurred, though she refused to blink, refused to let the tears fall.
 
-She was done hurting him.
+She was his tank.
+
+She needed to protect him.
+
+From her.
 
 He deserved better than... whatever the fuck was wrong with her.
 
@@ -1364,7 +1466,7 @@ This was his fault.
 
 A billion things could have prevented this, all in his control, and he had done none of them.
 
-May's head turned back, and she continued walking.
+"I'm sorry Leo. I... I can't." May's head turned back, and she continued walking.
 
 Leo didn't stop her.
 
@@ -1388,43 +1490,99 @@ It wasn't like he offered the world any other value; he simply made things worse
 
 The world would be better without him.
 
-He emotionally felt it... logically, though...
-
 "Leo, what the fuck are you doing out there?" A crisp and icy voice cut through the flurry like a blade.
 
 Two firm, yet delicate hands pulled Leo up by the shoulders, spinning him around.
 
 He found his sister's narrowed gaze, but it simply ricocheted off his new layer of ice.
 
-As she studied his face, her face softened, and suddenly he was held in a warm, affectionate embrace he did not deserve.
+As she studied his face, her own softened, and suddenly he was held in a warm embrace he did not deserve.
+
+Leo's mind loosely registered Naina standing at the window.
 
 "I fucked up." His voice croaked out.
 
-Leo's mind loosely registered Cale standing with two others behind Astrid inside.
-
 "No, Leo. That's not how it works. Come on, let's get you inside."
+
+**Uni**
+
+The scene froze.
+
+Snowflakes came to an abrupt stop mid-air, and even the fabric of Leo and Astrid's clothes came to a dead stop in the halted wind.
+
+Absolute silence fell.
+
+A figure emerged from nothing.
+
+For a moment, their shape distorted and blurred, grasping for material form. It resolved as they stepped up next to the embraced siblings. A side shave with shoulder-length hair and mercurial facial features solidified, followed by a baggy hoodie.
+
+They revealed no emotion as they stared at Leo.
+
+After several moments of considering the frozen tears, they looked back, through the buildings, and at May. She sat curled up in a hotel bathroom, eyes closed and mid-sob. Her own tears hung in the air, one splashing into a small puddle on the tiled floor.
+
+"Do I need to find branches where Naina makes it to LA earlier?" Uni muttered to no one. "It would have other side effects. Who knows how much more those would cost me... This cluster is *so* close..."
+
+Their form flickered, though they showed no physical reaction.
+
+They stepped towards the entrance of the building, coming face to face with Naina, who stared out the window with wide eyes. Her hands rested flat against the glass, leaving a rim of condensation.
+
+There was knowing in those eyes.
+
+"You saw her, though. You *know*. You watched that entire interaction," Uni said.
+
+Uni stepped through the glass, through the girl, momentarily overlapping shapes and colors. The convention remained locked in place.
+
+They walked past Sho, who was helping add a fresh addition to the mass of ribbons that branched out from Lara's badge.
+
+As they walked, they glanced up towards the atrium, through several floors, to Hawthorn, who held his hand to his face. In front of him lay Cale, stiff as a board, next to an Asuna who was doubled over in laughter, beer in hand.
+
+Uni stopped in front of Zoey, who was just returning from an outfit change into a long brown wig with a white ribbon and a schoolgirl's skirt and blouse.
+
+She stood with her own parted lips, staring past Uni and to the distant Naina.
+
+She knew something was wrong.
+
+She had a sense for this kind of thing.
+
+Always had.
+
+Uni studied her for an immeasurable amount of time.
+
+"They're all here. Except... May," Uni looked to the side, up through the walls to May. "Maybe that's enough..."
+
+For another moment, they flickered, the edges of their body fizzled into nothingness before re-materializing.
+
+They looked back to Zoey.
+
+"No. May is important. I've come too far to give up on any of them. Naina saw. There's still a chance," Uni said.
+
+For the briefest nanosecond that remained unanchored outside of time and space, their gaze fell on you.
+
+Then, they vanished.
 
 **Sho**
 
-"I mean, we both are in college and we still don't know what we are doing. So I don't think you're on the wrong path. I think they're just different paths."
+"I mean, we both are in college, and we still don't know what we are doing. So I don't think you're on the wrong path. I think they're just different paths," Sho's new redhead friend, Naina, offered in Spanish.
 
-Sho's new redhead friend, Naina, offered in Spanish. A black wig hung from her hand. They walked the brick path that wound through the interior garden on the ground floor of the atrium.
+A black wig hung from her hand. They walked the brick path that wound through the interior garden on the ground floor of the atrium.
+
+They had wandered off while the blonde woman cared for the blonde man. Naina had said it was best to give them a bit of space.
 
 "But school helps you get a better job, right?" Sho asked.
 
 Lara and Zoey bounced between various guests in the halls as they wandered aimlessly.
 
-"That's the theory. I think it's more necessary for some jobs than others. Zoey's cousin dropped out and now runs a department. Although... I don't think anyone should use him as a comparison point..."
+"That's the theory. I think it's more necessary for some jobs than others. Some jobs require academic knowledge, others require just lived experience that you *wouldn't* get in school. Zoey's cousin dropped out and now runs a department. Well... I don't think anyone should use him as a comparison point..."
 
-"Someone has to have answers on how this all works, right?" Sho sighed.
+"Lara always says no one has answers," Sho said
 
-"If you find someone who does, let me know." Naina laughed.
+"If you find someone who does, let me know. I graduate in four months and still don't know what I'm going to do." Naina laughed.
 
-They turned a corner into the Jam space. Multiple branches of the convention converged on this one mid-sized room, seeing quite a bit of traffic around a small stage where people could play instruments or do karaoke.
+They turned a corner into something called the 'Jam space'. Multiple branches of the convention converged on this one mid-sized room, seeing quite a bit of traffic around a small stage where people could play instruments or do karaoke.
 
-Sho froze as a familiar voice hit his ears.
+Sho froze as a very familiar song voice hit his ears.
 
-Miss Morita was up on the stage, singing and dancing alongside a blonde woman.
+Miss Morita stood up on the stage, singing and dancing alongside a blonde woman.
 
 The Japanese girl skipped and hopped animatedly to many cheers from the surrounding crowd. The blonde didn't seem to know what to do with her hands, but was having fun with it, her hair whipped behind her as she attempted to keep up with the pop idol.
 
@@ -1432,9 +1590,11 @@ The Japanese girl skipped and hopped animatedly to many cheers from the surround
 
 "You know Asuna?" Lara asked, rejoining them after taking a picture of a rather large teddy bear.
 
-"She... sang for us once," Naina explained. It explained nothing.
+"She... sang for us once," Naina explained.
 
-Zoey, still in her blonde wig, gave a squeal that cut through the music from the stage. She scampered away from their little group and threw her arms around a man with black and curly hair.
+It explained nothing.
+
+Zoey gave a squeal that cut through the music from the stage. She scampered away from their little group and threw her arms around a man with black and curly hair.
 
 Sho looked between the wig in Naina's hand and the man Zoey hugged.
 
@@ -1442,9 +1602,19 @@ Sho looked between the wig in Naina's hand and the man Zoey hugged.
 
 Sho was having a hard time not thinking about it too hard.
 
-"Sho?" The man standing next to the black haired man called out.
+"Does Zoey know she is dressed up as-" Sho started.
 
-Sho's body nearly collapsed in panic as he recognized his former employer.
+"Yes. It's... oddly accurate," Naina said.
+
+"That is scary," Sho said.
+
+Naina just giggled.
+
+"Sho?" The man standing next to the black-haired man called out.
+
+Tall. Broad. Black trench coat.
+
+Sho's body nearly collapsed in panic.
 
 "Lara?" The man Zoey hugged asked.
 
@@ -1452,7 +1622,11 @@ Sho and Lara exchanged a glance.
 
 Sho was more than slightly overwhelmed by this chain of recognition.
 
-"That's Cale. He's a friend of my dad." Lara explained. It explained very little, yet again.
+"That's Cale. He's a friend of my Dad." Lara explained.
+
+Why did everyone seem to think *any* of this explained *anything*?
+
+Was this crazy, or was Sho just *that* sleep-deprived?
 
 "Why is he with Hawthorn?" Sho asked.
 
@@ -1470,7 +1644,11 @@ This was a lot for Sho.
 
 He wasn't entirely sure any of this was real at this point. He had most definitely collapsed at the airport, and this was all the strangest dream his weird brain could muster.
 
-Sho's eyes glued to an extended hand from his ex-employer, "We wondered what caused you to run off so suddenly. Probably should have guessed," Hawthorn said in Japanese, looking between Lara and Sho.
+He hoped no one would steal his suitcase.
+
+Sho's eyes glued to an extended hand from his ex-employer.
+
+"Good to see you, Sho," Hawthorn said in Japanese, looking between Lara and Sho.
 
 "Lara!" Zoey's voice called out.
 
@@ -1478,31 +1656,35 @@ Sho watched his girlfriend get dragged off to frolic through a mass of passing a
 
 What a weird dream.
 
-Sho bowed deeply and accepted the hand. "I apologize. It was shameful to leave someone who treated me so kindly."
+Sho bowed deeply and accepted the hand. "I would apologize, but I am not sorry. I hope I was not too much of an inconvenience."
 
-"Shameful?" Hawthorn responded, and Sho felt a hand grab his shoulder and lift him back up.
+"Inconvenience?" Hawthorn responded, and Sho felt a hand grab his shoulder and lift him back up.
 
-Sho averted his gaze, shaking his head. "You and Miss Morita put over a year of effort into me. And then I left you, sold my house, left everything, for..." He couldn't finish the sentence.
+Sho averted his gaze, shaking his head. "I believe I disrupted your plans. I sold my house so I-" He couldn't finish the sentence.
 
-"You *sold your house*?"
+"You *sold your house*?" Hawthorn said. Sho straightened up and found the hand retreating.
 
-There it was.
+Was he judging?
 
-Hawthorn now understood the full extent of Sho's shame.
+Sho organized what loosely qualified as "thoughts", ready to stand his ground against the most powerful man he had ever known.
 
-The full-body laugh that erupted from Hawthorn's mouth said it all.
+"I'm glad you no longer work for us," Hawthorn said, stepping forward.
 
-"I'm glad you no longer work for us. Now I can do this."
+The battle would be epic. Likely seasons-long and full of filler. Maybe Sho would learn a new secret technique.
 
-Sho looked up just in time to see the man step forward and embrace him.
+"Now I can do this."
+
+Sho reached inside of himself, readying his shield. The battle would-
+
+He found himself embraced.
 
 The arms were powerful and firm, and Hawthorn's continued laughter shook both of their bodies.
 
-Sho's arms remained at his sides as his brain flickered through BIOS during a restart.
+Sho's arms remained at his sides, and for a moment the world swirled into a chaotic nothingness.
 
 "I don't understand." It was the only word Sho could muster.
 
-"Sho, I spent a decade prioritizing my career over time with the woman I loved. You made the most powerful decision that I never could. A decision that I would still struggle to make if the universe hadn't given me an out."
+"Sho. You made a powerful decision. More powerful than I could. A decision that I would still struggle to make if the universe hadn't given me an out."
 
 This was beyond simple dreaming.
 
@@ -1510,91 +1692,95 @@ This was a delusion.
 
 Sho was sitting in a mental hospital somewhere, waiting for his amnesia arc to start when he woke up.
 
-"But... I'm smart, or so everyone keeps saying... I should be... investing, right?" Sho backed up, leaving Hawthorn's hands on his shoulders.
+Something clicked.
 
-"That's not how personal investment works." Hawthorn shook his head.
+"*You* don't know what you are doing either." Sho backed up, leaving Hawthorn's hands on his shoulders.
 
-Upon seeing the furrowed brow on Sho, the man continued, "You're only *twenty*, Sho. Investment at your age means stabilizing and learning how to learn. The rest turns into just a battle of prioritization as opportunities arise."
+"You are *very* young to have figured that out. I hope your regrets were not too difficult." Hawthorn didn't smile, but Sho felt like he could sense it.
 
-Hawthorn's arms crossed, and his gaze turned across the room. "Choosing someone to share that journey is probably the greatest decision you could have made."
+"Dead parents," Sho said.
 
-Sho followed the gaze to Lara, his heart filling with joy as she, Zoey, and Naina joined in some dance a group of magical girls was doing. Most of the magical girls were, in fact, magical boys.
+"Dead wife," Hawthorn returned with a grunt.
 
-"How do you know? The priorities? What to do?" Sho found himself asking, turning his gaze back to Hawthorn.
+A few months ago, Sho would have shied from this conversation. Hawthorn was an adult. A million scripts played through his mind to disengage, to bow before an older, wiser man.
 
-"It's a closely kept secret." Hawthorn raised a finger to his lips as if he were sharing a secret. "None of us knows what we're doing. Business is full of language to organize *just* how uncertain we are; nothing is discussed in absolutes, it's all about risk analysis and prioritization."
+"I'm sorry. I hope you are doing well," Sho said instead.
 
-"What? But you and Asuna-"
+"Same to you. Stay strong. It gets easier. We have help," Hawthorn's hand patted Sho on the shoulder before he straightened up and turned his gaze towards the platform Asuna sang from.
 
-Hawthorn laughed, taking a deep breath. "You see the success, we mitigate the failures as we encounter them, so they don't stand out. We categorize moves as tactical or strategic and prioritize them based on urgency and importance. It's an eternal cycle of risk analysis and mitigation. There are endless terms to weigh confidence: bets, stakes, hedges. The entire concept of opportunity cost is an acceptance that there are *no* choices without downsides. All of it is formal language to communicate that none of us is ever fully confident. The most successful people are not those who reach absolute certainty; they are the ones who accept that true confidence simply doesn't exist."
+Sho stepped next to him. He watched as Lara stepped in front of a slumped blond boy on the ground. The boy's head tilted up as Lara extended her hands out with thumbs up. She wore the same beaming smile she had offered Sho.
 
-Sho blinked, turning back to Lara, "Lara's new job?"
+Sho furrowed his brows as the boy slowly stood and placed his arms around Lara in a hug. Lara froze and turned her head to Sho with widened eyes.
 
-Hawthorn followed his gaze. "A bet. Full disclosure, one that I don't think is worth the investment Asuna is putting into it. We disagreed on perceived value, and she made the final decision, and that's just how business goes."
+Sho could *not* hold back the laugh that escaped his lips as he realized the misinterpretation he, himself, had made back in the gardens of Shinjuku all those months ago.
 
-Sho looked back, finally meeting those confident eyes. "You really have no idea what you're doing?"
+He shook his head and shrugged, letting Lara know he didn't care. He was not threatened. Hugs were important. The boy looked like he needed it.
 
-Hawthorn laughed and put his hand on Sho's shoulder again. "Anyone who tells you they have answers is trying to sell you something."
+She nodded and returned the boy's hug. A moment later, she and Zoey dragged him off towards the stage.
 
-"And when we get it wrong?"
+"But you are still successful. Even when knowing nothing," Sho said.
 
-Hawthorn grinned and gave a brisk and short laugh. "Then we learn and keep going. No regrets."
+Hawthorn's words came firm. "Oh. No. I know a *lot*. Wisdom and expertise are real, Sho. Do not confuse uncertainty with inexperience. Certainty does not exist, but confidence does."
+
+Sho nodded.
+
+"How do you draw the line? Between confidence and... arrogance?"
+
+"You ask good questions, Sho. Always have."
+
+They went silent, letting the sound of their little group's karaoke fill the space. It was a familiar song, upbeat and Swedish. Their hips swayed, and their hands held up to their foreheads like cat ears with varying levels of energy.
+
+Astrid was the only one without her hands up. She looked around at the others as if they had grown extra arms.
+
+She seemed confounded by how *all* the others knew this dance. Sho was confounded at how she *didn't*.
+
+"It's about due diligence," Hawthorn finally said.
+
+"What is that?"
+
+"Fancy term for 'put in effort'."
+
+"Do people not?"
+
+Hawthorn laughed. "No. Most people just operate off gut instinct or emotions."
+
+"That sounds horrifying," Sho said.
+
+"I agree. Many wouldn't. *Proper* due diligence in business doesn't speak in absolutes, though. It speaks in risk, prioritization, confidence *levels*. Accepted costs. Margins of error."
+
+"The job you offered me was good," Sho said, beginning to understand. He liked this philosophy. Accepted costs.
+
+"It was," Hawthorn said.
+
+"I would have a career," Sho said.
+
+"You would. If our plans for Project Galaxy play out, you would have a *good* career," Hawthorn said with a grunt.
+
+"I would not be here right now," Sho said.
+
+"No," Hawthorn agreed.
+
+"The career is an acceptable cost," Sho said.
+
+And he meant it.
+
+Lara was the priority.
+
+He felt Hawthorn's hand on his shoulder again, and it squeezed.
+
+Their group hopped off the stage and turned towards the arcade. Zoey led the charge with Asuna in hand. Asuna stumbled and laughed as she moved. Lara glanced over and began to walk towards Sho.
+
+Hawthorn gave another grunt. "Opportunity cost. You traded a strategic opportunity for another. Sho, you *and* Lara learn fast. When... No. *If* you *do* decide on a career, you will grow *fast.* Full transparency, I keep a *close* ear to the ground on remote openings that fit you. You are *valuable.* As long as you thought it through, you did your due diligence. No regrets."
+
+No regrets.
 
 Sho's world tilted.
 
 Or his head did.
 
-Against all logical rationalization, he found himself hugging the powerful man, his head resting against a shoulder.
-
-Between the sleep deprivation and the feeling of a life full of weighted obligation being lifted, Sho felt like he was floating.
+His entire body slumped to the side; his cheek came to rest against the shoulder of his new friend. Between the sleep deprivation and the feeling of a life full of weighted obligation being lifted, Sho felt like he was floating.
 
 And just like that, he floated right off to sleep.
-
-**Leo**
-
-Leo watched across the room as the Japanese boy fell limply against Cale's friend. The Spanish girl ran over and helped prop the boy up against the wall. Everyone was laughing, dancing, singing, and enjoying themselves.
-
-Not Leo.
-
-He didn't deserve any of that.
-
-His legs were curled up, arms wrapped around them. The exact position he had found May in. A position he deserved. Not one that *she* should ever have been afflicted with.
-
-Cale and Astrid had attempted to cheer him up, told him things would work out.
-
-But the way May had looked at him, he wasn't sure. That had been a different look; it had finality in it.
-
-He might never see her again.
-
-He didn't deserve to see her again.
-
-His face buried into his knees, arms wrapping over his ears to tune out the insufferable sounds of laughter and cheering.
-
-This was a place of joy; it was not a place for him.
-
-A tap on his shoulder caused him to look up, and a piece of his mind let him believe he'd find dark brown eyes smiling down at him.
-
-It wasn't May.
-
-It was the Spanish girl.
-
-His heart might have sunk at the realization, but it was already six feet under the ground.
-
-Leo felt himself get guided into a standing position, and suddenly, two arms were thrown around him.
-
-The buried heart beat a single time.
-
-No words were exchanged.
-
-No explanations offered.
-
-But this girl radiated raw sunshine that penetrated and shattered the layer of ice as if it were clear air. The embrace was an unspoken "I don't know you, but you deserve better."
-
-And for some reason, even if briefly, Leo believed it.
-
-The hardened ice of his veins didn't thaw, but they cracked enough to let his legs move.
-
-"Leo! We're going to go play dance games! Come on!" Zoey ran over and grabbed Leo's hand, and he was promptly whisked off by friends before he had time to recontemplate.
 
 **Cale**
 
@@ -1610,17 +1796,29 @@ Cale watched as the rest of their group wandered off towards the arcade. Asuna a
 
 "*That's* him *smiling*?"
 
-"I would say you should see him frown, but I fear for the psychological impact it would have on the rest of the convention. We need to get you two into a glare-off." Cale chuckled as they began to fall in step far behind the rest of the group.
+"I would say you should see him frown, but I fear for the psychological impact it would have on the rest of the convention. We need to get you two into a glare-off, winner takes Cale," Cale chuckled as they began to fall in step far behind the rest of the group.
 
-Cale himself was beginning to run on fumes. His hand was near empty of cards, and he wasn't quite sure he had the energy to shuffle the deck.
+"Did you just say 'winner takes Cale'?" Astrid said.
 
-He had his limits, and they were well past them.
+"I just think Hawthorn deserves the right to win my heart," Cale snickered.
+
+"Should I be jealous?" Astrid gave a sharp bump into Cale's side, causing him to stumble a few steps.
+
+"Oh, most definitely. Tell me you haven't pictured those arms wrapped around you," Cale said.
+
+It was a few moments before Astrid responded in a mumble. "Maybe."
+
+Cale's grin slipped off.
+
+He pasted it back on.
+
+He was running on fumes. He knew it. His hand was near empty of cards, and he wasn't quite sure he had the energy to shuffle the deck.
 
 "I can't believe Naina agreed to dress up as you," Astrid noted as they turned in towards the arcade.
 
-"You know Zoey won the cosplay contest?" Cale could see the blonde wig bouncing in the distance.
+"You know Zoey won the cosplay contest?"
 
-"*How?* People don't even know what we look like! The movie hasn't even come out!"
+"*How?*" Astrid exclaimed. "People don't even know what we look like! The movie hasn't even come out!"
 
 "I think it's the ribbon. She also does a great 'you' impression. Did you see it?"
 
@@ -1662,15 +1860,27 @@ He continued, "I'm pretty sure Lara doesn't know what any of them mean, though. 
 
 They stood for a moment in silence. Well, if "surrounded by hundreds of arcade games each playing their own soundtracks" counted as silence.
 
-Astrid finally spoke quietly in a tone that had become more or less a safe word for them. "You doing OK? I could use the endless bombardment of autograph requests as an excuse to call the night early."
+Astrid finally spoke, quietly, "Time out."
 
-Cale shook his head, watching the tired Japanese boy cycle through songs. "Nah, I got a little bit more in me. I wanna watch Zoey kick all their butts on dance games. I've been training her in secret."
+Cale let himself deflate; his smile... his... mask quickly evaporated.
 
-He pasted his smirk back on, which had slipped off at some point.
+"You doing OK?" Astrid asked. "I could use the endless bombardment of autograph requests as an excuse to call the night early."
 
-Her tone returned to normal. "Good. Then you have energy to explain why I saw your name on a set of corn boobs."
+Cale shook his head, watching the tired Japanese boy cycle through songs. "Energy-wise? Nah, I got a little bit more in me. I wanna watch Zoey kick all their butts on dance games. I've been training her in secret."
 
-Cale laughed and looked over to soak in her reaction. He found her lips against his, an unspoken "it was funny, but remember who you belong to".
+Several moments passed as Cale watched a small crowd standing around a taxi game. He knew what Astrid had been really asking.
+
+"You're still holding onto-" Astrid said.
+
+Cale cut her off. "Yes. I know you said you forgave me, but that... that sat with me for a *long* time."
+
+"You know you can talk to me about it?" Astrid said.
+
+"Yes. I promise. Just give me time on that one. Please." Cale reached over and squeezed her hand.
+
+Her tone returned to normal. "Good. Game on. Then you have energy to explain why I saw your name on a set of corn boobs."
+
+Cale pasted his smirk back on and laughed. looking over to soak in her reaction. He, instead, found her lips against his, an unspoken "it was funny, but remember who you belong to".
 
 *Worth it.*
 
@@ -1678,4 +1888,4 @@ They walked forward to fully rejoin their little, almost complete, group of misf
 
 "Happy Gam," Cale said.
 
-"Happy Gam," Astrid agreed
+"Happy Gam," Astrid agreed.

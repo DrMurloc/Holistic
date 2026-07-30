@@ -346,7 +346,7 @@ To May's knowledge, Zoey had never been in a relationship. How could May explain
 
 "That's what Cale told me for years about Astrid." Zoey switched to a backwards walk, an innocent smile spreading from ear to ear.
 
-May studied that smile and narrowed her eyes. She had seen that exact expression dozens of times on her students when they were trying to get something they wanted.
+May studied that smile and narrowed her eyes.
 
 "What are you saying, Zoey?"
 
@@ -356,7 +356,7 @@ This girl.
 
 May shook her head. "I don't think we're getting engaged any time soon."
 
-"So you're *not* going to marry Leo?" It was like she had the response lined up.
+"So you're *not* going to marry Leo?"
 
 May groaned and looked around for a distraction.
 
@@ -364,13 +364,13 @@ This girl was impossible, unrelenting. Once she got something in her head, she j
 
 As if the universe had heard her plea, May's eyes landed on two red bars set into metal pads in front of an old arcade cabinet.
 
-Now, once you played rhythm games, especially dance games, for long enough, your DNA more or less re-invented itself. In particular, it encoded in itself a specific set of instructions that seemed to be universal to all players.
+**Now, once you played rhythm games, especially dance games, for long enough, your DNA more or less re-invented itself. In particular, it encoded in itself a specific set of instructions that seemed to be universal to all players.**
 
-These instructions were simple: If you found a cabinet in the "wild", you *must* play on it, regardless of where or when, or what quality it was in. May expected that she would at least get a set or two in; her body would not let her leave the park otherwise.
+**These instructions were simple: If you found a cabinet in the "wild" of your game of choice, you** ***must*** **play on it, regardless of where or when, or what quality it was in. This was near universal amongst rhythm game players, and May expected she would likely** ***need*** **to get a few sets before leaving.**
 
-What she had not expected was for Zoey to emit a light squeal with a hop before bolting over to the game herself.
+**What she had not expected was for Zoey to emit a light squeal with a hop before bolting over to the game herself.**
 
-She left May behind in a state of befuddlement as several groups of people flowed past her.
+Zoey left May behind in a state of befuddlement as several groups of people flowed past her.
 
 "Zoey, you play?" May asked as she approached.
 
@@ -402,7 +402,7 @@ Zoey herself swayed back and forth with each step, her sundress flowing elegantl
 
 How could May describe her relationship with Cale to a girl who worshiped the man?
 
-"He's a good friend. He and I... we're different types of gamers. Some gamers like games that are heavy on mechanics and rules. Some gamers like games that focus on..."
+"He's a... friend. He and I... we're different types of gamers. Some gamers like games with mechanics and rules. Some gamers like games that focus on..."
 
 How could May word this?
 
@@ -416,7 +416,7 @@ Zoey was holding back.
 
 It seemed Cale was not the only one in that family who played games with people.
 
-"Zoey, you said you played once?"
+"You said you played once?"
 
 "Yeah! I played once. And another time. And another time. Every time he came out. It was the easiest way for him to get me out of the house."
 
@@ -442,7 +442,7 @@ May watched Zoey as she cycled through the song list, apparently looking for a s
 
 Zoey paused in her song scrolling, her lips parted momentarily in consideration as a preview song clip went ignored.
 
-The words that followed seemed difficult to say, and came from beneath averted eyes, "My house was... organized. Very organized, my dad liked it that way, needed it that way. I... was not... am not, organized... Though Naina says I'm doing a good job."
+The words that followed seemed difficult to say, and came from beneath averted eyes, "My house was... organized. Very organized, my dad liked it that way, needed it that way. He... was... military. I... was not... am not, organized... Though Naina says I'm doing a good job."
 
 Oh.
 
@@ -462,45 +462,41 @@ The words between the assertions pierced May through the heart.
 
 Zoey settled on a song and started it. May ignored the screen, letting her side simply eat misses as the familiar song filled her ears.
 
-"Well... Cale..." May's eyes drifted into the neighboring arcade and aimlessly settled on one of the crane games.
+"I... that distinction seems..." May couldn't quite find the right word.
 
-Cale was manipulative.
+"Pedantic. Didactic. I know. Sorry," Zoey said quickly.
 
-She was mad at him for that, right?
+"Didactic?" May asked.
 
-It didn't feel right.
+She watched Zoey focus, though her eyes didn't seem to be leveled on the game as simple muscle memory carried her.
 
-It wasn't like he was intentionally hurting anyone; he just... subtly controlled the flow of information in ways May couldn't quite name.
+"Um. It's... Like... trying to educate someone. Like... mansplaining is didactic. I'm... technically being didactic by explaining didactism to you. It... upsets people. So... Sorry," Zoey said. Her arms were at her sides.
 
-Frustrating.
+"Fuck. Leo and Astrid are like that. I swear, talking to them is like walking through a fucking minefield of word choice. Bunch of smart-asses," May said.
 
-Yes, it was frustrating; that word felt more right.
+Zoey winced, and her foot completely missed the arrow on a few steps.
 
-Zoey continued, "I... can't be mad at my dad. Cale would get mad at him... for me. I am definitely frustrated... by the situation. It's... complicated."
+"I don't... I don't think it's being a smart-ass. It's... trying to be understood," Zoey said.
 
-Mad at people... frustrated at situations.
+May tilted her head, watching the tension stiffen Zoey's legs. This was far from the image that May had in her head of this girl from their limited previous interactions.
 
-Was May mad at Leo?
+"Sorry, Zoe. I didn't mean to-"
 
-No.
-
-But then what the hell was wrong?
+"No! Not me," the words came out almost too fast. "Naina is like that. She's smart."
 
 The song ended, and May took a glance behind them to make sure no one was waiting. They had a few passing observers, but no crowd or line.
 
-May took the moment to pivot; Zoey was clearly uncomfortable with this line of thought.
-
 "Naina?" May asked as Zoey started the next song.
 
-"Cute redhead, she's smart." Zoey's voice sprang straight back into its standard perky self.
+"Cute redhead." Zoey's voice sprang straight back into its standard perky self.
 
-May did a double-take, almost missing the first note. "Zoey! You have a girlfriend?"
+May did a double-take, almost missing the first note. "Zoe! You have a girlfriend?"
 
 "No! Well, maybe? It's complicated. She has autism."
 
 May mouthed an "oh".
 
-She occasionally had students on the spectrum.
+Her feet moved in basic muscle memory as she thought back to the one or two community members Leo had called out as Autistic. The way they got absorbed, and couldn't take a social cue to save their life.
 
 "Let me guess, you've been crawling all over her and she thinks you're a friend." The two of them spun in unison, following the outer arrows with one foot while the other remained in the center.
 
@@ -534,7 +530,7 @@ She found an old chart that would come naturally but would also give her somethi
 
 May waited for Zoey to ask questions or dig, but she simply listened. May's legs began to move her around the pads, driven by the cathartic emotions of the familiar chart.
 
-"We're back into our standard pattern... I'm staying with him at Meredith's. It sort of feels like our current solution is to just avoid hard topics. We sort of... just... accepted that sometimes I need to step out for a day or two. Which... is fine. But it means there's no progress, and I just feel like a fucking ticking time bomb until he or I say the wrong thing... or don't say the right thing."
+"We're back into our standard pattern... I'm staying with him at Meredith's. It sort of feels like our current solution is to just avoid hard topics. We sort of... just... accepted that sometimes I need to step out for a day or two... or a week. Which... is fine. But it means there's no progress, and I just feel like a fucking ticking time bomb until he or I say the wrong thing... or don't say the right thing."
 
 The words lingered on a light breeze, swirling between the two of them before carrying off into the distance.
 
@@ -556,7 +552,7 @@ But nothing came.
 
 She remained silent.
 
-"You have layers, Zoey," May noted.
+"You have layers, Zoe," May noted.
 
 "Thanks, I made them myself." Zoey giggled.
 
@@ -584,7 +580,7 @@ May met the snicker with a light cackle and grin. "Well, that's just straight ne
 
 "Yes!" Zoey yelled with excitement and began skipping with renewed determination.
 
-"Other way, Zoey," May shouted to the girl with a laugh.
+"Other way, Zoe," May shouted to the girl with a laugh.
 
 They passed the line to one of the coasters, and May's gaze landed on two blue eyes looking back at her from the queue.
 

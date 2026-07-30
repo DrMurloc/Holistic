@@ -2,13 +2,27 @@
 
 "-and then she kissed me, it was sooooo perfect!" Zoey said with no shortage of bubble and pop.
 
-She finished her lap of frolicking around the festively decorated room, plopping down on the floor right next to the upside-down head of Naina, who was draped over a recliner.
+She finished her lap of frolicking around the festively decorated room, plopping down on the floor right next to the upside-down head of Naina, who was draped over the sides of a recliner, red hair pulling down towards the floor.
 
-A fire flickered and spat along a wall, framed by two tall, snow-frosted windows. May's little family by all-things-but-blood sat, scattered through Meredith's large, open, wood-furnished living room.
+A fire flickered and spat along a wall, framed by two tall, snow-frosted windows. May's little family, by all-things-but-blood, sat, scattered through Meredith's — Leo's mom 's— large, open, wood-furnished living room.
 
-"I'm sorry, who was the singer?" Merideth leaned over the large coffee table that the rest of the family surrounded, proceeding with her standard interrogation routine.f
+**Now, a few of the more observant and knowledgeable among you might be teetering on the edge of your seats with a certain intellectual redhead sitting in the middle of the room with this particular crowd.**
 
-"Oh! she was-" Zoey began, but she found Naina's hand promptly placed over her mouth.
+**The rest of you might be scratching your head. Never fear! You will not remain in the dark for long.**
+
+**There's a fun literary concept called "Chekhov's Gun". It means that every element of a story, be it a prop or a character, must be relevant. If you introduce a gun? That gun better be used.**
+
+**Naina, who was currently tuned in to every single speech pattern, analyzing processing styles like her future depended on it, surrounded by one of the most dysfunctional and self-destructive families the world had ever known, would not be best compared to a loaded gun.**
+
+**She was more comparable to a ballistic missile, already launched and mid-air, ready to fundamentally rewrite this entire room's understanding of itself.**
+
+**We just need that blast radius to hit somewhere near Leo and May.**
+
+Several glasses of mulled wine warmed May's stomach. The festive spirit of social lubricant flowed through the room in a warm, comforting haze.
+
+"I'm sorry, who was the singer?" Merideth leaned over the large coffee table that the rest of the family surrounded, proceeding with her standard interrogation routine.
+
+"Oh! she was-" Zoey began, before Naina's hand promptly placed over her mouth.
 
 "A friend," Astrid interjected, glaring from her position curled up in Cale's arms at the corner of the large couch that framed the table.
 
@@ -16,9 +30,9 @@ The moment hung in the air as looks were exchanged between Zoey, Cale, and Astri
 
 "Astrid's friend." Zoey nodded and grinned, moving Naina's hand from her mouth.
 
-May, like everyone else except Naina and Zoey, was several glasses of mulled wine into the evening. The festive spirit of social lubricant flowed through the room in a warm, comforting haze.
+May leaned forward, narrowing her eyes.
 
-"Are... are we just going to pretend like that didn't just happen?" May asked, looking between Zoey and Astrid.
+"Are... are we just going to pretend like that didn't just happen?" she asked, looking between Zoey and Astrid.
 
 "Yes," Astrid and Naina said simultaneously.
 
@@ -58,13 +72,19 @@ May chimed in, "The hell you weren't."
 
 "No, May has a point."
 
-Astrid pulled out her phone. "Cale, the Oxford definition of dating is 'the activity of having a romantic relationship with somebody..." she read, then groaned. "... Or meeting people who you might in future have a romantic...'" She trailed off, refusing to finish the sentence.
+"Cale, I... Fine. Let's do this." Astrid pulled out her phone. "The Oxford definition of dating is 'the activity of having a romantic relationship with somebody..." she read, then groaned. "... Or meeting people who you might in future have a romantic...'" She trailed off, refusing to finish the sentence.
 
 Cale shrugged. "Fits the bill."
 
-Astrid's eyes rolled. "The only way you could describe past us as romantic is in the context of throwing ourselves in front of a train."
+"Um..." the quiet voice of the redhead caused everyone to look over. "I mean... Labels and definitions aside... were you exclusive? 'Dating' is a loaded term that doesn't apply to a lot of people."
 
-"At least it wasn't arsenic poison after a life of infidelity," Naina piped in quietly.
+There was a pause, then Astrid and Cale glanced at each other. "Yes?" they said in unison with equal uncertainty.
+
+"And it was romantic?"
+
+Astrid's eyes rolled. "The only way you could describe the last decade as romantic is in the context of throwing ourselves in front of a train."
+
+"At least it wasn't arsenic poison after a life of infidelity," Naina said with a straight face.
 
 Astrid narrowed her eyes at the redhead briefly before nodding with a smile. "I like this one. Good find, Zoey."
 
@@ -94,7 +114,9 @@ Cale intertwined his fingers with hers.
 
 The room erupted into a series of overlapping arguments. May was confident she heard Astrid and Cale arguing about cereal, soups, and cubes. May, of course, just contributed to the chaos by stating random assertions about elbows.
 
-Zoey screamed, halting all conversation. May's mouth froze while open halfway through a dumb joke about the weenis, and she felt Leo jolt in surprise at the noise. Cale's mom's head poked back into the room.
+The piercing sound of Zoey screaming filled the room.
+
+May's mouth froze while open halfway through a dumb joke about the weenis, and she felt Leo jolt in surprise at the noise. Cale's mom's head poked back in through the doorway.
 
 Zoey smiled and stated sweetly, "Naina's trying to talk."
 
@@ -104,7 +126,7 @@ Her voice came out barely above a whisper, as if she were an intruder. "Biologic
 
 An uncharacteristic silence fell over the room.
 
-Cale didn't take long to play off the noted, "See! I was right."
+Cale didn't take long to play off the assertion, "See! I was right."
 
 "No! But if someone said to draw an arm, you wouldn't just draw the upper arm." Astrid added, picking right back up on the rhythm of pointless bickering.
 
@@ -120,7 +142,7 @@ Cale didn't take long to play off the noted, "See! I was right."
 
 Before anyone could offer blind responses, Naina cut in, "From a building code perspective, rooms are defined as habitable area. Spaces designated for living, eating, sleeping, or cooking. Most hallways wouldn't meet those requirements."
 
-All gazes turned to the redhead.
+All gazes turned to the quiet girl.
 
 Zoey's face beamed with pride.
 
@@ -136,13 +158,37 @@ Naina quickly added, "Oh, sorry, am I supposed to let you argue about it? I migh
 
 "Hit me, Naina." Cale extended his arms in challenge.
 
-Naina started cautiously. "Um... More or less code-switching incarnate..."
+"I mean... what?"
+
+"Come on, hit me with your best shot."
+
+May shifted in her seat, sitting up and leaning forward again, not wanting to miss a single moment.
+
+"You... You're not going to do that thing where I do what you ask, then get mad at me because you don't like what you hear, right?"
+
+"Oh shit, Red's actually got something on the buttsniffer." May was pretty sure the grin she wore would split her face in half as she took another swig of wine.
+
+Cale gave a sharp, airy laugh, "Nah. This is a safe space-"
+
+"No it's not," Leo said.
+
+"You can say whatever you want. No judgment," Cale continued.
+
+"That's just not true," Leo said.
+
+"OK. *I* won't judge," Cale clarified.
+
+"I will most certainly be judging," May offered, continuing her streak of helpfulness. "But not you, Red."
+
+Naina glanced around the room, studying each person individually.
+
+She finally started cautiously. "Um... More or less code-switching incarnate..."
 
 Cale's eyes went wide, his grin stretching. "Astrid! Did you hear? I'm the incarnation of something!"
 
 Astrid simply rolled her eyes and curled further into the idiot.
 
-Naina paused, clearly not having expected that response. "Um, you... Cale maintains the linguistic and aesthetic coding of two realms simultaneously: refined control, yet a distinct lack of care for said control."
+Naina paused, clearly not having expected that response. "Um, you... Cale maintains the linguistic and aesthetic coding of two realms simultaneously: refined control, yet a distinct apathy for said control."
 
 "Call the dickpickle out on his bullshit, Naina, let's fucking go!" May cackled, leaning forward and earning a small shoulder bump from Leo.
 
@@ -152,15 +198,11 @@ Naina's eyes darted around the room and landed on Astrid, who simply shrugged wi
 
 "Uh... Cale's need for control stems from a combination of factors...." Naina started.
 
-She seemed to gain confidence that this was actually invited as her voice began to speed up with enthusiasm, "He comes biologically poorly equipped to understand societal expectations and cues, which is inflamed by a perceived 'irrational' fixation on a partner who exhibits classic alexithymia, likely stemming from some level of dysthymia. She is prone to unpredictable responses due to misinterpretations of her own emotions, which..."
+She seemed to gain confidence that this was actually invited as her voice began to speed up with enthusiasm, "He comes neurologically ill-equipped to understand societal expectations and cues, which is inflamed by a perceived 'irrational' fixation on a partner who exhibits classic alexithymia. She is prone to unpredictable responses due to misinterpretations of her own emotions, likely stemming from dysthymia or, more likely-"
+
+"Back to me, reverse directions," Cale said.
 
 Eyes turned to Astrid, who was staring with parted lips at the redhead.
-
-Naina managed to read the room and pivoted, still maintaining her energy and candor. "Cale's obsessive personality is at constant odds with the perception of compulsive control observed in his cousin's-"
-
-May resisted the urge to look at Zoey.
-
-"Nope. Naina, reverse directions, back to me," Cale interjected, gesturing to himself to keep the room's attention.
 
 "Oh. Right." Naina faltered, losing momentum.
 
@@ -188,7 +230,9 @@ Cale's mouth worked for a moment before he finally said, "Nothing but control an
 
 May snickered at the pitiful attempt to deflect from the bomb he, himself, had set off.
 
-Astrid's own face was set in a distant, contemplative look, likely still recovering from having been slightly publicly outed.
+"You did it to yourself, idiot," Astrid muttered. The assertion was quieter than usual, almost contemplative. Her eyes remained trained in the distance beyond the house.
+
+She was likely processing her own moment of analysis.
 
 Meredith let out her own rare, distinctive, sharp laugh, which was enough permission for the forces of reality to switch from turn-based and back to real-time.
 
@@ -196,13 +240,13 @@ Meredith let out her own rare, distinctive, sharp laugh, which was enough permis
 
 Naina rotated in her seat, sat up, and attempted to shrink into the couch. "I think breaking client-patient confidentiality on my very first day doesn't set an excellent precedent."
 
-"This family doesn't do confidentiality," Leo clarified. May could feel his head shake against her shoulder.
+"This family doesn't do confidentiality," Leo clarified. His head shook against May's shoulder.
 
 "That's horrific. But helpful," Naina noted as Zoey hopped up and curled into the girl like a cat.
 
 May decided to deviate with her own small hazing, hoping to re-break the ice.
 
-"Naina, do you like mind goblins?"
+"Red, do you like mind goblins?"
 
 A loud groan escaped around the room, though May could make out a wide grin on Cale's recovering face.
 
@@ -212,11 +256,11 @@ May simply took another swig of wine while watching the gears turn in the redhea
 
 May blinked.
 
-She had never heard of this condition in her class on learning disabilities.
+Was that some medical term?
 
 "Candice?"
 
-"Candice fit in yo' mouth?" As the words escaped Naina's lips, her face turned a red that matched her hair, and her hands retracted fully into her sleeves.
+"Candice dick fit in yo' mouth?" As the words escaped Naina's lips, her face turned a red that matched her hair, and her hands retracted fully into her sleeves.
 
 May's lips parted as she processed the words.
 
@@ -226,7 +270,15 @@ She had been played like a controller.
 
 Meredith's face was buried in her hands, attempting not to recognize the addition of yet another source of dumb and crude humor.
 
-May recovered enough to concede defeat. "Okay, Naina wins. Zoey, you found a keeper."
+May bumped Leo's shoulder and looked over, finding Leo buried in his phone, even while shaking with residual laughter.
+
+"Leo. You're the last. Does Red pass?"
+
+Leo looked up and took a few moments to scan the girl, then turned back to his phone.
+
+"Yeah. She vibes," Leo said.
+
+"We have quorum!" May said with a cackle. She waited for Astrid to correct her, but the girl was still lost in her head. "Red stays. Zoey, you found a keeper."
 
 The concession earned a squeal of approval from the bubbly girl.
 
@@ -236,23 +288,21 @@ May pulled him into a curled embrace when he returned.
 
 To her horror, the action drew the focus of Meredith's sharp, drilling eyes.
 
-The Dragon went straight for the throat. "So it seems we have a room of happy couples. When is this one getting engaged?"
+The Dragon went straight for the throat. "So it seems we have a room of happy couples. This one is doing well?"
 
 May's blood chilled, then drained, and a breath caught.
 
 "What?" Was the only word she could find.
 
-The Dragon's voice was a honeyed blade. "Engaged, sweetie. Astrid, show her the ring."
+The Dragon's voice was a honeyed blade. "You have been staying over with Leo for a few months now, so surely everything is resolved?"
 
-"Mom." Astrid refused to make a move.
+"Mom," Astrid said flatly.
 
-"Mom, we're-" Leo leaned forward, pulling May closer against him.
+"Mom, we're-" Leo started.
 
 "Not you, Leo."
 
-How did May explain this... Meredith clearly wanted grandkids. May wanted that for her. But... it wasn't that simple.
-
-"It's... complicated." May offered as her stomach continued to churn.
+May pulled Leo tighter against her chest. "It's... complicated." May offered as her stomach continued to churn.
 
 The Dragon had been ready, "Do you love Leo?"
 
@@ -296,44 +346,48 @@ Astrid sighed, relaxing her head back onto Cale's chest. "No, actually."
 
 "We actually have a panel on it at Gamfest in a few weeks," Cale stated.
 
-"Gamfest?" Paul perked up, seeming to recognize the name.
+"Gamfest?" Paul, Leo's typically quiet father, perked up.
 
 "You know of it?"
 
-"It was... on our radar," Meredith noted.
+"It was... on our radar," Meredith noted. "A road trip along the East Coast was on the menu. And it sort of... naturally came up."
 
 Leo and May exchanged a look, attempting to picture Leo's mother surrounded by an extensive menagerie of gaming and music culture.
-
-They were going, of course. Every year, Leo, May, and Cale went; it was a tradition for the majority of the rhythm game community. It would be exciting to have Astrid there.
 
 "Zoey, Naina, did you want to make a stop on the way back to Altoona?" Cale offered.
 
 "Is that one of the ones with all the costumes?" Zoey sat up, squeezing down next to Naina in the recliner.
 
-"Yeah. There are competitions and everything."
+"Competitions and everything."
 
 Zoey and Naina exchanged a glance. Naina shrugged. Zoey nodded vigorously. "I have ideas."
 
 The conversation shifted to whether it would be weird for Zoey to cosplay as her cousin.
 
-"You've been quiet," May whispered to Leo, shifting to face him.
+"You're no hosting at Gam, are you?" May whispered to Leo.
 
-"Community drama, someone got banned from an arcade for smothering pads in baby powder."
+"I... Not this year. Murk will run the tournament," Leo said.
 
-May groaned, hoping they didn't lose another game location to idiots.
+May gave a mock gasp, "Leo! You're going to actually fucking relax at an event? Is that possible?"
 
-"Sneez is reaching out to the manager. We have community policies for a reason."
+Leo's body shook with a silent laugh, "No. Like... Probably not. But I can try."
 
-"Fair. How about you? Doing ok?"
+"Proud of that for you. Go hang with the dingusbiscuit. You deserve a break," May said. She gave Leo's waist a good squeeze.
 
-"Yeah. Vibing. You know. Everyone's so happy."
+"You're playing, right?"
 
-She heard the implications in his tone. Leo was concerned that they were now the weak link. Meredith's little interrogation had left them both shaken.
+"Fuck yes. Someone needs to put those East Coast nerds in their place. Fuckers keep flying out Koreans to cover up their skill issues at CHOMP."
 
-"We'll figure it out, Leo," May said.
+They laughed silently.
+
+"I'll be there. Who knows, maybe Matt will show up, and you'll have competition," Leo offered.
+
+"Gonna be a good Gam," May said.
 
 "Yeah. I love you."
 
 "I love you too."
 
-They exchanged a brief kiss, and Leo curled up into her arms, tuning back into an argument about whether "nothing" is something.
+They exchanged a brief kiss, and Leo curled back up into her arms, tuning back into an argument about whether "nothing" is something.
+
+**Not quite the blast radius I had hoped for... Well... Let's see it through. Never know what will happen at Gamfest.**

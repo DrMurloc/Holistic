@@ -1,3 +1,17 @@
+**Uni**
+
+OK.
+
+This is fine.
+
+We're fine.
+
+Everything is *fine*.
+
+This is what *fine* looks like.
+
+Flash forward a bit. Let's see where everyone's at on Valentine's.
+
 **Zoey**
 
 "Are we there yet?" Zoey asked.
@@ -196,9 +210,9 @@ What the fuck was she doing?
 
 The nauseating murmur of couples engaged in *small talk* at neighboring tables enveloped her in the dimly lit restaurant. The noise was accompanied by the steady buzz of whatever dumb bullshit escaped the mouth of May's date: Brad.
 
-Above the table, May wore her teacher's smile. It was exhausting, and she swore the muscles would snap at any moment.
+Above the table, May wore her barista smile. It was exhausting, and she swore the muscles would snap at any moment.
 
-Below the red-tableclothed table, her fists clenched and unclenched, though she was unsure if the source of the anger was herself or this date.
+Below the red tablecloth, her fists clenched and unclenched, though she was unsure if the source of the anger was herself or this date.
 
 May was sure Brad was talking about some bullshit spiritual journey, claiming that yoga changed his life by motivating him to invest in cryptocurrency. Or how gluten levels in steak sauce were on the rise. Whatever the hell normies talk about.
 
@@ -238,7 +252,7 @@ Leo had found "simple".
 
 This was *simple*.
 
-There was no processing. No contemplating of what anyone wanted. No need to solve anyone's problems. No need to worry about why he seemed *fundamentally* unable to craft even a *single* one of those solutions.
+There was no processing. No contemplating what anyone wanted. No need to solve anyone's problems. No need to worry about why he seemed *fundamentally* unable to craft even a *single* one of those solutions.
 
 All that the deep fog of inebriation left him capable of holding in his head was an image of an obsidian ponytail swaying lightly above the graceful motions of toned legs.
 
@@ -247,3 +261,17 @@ There were no tears. Why would there be? Why would you cry when you were finally
 His hand fell to the side of the bed, searching for a bottle that still contained some of the precious liquid.
 
 His heart gave a brief beat as he found a bottle with weight, and he drank it back, continuing his glorious journey of complete and utter freedom.
+
+**Uni**
+
+I believe the colloquially appropriate term is "fuck".
+
+Maybe by the wedding?
+
+I *really* don't want to get involved... I could? It wouldn't even be hard. But... it would be wrong, right? It would have been helpful if someone had written a handbook for "cosmic-level entities attempting to maintain a multiverse of infinite branching cyclomatic complexity".
+
+<Exhales a slow omniscient sigh spanning a level of time and space not capable of being captured in words>
+
+No.
+
+No involvement. If this is the timeline, this is the timeline. If not, we keep looking.

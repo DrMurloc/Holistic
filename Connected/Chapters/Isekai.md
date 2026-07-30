@@ -1,38 +1,34 @@
 **Lara**
 
-Lara sat on the metro, head leaning against the window, eyes focused on nothing in particular. An air of wistfulness hung like a fog. The city flashed by as a confusing mess of colors and shapes.
+Lara sat on the metro, head leaning against the window, eyes focused on nothing in particular. An air of wistfulness hung like fog. The city flashed by as a confusing mess of colors and shapes.
 
-Sho snored softly, his hand resting on her knee.
+Sho snored softly, the warmth of his hand spread through her thigh, and she fought off the slight chill in the air.
 
 There had been no sleep the previous night.
 
-The last few days had been a celebration of every aspect of their life that had made the previous three months feel impossible: ramen, arcades, anime, cat videos, preparing food together, and well... anchoring embraces.
+A month of celebration, of promises, of mapping and learning each other's bodies like they were sacred, couldn't have prepared them for the reality that loomed at the end of this subway ride.
 
-Neither of them had the illusion that being long-distance, even if for a short while, would be simple. They didn't know what to expect, but given their relationship had been built on a mix of body language and hormones, there was no doubt this would be a challenge.
+They would be alone.
 
-Of course, neither of them had spoken that out loud. They hadn't needed to.
+The thought of the freedom that came on the other side of untangled knots when Lara returned was a powerful one.
 
-So the previous night and day had been an unstated promise.
+But as powerful as it was, it did *nothing* to soothe the pounding of her heart when twenty minutes later Lara watched the baggy-eyed Sho disappear behind the wall guiding her to Security.
 
-Lara would return.
-
-And they would figure this messy thing called life out, together.
-
-That thought didn't make it any easier, twenty minutes later, when Lara watched the baggy-eyed Sho disappear behind a wall as Lara entered security.
-
-The moment nearly caused her to abandon all of her plans. Her leg bounced, a minor crack in her composure considering the way her heart threatened to break free and run back to the boy she loved.
+The moment nearly caused her to abandon all of her plans.
 
 It would be easy.
 
-Call mom.
+Call Mom.
 
 Tell her Lara had a higher priority.
 
-A priority who, in zero to five words, had a greater impact on Lara's life than what her mom could accomplish in a thousand.
+A priority that, in zero to five words, could have a greater impact on Lara's life than what her Mom could accomplish in a thousand.
 
 It would be *so* easy.
 
-But she boarded the plane anyway, for reasons she still couldn't quite rationalize.
+Just stop caring? Leave the mess behind? That was just what she did, right?
+
+She boarded anyway.
 
 Planes typically filled Lara with wonder and anticipation. The rows of people with different backgrounds, different stories, different destinations. The hiss of compressing air, sealing them in a capsule that teleported her to... somewhere else.
 
@@ -44,7 +40,13 @@ She did not want to be "somewhere else".
 
 They had *only* been dating for three months.
 
-How naive was Lara to think that was long enough to make a meaningful connection? She had no perspective on what love really looked like.
+Three months was forever.
+
+Three months was nothing.
+
+She would be away as long as they had been together.
+
+The thought ate at the edge of her mind. She dreaded it, but feeling the lift of the plane as it carried her away from what felt like her new home country forced her to confront reality.
 
 Was this simply puppy love?
 
@@ -58,17 +60,23 @@ Maybe that was the point.
 
 Communication was messy. People were messy. Love was messy.
 
-And Sho was worth the "messy".
+But Sho...
 
-If Sho was a mistake, he was a mistake she needed to make.
+Sho did not feel messy.
+
+Maybe that's all she needed?
 
 Lara fired off a text message. *"I love you. It's only three months."*
 
-Lara was unsure who the text was for — her or him — but felt it needed to be said.
+Lara was unsure who the text was for — her or him.
 
-The response came immediately. *"I love you too. Please land safely."*
+The response came several moments later. *"I love you too. Please land safely."*
 
 Lara smiled at the words, and after a sleepless twenty-four hours of emotional gales, finally nodded off.
+
+**Now, it's quite important that Sho had sent that message so promptly. It means we're likely still on track here.**
+
+**Just to double-check, though, I'm gonna turn the clock back ten or twenty minutes.**
 
 **Sho**
 
@@ -78,21 +86,39 @@ The door to the house thudded closed behind Sho.
 
 The statement wasn't quite right. Why did it feel wrong?
 
-His shoes came off, and he stepped forward into the kitchen.
+His shoes came off, and he stepped into the kitchen, placing his phone on the island.
 
-The air was oppressive.
+The air felt... oppressive.
 
 The lingering smells of garlic and onion fought back against the pressure, but it was a losing battle.
 
-Were Sho's parents angry? Should he not have let Lara leave? Begged her? It would have been dishonorable and disrespectful.
+Were Sho's parents angry? Should he not have let Lara leave? Begged her? It would have been dishonorable and disrespectful. He was supporting her, right?
 
-What did his parents want from him?
+Why did his parents feel angry?
 
-Even with the morning light creeping in, shadows formed at the corners of the room. A familiar darkness mirrored them in the edges of Sho's mind.
+What did they want?
 
-Sho had grown accustomed to this feeling before Lara entered his life. The loneliness, anxiety, and dread; the disapproval of parents from beyond the grave.
+It was... the patterns... they were so *inconsistent.*
 
-The contrast to the liveliness, the joy that had filled this house mere hours ago, felt so distinct. His ears could feel the impression that Lara's laugh left behind.
+Sho realized his fists were clenched. His fingernails dug into his palms. He forcefully loosened them, but it just shifted the tension up into his arms.
+
+Even with the morning light creeping in around shut blinds, shadows formed at the corners of the room. A familiar darkness mirrored them in the edges of Sho's mind.
+
+He had known this was what had awaited him.
+
+And he let her go anyway.
+
+He could practically feel the impression of Lara's laugh in his ears. The sound of her poking fun at a dog-eared demon yelling, "Kagome!"... The feeling of his laughter when she would mimic a tsundere with a pronounced pout, before teasing him for his obsession with the trope.
+
+He could practically see the imprints of her bare feet on the hardwood floor from when she would zigzag around the room, dusting and vacuuming, dancing to an energetic Spanish song playing on her laptop.
+
+It was all gone.
+
+Three months.
+
+Three months was forever.
+
+Three months was nothing.
 
 Sho found himself standing before the portrait of his parents.
 
@@ -102,21 +128,25 @@ Of course, they glared.
 
 He turned down a dream career. The opportunity to finally make something of himself. To contribute, to be part of society, to be *productive*.
 
-And now the only thing that had mattered to him had just left on a plane, and he was back in this house with no progress, *nothing* to show for it.
+And now the only thing that had mattered to him had just left on a plane, and he was back in this house alone with no progress, *nothing* to show for it.
 
 It was shameful.
 
 Sho was shameful.
 
-Sho lowered himself into a bow, but it stopped halfway to "proper depth".
+The demons encroached, surrounding him. He could feel their hands on him, reaching into his mind and causing it to cloud. The coldness of their touch violated him, touching skin reserved solely for Lara's warmth.
 
-His fists clenched tight, knuckles white.
+Sho lowered himself into a deep bow, but it stopped halfway, opening his eyes.
+
+His hands were not flat against his legs. They were clenched in fists again. He could make out the white of his knuckles as they stretched the skin taught.
 
 "Why?"
 
 The word echoed through the house, stilling the oppressive pressure of failure to an abrupt hush.
 
-Sho's next breath escaped in a jagged rush, fueled by a barely glowing ember deep in his core.
+The demons froze.
+
+Sho's next breath escaped in a jagged rush, fueled by a barely glowing ember deep in his core. Invisible hands retreated, buying him room to breathe.
 
 "Why?" He repeated, straightening up and meeting his parents' eyes.
 
@@ -124,35 +154,39 @@ The word came out rough, almost a growl.
 
 Of course, there was no response except the muted force of judgment.
 
-What was he doing? What would getting mad accomplish? Did he think he could change his parents' minds? They always knew better than he did.
+"*Why?!*" Sho shouted. "You only ever supported me. You put me into special classes! You tried to protect me! You were my *shield*! You did *everything* to support me! You were *proud* of me, even when I struggled! What am I doing wrong now that has earned your wrath? What am I supposed to do?"
 
-"*Why?!*" Sho shouted. "You only ever supported me. What am I doing wrong now that has earned your wrath? What am I supposed to do?"
+The words slurred together as all semblance of coherent speech slipped from his mind.
 
-The words slurred together as all semblance of coherent speech slipped from his mind. Who would hear, anyway? He had no one to hide his voice from here.
-
-The ember grew into a blaze, arming itself to go to war with the horde of demons that crept in the shadows.
+The ember grew into a blaze, causing the demons to step back.
 
 Sho's voice rose even further, leaning forward. "You blessed me with this gift. 'Sho is going to do great things', 'Sho is so smart', 'Sho is going to solve the world's problems'. What am I supposed to do with it?! *Tell me*!"
 
 The last words bellowed through the emptiness, leaving Sho panting with water forming in the corners of his vision.
 
-"Am I supposed to follow her? Am I supposed to wait? Am I supposed to focus on my career? All being smart accomplishes is knowing all of the things that I'm *not* doing!"
+"Am I supposed to follow her? Am I supposed to wait? Am I supposed to focus on my career? The only thing being smart accomplishes is knowing all of the things that I'm *not* doing!"
 
 Sho's foot stomped, a gunshot that rang through the house and caused the demons to wince and scurry.
 
 His eyes narrowed, demanding answers from the glaring ghosts that stood before him. "It's not a blessing. *Who are you* to judge me for *doing the best I can* with the *curse you* gave me!*"*
 
+It wasn't enough.
+
+His chest heaved; his mind was an *inferno*.
+
+This energy, this blaze, this *rage*, needed to go *somewhere*.
+
 With a roar, Sho grabbed the portrait and flung it across the room. It hit the distant wall with a *crack*, and glass shattered to the floor like hail.
 
-Sho was left staring into the emptiness of the blank wall, well aware of twin lines of tears running down to his chin.
+For a moment, Sho simply stood there, staring into the emptiness of the blank wall, well aware of twin lines of tears running down to his chin.
 
-Silence returned, carrying an absolute hollowness.
+Slowly, with each breath, the blaze subsided, leaving a silent and absolute hollowness.
 
-Sho blinked, finding a moment of clarity.
+Sho blinked.
 
 What had he done?
 
-His gaze turned to the broken portrait, a profound terror engulfing him and eroding any semblance of fury.
+His gaze turned to the broken portrait. Horror replaced the emptiness as his skin turned cold.
 
 "I'm sorry. I'm sorry. I'm sorry."
 
@@ -163,6 +197,8 @@ The portrait appeared undamaged, but the frame would need to be replaced. The to
 His eyes fell on his parents' faces.
 
 They...
+
+Sho blinked.
 
 They weren't glaring. They smiled, like they always had.
 
@@ -178,7 +214,11 @@ His parents would...
 
 His parents...
 
-Sho's vision refocused, finding himself staring back.
+In... anime...
+
+Lara would...
+
+Sho's vision refocused. He blinked, clearing moisture from his eyes and finding himself staring back.
 
 His stomach flipped, then dropped limply to the floor.
 
@@ -190,55 +230,77 @@ It couldn't be.
 
 His parents were gone.
 
-He had seen the bodies; he had watched the whole thing. He *still* struggled to cross streets without the moment replaying.
+He had seen the bodies. He *still* struggled to cross streets without the moment replaying. He had watched the entire time they faded away, going still against the bloodied pavement.
 
-The ghosts —the musings of other-worldly reincarnations, isekais —were delusions.
+And then he was alone.
 
-They were gone.
+In a single moment.
+
+*That* was reality.
 
 The portrait clattered to the ground as Sho stumbled back, collapsing against the now-barren wall.
 
 "I'm sorry."
 
-Sho was unsure who the apology was for, but felt it needed to be said.
+Who was he apologizing to?
 
-If...
+It was just him here.
 
-If his parents were gone... then...
+Sho was left alone, with no answers. Japan didn't have them. His parents likely never had them. Lara didn't have them. Sho suspected Miss Morita and Mr. Morisett never had them.
 
-Was the apology for himself? Had he been abusing himself?
+Sho looked around.
 
-Had he really spent the last half year locking himself out of any decision that made him happy while labeling it as "responsible" or "honorable"? What did those words even mean? He had assumed he knew, but...
+The room was silent.
 
-The only person he felt knew the answer—a powerful American—Sho had rejected.
+Shadows of various shapes and sizes were cast by several beams of light filtering in around the blinds. Couches, chairs, tables, and paintings, all purchased by his parents. The bare wall Sho had stood by earlier now showed only a faint rectangular line of dust where the painting once hung.
 
-Sho was left alone, with no answers. No replies.
+He felt them still... the "demons". It was faint. That pressure in his head, the tightness in his chest. The regrets. The knowledge of everything he hadn't done.
 
-Sho scanned the room.
+His unused potential.
 
-It suddenly felt so... real. No demons. No ghosts. No shadows. Just... furniture... paintings...
+It all spiraled in the distant corner of this mind, threatening to-
 
-He was alone... trapped in a reality of eerie stillness and... and... nothingness.
+His phone buzzed from the kitchen island.
 
-No...
+He slowly stood and walked carefully to avoid the glass on the floor.
 
-Sho wasn't alone.
+A moment later, he had his phone in his hand. The glow of the screen felt almost warm across his face, pushing back the darkness.
 
-A single source of warmth emanated, but it did not come from the house.
+He stared at the text she had just sent: *"I love you. It's only three months."*
 
-His phone was in his hand in a flash.
+A new ember built within him. He focused on it and took a deep breath. His jaw set, and eyes focused.
 
-He stared at her last text: *"I love you. It's only three months."*
+His grip on the phone stayed firm as he typed back,*"I love you too. Please land safely."*
 
-Three months.
+Lara loved him.
 
-Sho stood, ascending the stairs.
+The shadows coalesced around him as he turned out of the kitchen and found the stairs. Each step conjured a demon, which he did nothing to push away.
 
-Every step creaked, the house itself bowing before a determination that Sho hadn't known possible from himself.
+The job had *not* been important. Lara *was*.
 
-In his grip, he held his phone: his portal to a fantastical world heralded by a mysterious and beautiful goddess. It was both shield and weapon; it built and broke boundaries better than any legendary artifact.
+He took a step.
 
-The master bedroom door opened unceremoniously for the first time in ten months.
+He had *not* been lazy in job searching. He had spent six months learning how to take care of himself and a house while society offered nothing.
+
+He took another step.
+
+High school had *not* prepared him for the real world. Nothing could have.
+
+Another step.
+
+The rhythm games might be an escape, but he *needed* an escape. He was only human.
+
+And another.
+
+He hadn't let Lara go. He had *enabled* her; there was *nothing* to regret in that.
+
+The staircase creaked under his weight as the house itself bowed before his growing army.
+
+He found himself standing before the closed master bedroom. His hand rested on the cool doorknob. He took a deep breath, absorbing his minions in and using the ember inside him to forge them into a shield.
+
+He set his jaw again, raising the shield and readying himself for the blow that would come with this last confrontation.
+
+"I tried to help," he said as he swung open the door to the master bedroom.
 
 Sho waited for some dramatic exhaled breeze from the room to rustle his hair.
 
@@ -254,23 +316,33 @@ No relics of a lost past anchoring Sho to his... to... to this *house*.
 
 It was a room.
 
-It had a western-style four-post bed, a wardrobe, a walk-in closet, and a small attached bathroom.
+It had a western-style four-post bed, a wardrobe, a walk-in closet, and a small attached bathroom. The mediocrity almost seemed offensive with how much effort Sho had put into ignoring this space.
 
-The mediocrity almost seemed offensive with how much effort Sho had put into ignoring the room.
+Sho exhaled, lowering his shield. His body relaxed.
 
-He turned away, not even entering the space.
+The words were a formality.
 
-Three months was too long.
+He already knew them to be true.
 
-His next move was most certainly a mistake.
+"If I knew you would stop in the middle of the road... I would not have called out," he explained to no one but himself. "I'm sorry I got you killed. I'm sorry. But I was trying to *help*."
 
-But his entire life was turning into a series of mistakes. A sequence of "dishonorable" and "disrespectful" moves that were nothing but selfish. What was one more on top of the pile?
+The words disappeared into the empty space. They didn't even echo back. They just absorbed into the terrifying mundaneness of the room as the air conditioning kicked in.
+
+"I'm sorry. I would change it if I could. I don't know what plans you had in store for me. But since no one wants to give me an instruction manual, I'm going to go make my own."
+
+He turned away, not even entering the room.
+
+There was no demon lord to slay there.
+
+The demons were his. The pain was his. The loss was his. The decisions were his.
+
+They always had been.
+
+And they had a *lot* of work to do.
 
 Sho had never traveled, and he had no idea how to buy plane tickets.
 
-He only briefly contemplated asking Lara for help, but the image of her surprise when he showed up and kissed her was too tempting.
-
-Of course, the flights wouldn't be the hard part.
+Of course, the flights wouldn't be the hard part. If Lara could figure those out, so could he.
 
 He couldn't even begin to guess at the depth of complexity that came with selling a house.
 
@@ -280,8 +352,4 @@ His home was not here.
 
 His home was out wandering without him.
 
-Sho slowly paced the house, *daring* any of the demons to show their pitiful faces.
-
-His eyes scanned each room, establishing a pattern for "packing".
-
-If it was a mistake, it was a mistake he needed to make.
+Sho paced the house, filling out and categorizing a list of inventory into his phone. His ember, his shield, burned bright in his heart, emboldened by the tug he felt across the ocean towards his future.

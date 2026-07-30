@@ -1,0 +1,400 @@
+{
+  "chapters": [
+    {
+      "id": "9f76bf66474eb780",
+      "book": "Connected",
+      "number": 0,
+      "title": "Prologue",
+      "markdownPath": "Connected/Chapters/Prologue.md",
+      "docxPath": "Connected/WordDocs/Prologue.docx",
+      "markdownSha": "d8c2cefa6dbd9693c755bf1eda139aab38703bf0"
+    },
+    {
+      "id": "bbefe3cfcec172cb",
+      "book": "Connected",
+      "number": 1,
+      "title": "Armor",
+      "markdownPath": "Connected/Chapters/Armor.md",
+      "docxPath": "Connected/WordDocs/Armor.docx",
+      "markdownSha": "bf86108c1317a2c040b8f4a478bf5074032b43ac"
+    },
+    {
+      "id": "4143bbba03563dac",
+      "book": "Connected",
+      "number": 2,
+      "title": "Exposed",
+      "markdownPath": "Connected/Chapters/Exposed.md",
+      "docxPath": "Connected/WordDocs/Exposed.docx",
+      "markdownSha": "ee43c598686beb4fbb36a12bb1724084d5515c02"
+    },
+    {
+      "id": "14fdfcd18fc625a7",
+      "book": "Connected",
+      "number": 3,
+      "title": "Harmony",
+      "markdownPath": "Connected/Chapters/Harmony.md",
+      "docxPath": "Connected/WordDocs/Harmony.docx",
+      "markdownSha": "0824831cb7f0d029986dc45b6834eda2e51490e9"
+    },
+    {
+      "id": "ee99f3adf9418338",
+      "book": "Connected",
+      "number": 4,
+      "title": "Boxes",
+      "markdownPath": "Connected/Chapters/Boxes.md",
+      "docxPath": "Connected/WordDocs/Boxes.docx",
+      "markdownSha": "9d54fe85edf2523bce3636ff7091ad71e7b75c47"
+    },
+    {
+      "id": "97f6326988c2ec17",
+      "book": "Connected",
+      "number": 5,
+      "title": "Abnormal Psychology",
+      "markdownPath": "Connected/Chapters/Abnormal Psychology.md",
+      "docxPath": "Connected/WordDocs/Abnormal Psychology.docx",
+      "markdownSha": "5cdafa176bfe0db92af1f8ab52fa699b455f7511"
+    },
+    {
+      "id": "bc7f24e90fa864bd",
+      "book": "Connected",
+      "number": 6,
+      "title": "Gamers",
+      "markdownPath": "Connected/Chapters/Gamers.md",
+      "docxPath": "Connected/WordDocs/Gamers.docx",
+      "markdownSha": "22430c0adb5604a14f31e05aa1e228e79162c4ae"
+    },
+    {
+      "id": "11f2823554f98c22",
+      "book": "Connected",
+      "number": 7,
+      "title": "Anxiety",
+      "markdownPath": "Connected/Chapters/Anxiety.md",
+      "docxPath": "Connected/WordDocs/Anxiety.docx",
+      "markdownSha": "713992a4ef59443fdb61aafefd41abb255b08e26"
+    },
+    {
+      "id": "5335087389334fcb",
+      "book": "Connected",
+      "number": 8,
+      "title": "Empty",
+      "markdownPath": "Connected/Chapters/Empty.md",
+      "docxPath": "Connected/WordDocs/Empty.docx",
+      "markdownSha": "1e811adea289e6aca9f32b6d5e392c91efd94098"
+    },
+    {
+      "id": "43b804f47b755015",
+      "book": "Connected",
+      "number": 9,
+      "title": "Vending Machine",
+      "markdownPath": "Connected/Chapters/Vending Machine.md",
+      "docxPath": "Connected/WordDocs/Vending Machine.docx",
+      "markdownSha": "804666e7ebbaf2205941eeb659d59cc3e4042775"
+    },
+    {
+      "id": "b6db5cc5fc5316e0",
+      "book": "Connected",
+      "number": 10,
+      "title": "Church",
+      "markdownPath": "Connected/Chapters/Church.md",
+      "docxPath": "Connected/WordDocs/Church.docx",
+      "markdownSha": "192e5eb31c2c79ec8cbb3973ba8feb5dab136346"
+    },
+    {
+      "id": "120666521ef54e64",
+      "book": "Connected",
+      "number": 11,
+      "title": "Endgame",
+      "markdownPath": "Connected/Chapters/Endgame.md",
+      "docxPath": "Connected/WordDocs/Endgame.docx",
+      "markdownSha": "e79d0cad3eed74e862db7fe14b55e4f54b230e24"
+    },
+    {
+      "id": "c364d28a2c1c0854",
+      "book": "Connected",
+      "number": 12,
+      "title": "Clock",
+      "markdownPath": "Connected/Chapters/Clock.md",
+      "docxPath": "Connected/WordDocs/Clock.docx",
+      "markdownSha": "6af65d9ba2e64ef40ef446955685fbc1ffb3ae56"
+    },
+    {
+      "id": "66b10b788bf57765",
+      "book": "Connected",
+      "number": 13,
+      "title": "Octopus",
+      "markdownPath": "Connected/Chapters/Octopus.md",
+      "docxPath": "Connected/WordDocs/Octopus.docx",
+      "markdownSha": "210e98918794ca86bafe5a02076a994eecf6ebfd"
+    },
+    {
+      "id": "c70e7bda6db9d7ce",
+      "book": "Connected",
+      "number": 14,
+      "title": "Gardens",
+      "markdownPath": "Connected/Chapters/Gardens.md",
+      "docxPath": "Connected/WordDocs/Gardens.docx",
+      "markdownSha": "9fcc65bb9a6b43d2134ef4a6f3baaec6fa2b4bfe"
+    },
+    {
+      "id": "d237951393350cc7",
+      "book": "Connected",
+      "number": 15,
+      "title": "Arrows",
+      "markdownPath": "Connected/Chapters/Arrows.md",
+      "docxPath": "Connected/WordDocs/Arrows.docx",
+      "markdownSha": "4234f64b4fcb53d3eb9e03160353f29bf557d0db"
+    },
+    {
+      "id": "a7ab8cc998cb9f4f",
+      "book": "Connected",
+      "number": 16,
+      "title": "Suspended",
+      "markdownPath": "Connected/Chapters/Suspended.md",
+      "docxPath": "Connected/WordDocs/Suspended.docx",
+      "markdownSha": "792e6fdc3cb041e1c0ce3880a8e3a66fece31d93"
+    },
+    {
+      "id": "42e344d56830a566",
+      "book": "Connected",
+      "number": 17,
+      "title": "Kidnapped",
+      "markdownPath": "Connected/Chapters/Kidnapped.md",
+      "docxPath": "Connected/WordDocs/Kidnapped.docx",
+      "markdownSha": "62e387e3a545fdfd566e280902ebff30f07578e2"
+    },
+    {
+      "id": "897bb763248413b5",
+      "book": "Connected",
+      "number": 18,
+      "title": "Mimi",
+      "markdownPath": "Connected/Chapters/Mimi.md",
+      "docxPath": "Connected/WordDocs/Mimi.docx",
+      "markdownSha": "64592c7b503761b5c97dd0753924c837b5a4e0da"
+    },
+    {
+      "id": "59ac91fc3b6bfe96",
+      "book": "Connected",
+      "number": 19,
+      "title": "Consultant",
+      "markdownPath": "Connected/Chapters/Consultant.md",
+      "docxPath": "Connected/WordDocs/Consultant.docx",
+      "markdownSha": "c08362a0352c9771088433ae07e8da39a53d1e0d"
+    },
+    {
+      "id": "c332993a2968afe3",
+      "book": "Connected",
+      "number": 20,
+      "title": "Phones",
+      "markdownPath": "Connected/Chapters/Phones.md",
+      "docxPath": "Connected/WordDocs/Phones.docx",
+      "markdownSha": "32578bbabff4b8def32ce2445710e0a2ca1ee307"
+    },
+    {
+      "id": "b2cc33fb66c53e31",
+      "book": "Connected",
+      "number": 21,
+      "title": "Code",
+      "markdownPath": "Connected/Chapters/Code.md",
+      "docxPath": "Connected/WordDocs/Code.docx",
+      "markdownSha": "9465703496bdfde528dd6aa37610d5fde9e99e16"
+    },
+    {
+      "id": "1d3a4d36549028de",
+      "book": "Connected",
+      "number": 22,
+      "title": "Technique",
+      "markdownPath": "Connected/Chapters/Technique.md",
+      "docxPath": "Connected/WordDocs/Technique.docx",
+      "markdownSha": "7d659b541a4245b6d5742e893b2a5a1c868cc483"
+    },
+    {
+      "id": "148e125654f86af8",
+      "book": "Connected",
+      "number": 23,
+      "title": "Tree",
+      "markdownPath": "Connected/Chapters/Tree.md",
+      "docxPath": "Connected/WordDocs/Tree.docx",
+      "markdownSha": "a6c26130805c514f3bd5f0de64c9914a57826d59"
+    },
+    {
+      "id": "1e26344aa45b7516",
+      "book": "Connected",
+      "number": 24,
+      "title": "Arroz",
+      "markdownPath": "Connected/Chapters/Arroz.md",
+      "docxPath": "Connected/WordDocs/Arroz.docx",
+      "markdownSha": "4fcba5687072d9e1d4fb7dfb5645b7f9b9a550cb"
+    },
+    {
+      "id": "0a7fe67ca8aa46c4",
+      "book": "Connected",
+      "number": 25,
+      "title": "Phone Ring",
+      "markdownPath": "Connected/Chapters/Phone Ring.md",
+      "docxPath": "Connected/WordDocs/Phone Ring.docx",
+      "markdownSha": "3ffe60c74c6b38f0297d13cd82ef8c3332e78d5d"
+    },
+    {
+      "id": "624ccd8daa7aaf34",
+      "book": "Connected",
+      "number": 26,
+      "title": "Distracted",
+      "markdownPath": "Connected/Chapters/Distracted.md",
+      "docxPath": "Connected/WordDocs/Distracted.docx",
+      "markdownSha": "b2bc9d0b153ea1b8bc5bdb5f5a22b2d56e9e49b3"
+    },
+    {
+      "id": "3a7ea04789c6abdc",
+      "book": "Connected",
+      "number": 27,
+      "title": "Rules",
+      "markdownPath": "Connected/Chapters/Rules.md",
+      "docxPath": "Connected/WordDocs/Rules.docx",
+      "markdownSha": "4f2703854d3b606eefa07bb8df0c272a4cdf1e0d"
+    },
+    {
+      "id": "1f20a10cee923e74",
+      "book": "Connected",
+      "number": 28,
+      "title": "Black Cat",
+      "markdownPath": "Connected/Chapters/Black Cat.md",
+      "docxPath": "Connected/WordDocs/Black Cat.docx",
+      "markdownSha": "4540044a9cbb99e93fa8c41ee7da35177b985720"
+    },
+    {
+      "id": "f999338510c2cc47",
+      "book": "Connected",
+      "number": 29,
+      "title": "CoOp",
+      "markdownPath": "Connected/Chapters/CoOp.md",
+      "docxPath": "Connected/WordDocs/CoOp.docx",
+      "markdownSha": "4eae3aa96dd6618b167ec237cff4968278f6734d"
+    },
+    {
+      "id": "33bf009918531b17",
+      "book": "Connected",
+      "number": 30,
+      "title": "Offer",
+      "markdownPath": "Connected/Chapters/Offer.md",
+      "docxPath": "Connected/WordDocs/Offer.docx",
+      "markdownSha": "6ddff0baeae2d54b87d8dec9c2a0a9fae1c722d3"
+    },
+    {
+      "id": "770a32056b818d16",
+      "book": "Connected",
+      "number": 31,
+      "title": "Romance",
+      "markdownPath": "Connected/Chapters/Romance.md",
+      "docxPath": "Connected/WordDocs/Romance.docx",
+      "markdownSha": "42a36ed797162b8041dd81e4c84cd3def0dd6ee4"
+    },
+    {
+      "id": "fe79793559cfeca9",
+      "book": "Connected",
+      "number": 32,
+      "title": "Wavelengths",
+      "markdownPath": "Connected/Chapters/Wavelengths.md",
+      "docxPath": "Connected/WordDocs/Wavelengths.docx",
+      "markdownSha": "710e16dbcb233511eb8fbbcb65aec6fe11a45396"
+    },
+    {
+      "id": "b9db899e9c0b7e31",
+      "book": "Connected",
+      "number": 33,
+      "title": "Isekai",
+      "markdownPath": "Connected/Chapters/Isekai.md",
+      "docxPath": "Connected/WordDocs/Isekai.docx",
+      "markdownSha": "1f3e4ad74e109c67d54225dd98adb5dcf26fdd1d"
+    },
+    {
+      "id": "ebacdc75a443c498",
+      "book": "Connected",
+      "number": 34,
+      "title": "Never Sleeps",
+      "markdownPath": "Connected/Chapters/Never Sleeps.md",
+      "docxPath": "Connected/WordDocs/Never Sleeps.docx",
+      "markdownSha": "d3dffc9dbe9aa7e0336f7cb2ed08d7c9ec403b56"
+    },
+    {
+      "id": "dd85119b1091e97d",
+      "book": "Connected",
+      "number": 35,
+      "title": "Monuments",
+      "markdownPath": "Connected/Chapters/Monuments.md",
+      "docxPath": "Connected/WordDocs/Monuments.docx",
+      "markdownSha": "7c841663ecb2d4d55ef550b5357209b06a37f73a"
+    },
+    {
+      "id": "00585d78ae871f10",
+      "book": "Connected",
+      "number": 36,
+      "title": "Family",
+      "markdownPath": "Connected/Chapters/Family.md",
+      "docxPath": "Connected/WordDocs/Family.docx",
+      "markdownSha": "56f93fdd8ccac7615affaa54d247d4f3fa38682a"
+    },
+    {
+      "id": "837bb25f7de07c38",
+      "book": "Connected",
+      "number": 37,
+      "title": "Connected",
+      "markdownPath": "Connected/Chapters/Connected.md",
+      "docxPath": "Connected/WordDocs/Connected.docx",
+      "markdownSha": "6f1625142811f3bdeaf774c1ec80b9970fb76543"
+    },
+    {
+      "id": "6e7a8819c68836c0",
+      "book": "Connected",
+      "number": 38,
+      "title": "Love",
+      "markdownPath": "Connected/Chapters/Love.md",
+      "docxPath": "Connected/WordDocs/Love.docx",
+      "markdownSha": "8d5680c1bb066e05b141cb6a12faa01049142fdb"
+    },
+    {
+      "id": "cd0ec5c35a61fd29",
+      "book": "Connected",
+      "number": 39,
+      "title": "Intervention",
+      "markdownPath": "Connected/Chapters/Intervention.md",
+      "docxPath": "Connected/WordDocs/Intervention.docx",
+      "markdownSha": "ffd7414b5233c52509257bcd77d35e2efafbab28"
+    },
+    {
+      "id": "1253579827d42d2a",
+      "book": "Connected",
+      "number": 40,
+      "title": "Therapy",
+      "markdownPath": "Connected/Chapters/Therapy.md",
+      "docxPath": "Connected/WordDocs/Therapy.docx",
+      "markdownSha": "94cb951162160b9658fed7502232b147d7e09c74"
+    },
+    {
+      "id": "0cac235301cbf7f6",
+      "book": "Connected",
+      "number": 41,
+      "title": "Pride",
+      "markdownPath": "Connected/Chapters/Pride.md",
+      "docxPath": "Connected/WordDocs/Pride.docx",
+      "markdownSha": "93b61bce368e79b874238dfef7a6eb51e3afabd3"
+    },
+    {
+      "id": "b464636b4bcd54e5",
+      "book": "Connected",
+      "number": 42,
+      "title": "Uni",
+      "markdownPath": "Connected/Chapters/Uni.md",
+      "docxPath": "Connected/WordDocs/Uni.docx",
+      "markdownSha": "22f5014839272e86b3e410cedb88af5287f479fc"
+    },
+    {
+      "id": "6016fbf65d990282",
+      "book": "Connected",
+      "number": 43,
+      "title": "Epilogue",
+      "markdownPath": "Connected/Chapters/Epilogue.md",
+      "docxPath": "Connected/WordDocs/Epilogue.docx",
+      "markdownSha": "f76c3c0d81f8e51e157476008d0ac635fcbc3344"
+    }
+  ]
+}

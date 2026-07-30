@@ -1,68 +1,68 @@
+**Uni**
+
+Oh, wait, I lied.
+
+Apologies.
+
+Just one more tangent.
+
+Only a couple of hundred words.
+
+Give or take.
+
+Then Hawthorn and Asuna.
+
 **May**
 
 Arrows pelted May's vision with fury.
 
 Her eyes flickered across the screen, attempting to keep up with the barrage.
 
-Weeks ago, she had full-perfect-comboed this chart with ease.
+A few weeks ago, she had full-perfect-comboed this chart with ease. Now it was like her legs and brain were made of lead.
 
-Now it was like her legs and brain were made of lead.
-
-The blue stream of perfects shifted into a pulsing green as she fell behind.
-
-She growled, intentionally missing a step so she could latch back into the following pattern earlier, returning to the blue stream of perfects.
+The blue stream of perfects shifted into a pulsing green as the pattering of her feet fell behind rhythm with the song. May growled, intentionally missing a step so she could latch back into the following pattern earlier, returning to the satisfactory blue of perfection.
 
 This is what she always fucking did: eat the miss, then chase the perfects. It had to be misses or perfects. Why were greats, goods, and bads so unacceptable?
 
 What was wrong with her?
 
-Why was she like this?
-
-She was better than this; she knew it.
-
-Had she... had she really left Leo? Over a server restart?
-
 With a scream, she walked off the pads, avoiding the judgmentally averted gazes of the other waiting players.
 
-As if mocking her, the game gave a "Why don't you get up and dance, man?" from behind as the song failed out. May growled and shot it a furious glance over her shoulder.
+The game mocked her with a "Why don't you get up and dance, man?" from behind as the song failed out. May growled and shot it a furious glance over her shoulder.
 
 "May, Never-" Astrid's voice came from a nearby bench.
 
 May didn't let her finish the line. "I swear to god, Astrid, if you spout Leo's bullshit rules at me, I will leave."
 
-The rule was one of the first created in the community, before Leo even knew May.
+**Now, the rule in discussion was one of the first created in the community, before Leo even knew May.**
 
-*"Never play angry."*
+***"Never play angry."***
 
-It was an important rule, May knew that.
+**It was an important rule, considering it surrounded a game built on spikes of adrenaline, played in an environment prone to the world's most volatile and unpredictable entity: children.**
 
-It was a game built on spikes of adrenaline, played in an environment prone to the world's most volatile and unpredictable entity: children. Stories of dance games being removed due to a single outburst were not unheard of.
+**Stories of dance games being removed due to a single outburst were not unheard of.**
 
 May swung into the seat next to Astrid, placing her fingers on her temples and attempting to evoke the energy she had felt the last time she played.
 
 Her veins remained cold and sluggish.
 
-"May, you know that the rule isn't only about the game, right?"
+"May, you know that the rule isn't only about the game, right?" Astrid stated.
 
 *Come on! Get mad! That should have you mad!*
 
-"The first thing you do when you get home is to come to the arcade to fucking lecture me on relationships?"
+May attempted another growl, but it came out weak. "The first thing you do when you get home is to come to the arcade to fucking lecture me on relationships?"
 
 May refused to make eye contact but could feel Astrid's gaze.
 
-"Leo moved into Mom's by himself."
+Astrid simply said, "Leo moved into Mom's by himself."
 
-"That's his fucking fault; he was supposed to wait for you two. Why should I care, anyway?"
+"That's his fucking fault; he was supposed to wait for me."
 
-The words ripped apart May's heart.
+But she hadn't asked him, herself, to wait. And she *knew* he would never ask for help.
 
-She had wanted to be there for him.
+Fuck.
 
-And now, May spent every single day hoping Leo would walk into the arcade so she could throw her arms around him and give him the comfort he deserved.
-
-"You're telling me you're done with Leo? Say the words and I'll never mention him around you again."
-
-"Fuck off."
+May was wrong, and she knew it.
 
 Astrid paused. "Do you want solutions, or do you want to be mad?"
 
@@ -70,33 +70,47 @@ Astrid paused. "Do you want solutions, or do you want to be mad?"
 
 May wasn't entirely sure if she was lying.
 
-Was she lashing out at Astrid, too, now?
+"May, I-"
 
-May was getting worse; she knew it. The longer this dragged on, the longer he sat in her head, the more she started to hurt everyone around her.
+May clenched her fists, attempting to pulse her blood, to get it moving, to get *anything*.
 
-Even her family was involved now.
+"No! I hear this shit from my sisters all day. Everyone makes it sound like this is so fucking easy. What the *fuck* do any of you know that I don't? How can you pretend that you fucking-" May cut herself off.
 
-The last two weeks had been nothing but soaking in regret and spiraling thoughts. If May's sisters hadn't removed the handle from her door, she would have simply locked herself in and never left.
+She couldn't.
 
-May finally turned to meet Astrid's eyes; she expected to find what the douchenozzle called "the armor." May had definitely been aggressive enough to trigger it, but found... compassion.
+Her body deflated.
 
-She blinked in confusion, reorienting herself around the softness and understanding in Astrid's eyes.
+The arcade's noise enveloped her as she gave up on the confidence that just wasn't coming, grounding her in the comforting familiarity of the space.
 
-The arcade's noise enveloped her as she gave up on anger, grounding her in the comforting familiarity of the space.
+Her eyes turned over to one of the hand rhythm games, one of Leo's favorites. She could picture him standing there, eyes fixated and hands twisting nobs and slapping squares to the sound of energetic anime music.
 
-"Astrid, I'm sorry. I... I'm hurting him. I'm hurting myself. And now I'm hurting you. And I don't know how to stop it. I... I need to leave him. For both of us."
+"I miss him," May said.
+
+"He misses you."
+
+"Why can't he tell *me* that?"
+
+May knew the answer, though. She always needed time after their... fights... and if he had reached out, she would have likely found a reason to be mad at him.
+
+Fuck.
+
+Leo was *always* right.
+
+"Should I just stay away? I'm clearly the problem," May said.
 
 The assertion seemed to trigger something in Astrid; her eyes fell, and she contemplated the floor.
 
-"Don't do that... not... not for his sake. Do it only if it's for you." Her voice shifted to something full of loss, barely a whisper above the chaotic bluster of the arcade.
+"No... Don't do that... not... not for his sake. Do it only if it's for you." Her voice shifted to something full of loss, barely a whisper above the chaotic bluster of the arcade.
 
 May took a moment to read into that statement. There was only one person in the world who could elicit that level of emotion from Astrid.
 
-She shifted to face Astrid. "What the fuck did the crapsniffer do?"
+May gave one last attempt to rile up the heat in her veins. She *had* been right about this; she had *known* it. She had *never* been more sure of *anything* in her life.
+
+She shifted to face Astrid. "What the fuck did that objectifying crapsniffer do?"
 
 Astrid shook her head and turned back up to May's gaze.
 
-"He didn't. He..." Astrid paused. "... Almost did. He almost left. All of us. For me."
+"He didn't. May, Cale doesn't... He..." Astrid paused. "...He almost left. All of us. For me."
 
 Cale?
 
@@ -116,85 +130,59 @@ Her chest *should* have flooded with some kind of heat... but instead it just ac
 
 What the fuck was wrong with her?
 
-This was the longest she had gone without seeing Leo since they first met, by *far*. She was clearly more affected than she had expected. It was affecting her gameplay, her life, everything.
+"But the way he treated you..." May couldn't quite find the right question.
 
-Mad.
+"Leo told me about your dispute. In hindsight, you were right. We objectified each other," Astrid said.
 
-She was supposed to be mad at Cale.
+May blinked and ignored a distant "Hey, Mom!" from a community member.
 
-"That self-righteous fucking asshole." May stood up. "You're telling me he would have dumped your ass on the street and pretended it was to make you happy? Did he even ask you first?"
+Each other?
 
-She began to pace in front of Astrid, her mind racing through the irony of those words leaving her own mouth.
+"What the fuck does that mean? You... also just wanted to-"
 
-She was not like Cale, though, was she?
+"No! May, we spent ten years objectifying each other into a game. I just had no win condition, and he had no loss condition. It *was* unhealthy; we both consented on that. I suspect we did more damage to ourselves than to each other."
 
-"No. Well. Sort of." Astrid's eyes turned away.
+Wait.
 
-"He was what...? Going to make decisions for both of you without even consulting you first?"
+Leo had been right, too?
 
-"May, we weren't even dating." Astrid laughed weakly.
+It *had* been more complicated.
 
-May kept up the pressure, anything to keep her mind off of Leo.
-
-"The hell you fucking weren't. Just because you two didn't know how to bang didn't mean you weren't dating. For fuck's sake, Astrid, you were exclusive. If one of you had started dating someone else, how would the other have felt?"
-
-May stopped and looked back at Astrid, daring her to challenge the assertion. Astrid wouldn't admit it, Cale would never admit it, but May knew it, Zoey had known it, everyone had fucking known it.
-
-"You're deflecting this to Cale." Astrid deflected; she refused to meet May's eyes.
-
-May groaned.
-
-Astrid, of course, couldn't get mad at Cale. Not anymore.
-
-The man could kick a puppy, and Astrid would find a way to rationalize it. Leo did the same fucking thing with May.
-
-Fucking martyrs.
+But May had been right that something was wrong.
 
 "Mom!"
 
 May's head turned toward the voice; apparently, it was her turn again.
 
-She stared at the game, attempting to build the motivation. She craved the rush, the singing veins, the pulsing muscles... but...
+She stared at the game, urging her blood to pump. She craved the rush, the singing veins, the pulsing muscles... but...
 
-She waved them off, giving up on any game progress, and turned back to Astrid with a shake of the head.
+May waved them off, giving up on any game progress, and turned back to Astrid with a shake of the head.
 
 "How... How *is* the..." May caught herself. "How is Cale?"
 
-She *was* legitimately curious how their relationship was going.
+**Now, May had seen all sorts of emotions pass across Astrid's face over their three years together. All would bring to mind descriptors like "icy", "cold", "hollow". Even her resting face had a permafrost-like quality.**
 
-Now, May had seen all sorts of emotions pass across Astrid's face over their three years together. All would bring to mind descriptors like "icy", "cold", "hollow". Even her resting face had a permafrost-like quality.
+**May understood the looks Astrid gave, and she hated what lay beneath; it wasn't "sadness", it was something chilling... something she felt right now... Like the vacuum of space. It was often May's mission to melt that permafrost with her own heated presence.**
 
-May understood the looks Astrid gave, and she hated what lay beneath; it wasn't "sadness", it was something chilling... Like the vacuum of space. It was often May's mission to melt that permafrost with her own heated presence.
+**So when Astrid's face, from simply the thought of Cale,** ***melted*** **into a smile that could only be described as** ***glowing*** **and** ***warm*****, May was forced to blink in pure shock.**
 
-So when Astrid's face, from simply the thought of Cale, *melted* into a smile that could only be described as *glowing* and *warm*, May was forced to blink in pure shock.
-
-"He's charming, May. I... have not laughed more in my life."
+"He's charming, May. I... haven't laughed more in my life."
 
 "He's always been charming." May asserted.
 
-This was something May never understood. Leo and Astrid had always talked about Cale as if they fought to the death. But May only ever saw playful banter that both Cale and Astrid clearly enjoyed.
+She held back the word "manipulative".
 
-May had her problems with Cale—endless problems—but not the same ones Astrid ever seemed to paint.
+The dickweasel was definitely manipulative. But... things were definitely more complicated than May had initially thought.
 
-Astrid shook her head. "You joined the group... after. You weren't there. Cale could, and would, in four words, make me feel like a discarded piece of trash. Now he's capable of using those *exact* words to convince me that I'm divinity. Drawing the line between the two... was hard."
+Astrid shook her head. "You joined the group... after. He's different now. I don't think Leo or I realized because we saw it change so slowly."
 
-May returned to her seat next to Astrid, leaning her cheek against a fist.
+May groaned. "Fine. He's charming. How's that translate in bed?"
 
-"Why did you put up with that?"
-
-Why did Leo put up with May?
-
-Astrid laughed, as if the answer was obvious. "You know why, and you hate it."
-
-Fucking love.
-
-May moved on, "Fine. He's charming. How's that translate in bed?"
-
-"May!" Astrid's face turned crimson.
+"May!" Astrid snapped, though May could see the edge of a smile on her lips.
 
 "Don't you dare tell me you went on an entire trip and-"
 
-"No. We... did. A lot." Astrid's smile grew, eyes growing distant, "A *lot.*"
+"No. We... did. A lot." Astrid's smile grew, eyes growing distant. "A *lot.*"
 
 May launched out of the seat, giving a celebratory "*woo"* with arms raised. "Finally! Oh my fucking god, Astrid."
 
@@ -210,27 +198,25 @@ The two sat in silence for a moment, watching two players perform a routine that
 
 After about a minute had passed, Astrid finally broke their silence, "You should talk to Leo."
 
-"I can't. Astrid. I..."
+"Not... yet. I need to rethink some of the things I said to him," May said.
 
-May what? Was she going to really be the self-righteous fucknugget here?
+Her mind shifted to organizing the dozens of accusations she had thrown at Leo. Some of them were meaningful... She knew that.
 
-But she couldn't keep hurting Leo.
+"Try being blunt. It helped us a lot," Astrid suggested.
 
-He seemed stubborn about showing it, but she knew what she was doing to him.
+Blunt.
 
-May was the weak one. Her emotions dragged her through the dirt like the pitiful failure she was.
+Blunt, like straight up telling Leo that he was wrong? May *had* been blunt. Blunt like a bludgeon used to smack Leo across the face.
 
-Leo was the strong one, the rational one. The one capable of building and orchestrating entire communities, while May just... what? Hit arrows with her feet?
+"Maybe," May said.
 
-He deserved better than her.
-
-Astrid stood, placing a hand on May's shoulder. "I need to get back. We're trying... to find routine, with both of us back at work. One of us needs to make dinner so the other doesn't starve, and I think Cale is working late today."
+Astrid stood, placing a hand on May's shoulder. "I need to get back. We're trying to find a routine with both of us at work. One of us needs to make dinner so the other doesn't starve, and I think Cale is working late today."
 
 Her hand squeezed in support.
 
 May raised an eyebrow, but didn't follow up with the multitude of questions on her mind. She would catch up further later.
 
-"I'm happy you're happy, it's about time," May stated, giving Astrid the warmest smile she could muster, which felt as cold as liquid ice.
+"Happy you're happy, it's about time," May stated, giving Astrid the warmest smile she could muster, which felt as cold as liquid ice.
 
 Astrid returned the smile with genuine warmth and left.
 
@@ -240,13 +226,17 @@ She didn't want to go home.
 
 Not yet.
 
-Not when returning home meant cycling through questions and assertions about her career, speculations on how much time she spent playing games.
+Not when returning home meant cycling through questions and assertions about her being "stuck in a Starbucks", speculations on how much time she spent playing games.
 
 It seemed that everyone had their own opinions on what May needed to do.
 
 She felt trapped, homeless.
 
 And the single person in the entire world she could trust to let her be her... He was the one person she would hurt the most.
+
+The thought echoed in her head.
+
+*We were both right.*
 
 With an internal sigh, she stood up and walked back towards the game. The blaring bass enveloped her as she joined the line, but the sound and colors all felt muted.
 

@@ -1,6 +1,6 @@
 **Astrid**
 
-Astrid was enveloped in pools of brown. They sat behind raven curls that called to her. How rude would it be to skip convention, grab that hair, pull him down, and just go straight to the kiss?
+Astrid was enveloped in pools of brown that sat beneath raven curls that called to her. How rude would it be to skip convention, grab that hair, pull him down, and just go straight to the kiss?
 
 Lola had just asked for something, though. What had she asked for?
 
@@ -58,37 +58,9 @@ The cards were promptly thrown aside, falling to the ground, ignored.
 
 "Astrid, I've loved you for eleven years now. I'll love you for another seventy. When they inevitably unlock immortality, I will love you until the end of even that. A year ago, I was faced with one of the hardest decisions of my life, and it feels so silly in hindsight. It was never a hard decision. If you gave me a trillion lives, I would take you to that park in every single one of them. I love you. I love that I get to say those words. And I love being your idiot."
 
-**Leo**
-
-Leo watched as his two best friends exchanged rings.
-
-It felt impossibly long ago that the two were at each other's throats in their backyard over a children's game, surrounded by friends whom Leo barely even knew anymore.
-
-It had once bothered him, the coming and goings of friends and family. He had built communities and families for the sake of permanence, stability, and routine.
-
-But he was quickly finding out that that wasn't the point.
-
-The community, the relationships, they were a celebration of connection. Strong connection led to permanence, not the other way around.
-
-And right now, sitting next to the love of his life, surrounded by the most impossible collection of accidental friends and family, his connections felt strong.
-
-The series of events that led them to all of this felt impossible. Leo wasn't subject to the concept of religion or faith. Faced with this moment —Cale and Astrid kissing to cheers from the crowd, sealing their relationship into the very fabric of reality —he couldn't help but wonder if there had been some higher power guiding them here.
-
-The complexity of everything happening *precisely* as it needed to, otherwise, simply felt too absurd to even consider.
-
-Leo stood with May, joining the applause. He looked over, taking in the impossibility of that impeccable goddess choosing to be with him.
-
-He supposed it didn't matter how they got here. He was overthinking things.
-
-They were here.
-
-That's what mattered.
-
-He raised his hand to the back of May's neck, turned her head, and they melted into a kiss.
-
 **Cale**
 
-Cale and Astrid ducked out of the back door, desperate for an escape from the unrelenting photographer and guests. It was strange how little time they got alone on a day devoted to them.
+Some time later, Cale and Astrid ducked out of the back door of the busy reception, desperate for an escape from the unrelenting photographer and guests. It was strange how little time they got alone on a day devoted to them.
 
 The back of the reception room led out into the hedge garden; they had the privacy they so desperately craved.
 
@@ -110,21 +82,37 @@ The dipping evening sun cast their world in a private blanket of twilight.
 
 "You had a lot of cue cards. How long were you planning on talking?" Astrid finally broke the silence.
 
-"I spent weeks trying to come up with something. Couldn't do it."
+Cale averted his gaze and gave an airy laugh. "I spent weeks trying to come up with something. Couldn't do it."
 
 She leaned back, surprised, "Wait, what was written on the cards?"
 
 Cale grinned.
 
-He had hoped she would ask, "Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua."
+He had hoped she would ask. "Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua."
 
 "I should be disappointed that you have that memorized, but..." She smiled and began to lean back in for a kiss, but stopped herself, "Wait, you spoke all of your vows out of pocket?"
 
-Cale shrugged, "Yeah."
+Cale shrugged, his grin broadening, "Yeah. You know what they say, sometimes you got to-"
 
-"And you meant it?" Astrid asked.
+"Cale. I *swear to god*. We are at our *wedding.*"
 
-Now, Cale didn't lie.
+"Astrid, I can't turn it off. I think it's rather ableist of you to think I can." Cale bumped her shoulder with a snicker.
+
+"You are insufferable." Astrid groaned. "Fine. Say it."
+
+Cale beamed and winked. "Sometimes you got to rizz 'em with the 'tism."
+
+"I'm not letting you talk to Naina anymore."
+
+"You love it," Cale stated.
+
+Astrid didn't verbally confirm it, but the way her grip tightened on him said everything he wanted to hear.
+
+Several minutes passed while they basked in the soft glow of the garden lights.
+
+"But... the vows... You meant it?" Astrid asked.
+
+Cale didn't lie, or that's what he told himself.
 
 Not directly.
 
@@ -143,6 +131,10 @@ They were here, now.
 So for the first time that he could remember, Cale lied.
 
 "I meant *every* word. The multiverse is full to the brim of Cale's confessing at the top of that coaster."
+
+**Oh, Cale.**
+
+**You have** ***no*** **idea.**
 
 The kiss that followed erased any anxiety; it was soft and spoke of eternities.
 

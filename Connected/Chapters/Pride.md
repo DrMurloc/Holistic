@@ -1,580 +1,40 @@
-**Astrid**
-
-"Are we seriously going to do this?" Astrid asked.
-
-"Come on, Astrid. It's our legacy." Cale laughed.
-
-Astrid slugged him in the arm.
-
-Of course, Zoey brought the movie.
-
-Sho, Lara, and Zoey were collectively trying to figure out how to hook up to a projector screen, typically used for more traditional rehearsal-dinner shenanigans like baby photos.
-
-Astrid wasn't even sure how the girl got her hands on it before it was released; she suspected Cale had something to do with it.
-
-What was quickly becoming the new "core" group was scattered around the large cabin-themed room. Many other family members of Astrid and Cale mingled over drinks, made by Lola, who was currently teaching Astrid's mom how to make what appeared to be pretzel shots.
-
-Asuna and Hawthorn hung out near the bar, also chatting with Lola; Asuna was likely contemplating when it would be appropriate to begin chugging beers. Astrid had to admit, she never realized Asuna wore contacts, but the look without them was pretty stunning.
-
-Naina and Leo sat in the corner on their phones. Astrid had never seen the two exchange more than a few words, but they seemed to gravitate towards one another.
-
-Astrid supposed it wasn't surprising, based on the conversations she had with Naina. Astrid was still wrapping her mind around it.
-
-"No word from May?" Cale whispered; it appeared he also had Leo on his mind.
-
-"Pretty sure she's still in her cabin." Astrid shook her head.
-
-They had a plan.
-
-It wasn't a good plan by any means.
-
-But Cale and Astrid agreed: Those two needed to either give one another closure or to figure it out.
-
-Astrid glanced towards Zoey, noting that she was not with Naina for now. Astrid had her secret weapon, but its effectiveness would be based on how May received it.
-
-"Ready for tomorrow?" Cale's arm snaked its way around her shoulders, and she reflexively leaned in against him.
-
-"What, you mean we're not just here as an excuse to get our ragtag group of barely-functioning misfits together?" Astrid laughed.
-
-"As barely-functioning misfits number one and two, I think that's exactly why we're here." Cale tilted his head over and kissed her neck.
-
-Even after a year full of ups and downs, the touch of his lips on her sent shocks through her veins. She couldn't help but turn her own head back and plant a kiss on his lips.
-
-Several "awws" erupted through the room, and Astrid heard Zoey squealing. Astrid ignored them; they could have their amusement, she had Cale.
-
-The door opened, causing Astrid and Cale to part and turn. The only person missing would be May.
-
-And there she was.
-
-She wore the same purple dress and hair bun she had worn on Leo's birthday. To Astrid, that felt like a good sign.
-
-What was not a good sign, however, was the way her eyes immediately narrowed as they locked onto Leo from across the entire room. To say Leo looked like a deer caught in headlights would likely be insulting to the deer's capability to process the incoming truck.
-
-"You ready?" Astrid asked.
-
-"Yarp. Game on." Cale pat her thigh. The next move would be Astrid's once May made hers.
-
-The silent standoff lasted for roughly twenty seconds, and May predictably stormed right back out of the room.
-
-The majority of the guests' eyes lingered on where May had been, but turned to Astrid as she stood up.
-
-Time for the hidden blade.
-
-"Naina! Let's go." Astrid exclaimed across the room.
-
-She briefly caught several looks of confusion as the redhead scurried towards the door with her. Only Zoey smiled, as if she knew exactly what was going on.
-
-Cale would have a few minutes before he was needed.
-
-**May**
-
-"May!" Astrid's voice called out, but May ignored her; she was already across the parking lot.
-
-Her hand found her car door, but she hesitated.
-
-Her reflection stared back at her in the window. Her hair was in the bun Leo loved...
-
-She had done that on purpose.
-
-Her body screamed at her to get in, drive off, to take a stop sign out as she went.
-
-That was an overreaction, right?
-
-She logically knew that... but...
-
-"May." Astrid's face joined the reflection, and May heard a second set of footsteps.
-
-She turned, expecting to find Cale, Leo, or maybe even Zoey.
-
-To her surprise, it was Naina.
-
-"What? More people to make me feel like an asshole?" May spat, glaring at the redhead.
-
-The girl didn't even flinch, as if she had expected it.
-
-She just smiled.
-
-She knew something.
-
-It irritated May to no end; her veins pulsed with the urge to rip the car door off.
-
-"May, we're going to talk about Leo. Call it a wedding present, for me."
-
-May felt Astrid's hand on her shoulder before she saw it. Her entire body filled with the craving to shake it off, to scream. The skin on her knuckles stretched as fingers tightened on the door handle.
-
-It was Astrid's wedding weekend, though.
-
-The thought made her feel cornered, only heightening the urge to fight or flee.
-
-"You have one fucking minute." She growled, content that it didn't come out as a scream.
-
-Naina reached into her pocket and removed a packet of some sort. She snapped it and handed it to May, while simultaneously removing Astrid's hand from May's shoulder.
-
-May stared at it blankly as it turned cold in her hand.
-
-This girl had brought an *instant* *ice pack*? What the fuck? Who does that?
-
-Astrid also looked somewhat shocked at the move, her hand lingering in the air briefly before falling.
-
-May was ready for whatever psychological nonsense this girl was about to spout. She had heard all of the de-escalation techniques from Leo.
-
-Anger management nonsense.
-
-Like it was that fucking easy.
-
-May knew de-escalation; she was a fucking teacher. She didn't need some college brat to tell her how anger worked.
-
-Naina said clearly but calmly, "Astrid and I are going to talk over by her car. Hold that to your forehead. If it helps and *you* want to talk, we'll be there. Otherwise, you should go."
-
-Astrid did a double-take. "Naina, we-"
-
-But the redhead had already started walking off, and Astrid hesitantly followed, looking briefly back over her shoulder.
-
-It left May alone, hand on the car door, but staring into empty space.
-
-Not quite what she had expected.
-
-May looked at the ice pack, fighting the urge to throw it to the ground and stomp it to oblivion.
-
-This was, in fact, a Leo move.
-
-The thought of it pissed her off to no end; they were all fucking manipulators, just like Cale.
-
-She needed to...
-
-She just...
-
-A single thought cut through the noise: "What the fuck is wrong with me?"
-
-Naina knew something.
-
-May squeezed her eyes shut and placed the pack on her forehead.
-
-The chill feeling washed out from her forehead and into her body, causing an involuntary sigh of relief as muscles softened.
-
-Her hand loosened and slipped off the door handle.
-
-She still felt irritated, but the pulsing urge to fight anyone who approached her diminished to a mere hum, allowing several grains of thought to bubble to the whirling pool of rage.
-
-This... felt different than Leo's bullshit.
-
-What was different?
-
-Naina had offered her the option to re-engage almost immediately and placed the option to simply leave on the table.
-
-Leo would avoid re-engaging, simply accepting that May was right, even when May was clearly in the wrong. He was a martyr, through and through. Even the thought of that fact threatened the corners of her mind with irritation yet again.
-
-Naina *did* know something, though.
-
-Astrid would not have brought the girl had she thought that all there was to offer was an ice pack.
-
-So May found herself approaching the two; every step felt like a battle of its own. "Fine. What do you know?"
-
-Naina looked between Astrid and May, seeming hesitant to start.
-
-Astrid nodded in encouragement.
-
-Naina turned to May, thought for a moment, then said, "Leo is going to find ways to rationalize every single thing you ever say or do."
-
-May's eyes narrowed at Astrid, "What did you tell her?"
-
-Astrid simply shook her head.
-
-May turned back to the redhead and demanded, "Explain."
-
-Naina took a deep breath. "His brain, by default, works in logical black and white; things are either right or wrong, and he struggles to understand typical social expectations and interactions."
-
-May blinked.
-
-The boiling wrath in her veins didn't subside, but even it seemed to pause with a raised eyebrow at this unexpected assertion.
-
-"Naina, I've worked with kids who are autistic. Leo isn't... that."
-
-"It's very different in adults; the same root problems persist, but decades of cognitive iteration cause it to manifest differently. Even from adult to adult, depending on the pressures they grew up with, it varies widely."
-
-Naina began to bounce on her toes, her face lighting into a smile, "It's a really cool nature versus nurture... Wait... that's a tangent."
-
-The girl clearly was just attempting to draw connections that didn't exist.
-
-May shook her head; she inadvertently adopted her soft-spoken teacher voice to mask her frustration. "No, Naina. Leo understands people better than they do. He runs an eight-hundred-person community with. He's empathetic to a fault. Naina, I get that you-"
-
-Astrid interjected, "May, that was what I said. Let her talk."
-
-May shut her eyes briefly, but settled herself mentally in.
-
-Naina's eyes turned to the ground as she continued, "Of course he's empathetic. The assertion that we aren't is outdated. Cognitive empathy is still empathy. But for Leo..."
-
-She narrowed her eyes as if drilling into the ground to find the right words for a moment. May looked to Astrid, who simply nodded back to Naina.
-
-"Hyper-empathy and hyper-rationalization... It's... When we lose faith in our ability to be empathetic or to draw sound, logical conclusions... Typically, from repetitive punishments or pushback on those conclusions or our feelings... we... overcompensate in the only way we know how... uh... logic and pattern recognition."
-
-May looked to Astrid again, waiting for her to disagree. She didn't, simply nodding back to Naina yet again.
-
-May paced several circles, holding back the urge to call Naina out on her shit. How the fuck could this girl possibly be so full of herself to think she could understand Leo better than May?
-
-Naina continued as if reading May's mind, her eyes following May's feet, "I'm guessing Leo can understand the social dynamics of a group he's barely even interacted with, and he has a hard time saying 'no' to people. He likely understands everyone else's emotions better than his own. Refuses to get sad or mad, or at least to show it?"
-
-May opened her mouth to argue... but with what?
-
-She had to admit, Naina had just described Leo to a T. There was nothing to argue with, which was saying something, as May could, and would, argue about *anything*.
-
-She finally lowered the ice pack, realizing the fire in her blood had dimmed to an ember.
-
-One piece still hadn't clicked.
-
-"All of that is based on the assertion that he's been punished? What kind of punishment would Leo have had? His life has been great, outside of me."
-
-May came to a stop, looking between Naina and Astrid.
-
-Astrid averted her eyes, rubbing her arm. "Punishment like a sister and a best friend who shot down literally all attempts to simplify their... complex... relationship."
-
-Oh.
-
-Naina added, "I mean, it's not just that, of course. The internet is a battleground of broad, sweeping, black-and-white, contextless generalizations. We have an extra difficult time with that cycle of 'say a generalized thought and have it dashed to pieces by angry mobs'. Almost anything you say can be painted as wrong depending on the context, and the internet loses that context, so everyone is always wrong."
-
-May had most certainly been one of the people on the flaming side of those kinds of interactions.
-
-Oops.
-
-But what else would she do? Let someone be *wrong*? On the *internet*?
-
-That was a thought for a different time.
-
-"OK. Fine. So Leo can logically break down exactly why I'm a complete dickwad to him. Great."
-
-Naina shook her head, her gaze turning up to some spot on Astrid's car.
-
-"The other half is that we... uh... tend to find role models, or... templates. These are people we've identified as exhibiting behavior we should either... replicate or avoid. I will tell you personally, it is *difficult* to see the flaws in people we've picked out as having ideal traits. I... received... four months of dating advice from Cale."
-
-May couldn't hold back a cackle at the thought of Cale educating Naina on how to date his cousin.
-
-Astrid explained, "Cale had her spend three months keeping Zoey on the hook while building up to a grand trip to New York."
-
-May doubled over. "I am *so* sorry. But you listened to *that* crudmuffin?"
-
-Scarlet overtook Naina's face. "It was a great trip, and Zoey loved it, for what it's worth. She... it was good. No regrets. But yeah, she was not very happy for those four months in hindsight."
-
-"And Naina now knows not to listen to that idiot about relationships," Astrid stated.
-
-"Aren't you marrying him tomorrow?" Naina asked.
-
-"Yeah, I am." The most loving smile overtook Astrid's face.
-
-The smile grounded May, her laughter subsiding.
-
-It was a smile May still got for Leo, despite everything. She had seen it in the mirror just before leaving her cabin.
-
-She wanted to keep that smile.
-
-"Where was I?" Naina asked, looking around as if there were hints.
-
-"Templates," Astrid stated.
-
-"Oh, right. Um..."
-
-Naina replayed the conversation behind her eyes as she collected her thoughts. May drummed her fingertips against her arms, doing her best to not get enraged by how long this conversation was taking.
-
-A low-flying airplane caused the concrete beneath their feet to rumble slightly, though no one paid it any mind.
-
-Naina eventually continued, "Right, Leo's living a paradox. He glorifies your ability to make decisions on a whim, while being stuck in logical spirals that prevent him from doing the same. He likely views you as always being right, while chalking up any hypocrisy that is detected as a piece of the picture that he's simply missing."
-
-May scoffed, "What, like he thinks being spontaneous is ideal? That the ability to just... say shit that is 'almost right' without properly thinking it through is some sort of super power? Who the fuck wants that?"
-
-The question left Naina quiet.
-
-The girl's eyes traced May's face, as if she were figuring out whether May was joking.
-
-Astrid remained a quiet observer with crossed arms, her eyes bouncing as if following a tennis match.
-
-May growled, the silence was more than enough of an answer. "Fine. Fuck. OK, so Leo can't make decisions. Are you suggesting I stop caring about the things I care about just because he ignores them?"
-
-It took a moment for Naina's brain to reboot out of whatever thought she had.
-
-"Ignores them? I never said he ignores them."
-
-May shook her head, "He absolutely ignores them. It's impossible to get him to re-engage."
-
-Naina took a breath and launched into another round, "If he's like me, he carries every single unfinished thread of conflict in his head at *all* times, whether he realizes it or not. But why engage a thread of thought that you can't resolve? It's illogical. So it sits. And they add up, slowly chipping away at your passive, very limited, mental bandwidth until you're left with a single usable sinew of thought while all others fire rapidly on your failures. And that thread spirals into darkness, until a cute girl shows up and refuses to let you have any negative thoughts whatsoever without confronting it from a position of good faith."
-
-May's breath caught, the blood drained from her face, leaving her feeling unusually cold given how heated she had just been.
-
-Leo was going through *that?*
-
-That had to be an exaggeration, right? But the way Naina said it, as if from experience, this was not the first time she'd reflected on the topic.
-
-Many questions that May hadn't even realized she had about Naina and Zoey's relationships suddenly clicked into place.
-
-"I'm pretty confident I can't be Zoey," May said.
-
-Naina laughed, "No, no one can be Zoey. The world only needs one Zoey, and she's mine. Leo doesn't need Zoey. Leo needs May."
-
-Leo needs May.
-
-May found herself pacing in another circular pacing motion, eyes fixated on the distant cottages. Both Naina and Astrid averted their gazes, which strangely made May feel free to take her time thinking.
-
-He had called her his tank.
-
-He had admitted to May that she was precisely what Naina described. His guard rails.
-
-Part of her felt like she shouldn't need to guide him... but also... like Astrid had said, even in a "normal" relationship — whatever that was — direct communication was critical. May knew that.
-
-She didn't like the idea of Leo carrying all that baggage at all times. But it sounded like martyrdom was just a systemic default for him. She would need to find ways to either lessen or share the load more explicitly.
-
-With that thought, May concluded it had never been martyrdom that bothered her about either Leo or Cale.
-
-"How... How did you even figure this out?" She found herself asking, coming to a stop.
-
-Naina grinned, still averting her eyes. "I could give you a laundry list of minor observable symptoms. But ultimately, we're just good at finding one another. Pattern identification and latching onto shared habits and behaviors is kind of our thing."
-
-Good at identifying each other.
-
-Wait... bouts of depression and anger were also traits she knew from her Autistic students.
-
-May returned to her pacing, but with more frantic urgency. "Wait, am I..." She couldn't finish the sentence.
-
-Naina contemplated for a good moment.
-
-May felt the girl's eyes turn to her. It caused May to come to a stop and face her.
-
-Naina started slowly, cautiously. "I mean, it's a spectrum... Everyone's on it... somewhere, even if not breaking a threshold to qualify for a diagnosis. I... find it hard to find people who exhibit *no* symptoms. The line between diagnosable symptom and... 'quirky character trait' is thin..."
-
-Naina began to pace in her own circle with a smile across her face, speaking at a rapid rate that May could barely keep up with, "The problem is often that we're *too* good at masking. Understanding patterns, replicating them? We're masters! Some adopt traditional masks, masks designed to deflect or project. What some view as control problems is often simply a need for a predictable routine and aversion to *being* controlled."
-
-May and Astrid exchanged a look.
-
-Astrid shrugged and nodded.
-
-There was no way that Cale...
-
-Naina continued, seeming almost to speak to herself out loud rather than to May or Astrid, "Is it a rebellious teenager or simply a biological desire for novelty and freedom? Is it a quiet boy living in a society structured around strict rules, or someone over-prescribing their own perceived rules? An efficient businesswoman or a girl who learned to compartmentalize the two halves of her diagnosis? A stone-walled emotional mask, or simply someone who prefers to process in silence? Simply a good lawyer or someone who has a biologically driven attachment to 'justice' and a drive for categorical absolutes? And so many diagnoses overlap in symptoms. Is it ADHD? Is it bipolar? Is it Autism? Autism combined with ADHD has completely different symptoms and is *very* common. It's not unheard of for bipolar to be added to that mix, vastly complicating the diagnosis. It could be depression, OCD, tourettes, one of the anxieties, dyslexia, dyscalculia, PTSD, dyspraxia... Or does the person just need to take some magnesium and drink more water?"
-
-A soft wind picked up, carrying with it a handful of leaves from the woods.
-
-Naina stopped pacing and blinked as if suddenly aware of her surroundings. "Wait, what were we talking about?"
-
-Astrid and May exchanged yet another look.
-
-"You just implied Cale is neurodivergent," May said.
-
-"She just implied all of us are," Astrid noted, as if it were just a casual mid-tuesday observation.
-
-"Naina, that's statistically impossible. It's one in five, not... I'm not doing that math."
-
-Naina's smile only widened as if May had asked *just* the right question, "If it were a random full-population sample, you would be correct! It's a classic double empathy problem... we sort of... uh... organically segregate?... ourselves based on processing and empathy styles. It's really cool, actually, we... wait, that's a tangent."
-
-The humming in the back of May's brain continued to tell her to simply storm off. This was a waste of time. She wasn't here for a fucking psychology lesson.
-
-She pushed back.
-
-"Naina. Autism. Do you think I have it?"
-
-Naina blinked and laughed, realizing how far off track they were. "Oh. Right. Probably not? I can give you a link to an online test that gives you a rough number. It's not perfect by any means, but it can tell you if it's worth bringing up to a therapist."
-
-"Then what the hell is wrong with me?" May attempted, fruitlessly, to meet Naina's eyes.
-
-"What? Nothing. There's nothing wrong with Leo. There's nothing wrong with Zoey or me. There's nothing wrong with Sho, Lara, Asuna, Astrid... I honestly can't get a good read on Hawthorn. Those eyes have self-control beyond my comprehension. And that rugged face..."
-
-Naina's eyes gazed off into the distance.
-
-"Naina! Focus!" May said.
-
-"Tell her she's wrong." Astrid wasn't even attempting to hold back a smile.
-
-"Not my type." May shook her head.
-
-"He'd go well with Cale," Naina noted.
-
-Astrid snorted, "Cale thinks so, too."
-
-"Naina!" May snapped her fingers again.
-
-Naina snapped back to reality, "Where were we?"
-
-"You just said there was nothing wrong with everyone except for Cale." May groaned, crossing her arms.
-
-"Oh, there's definitely something wrong with Cale. But we already knew that." Naina stated.
-
-May couldn't help but laugh, but quickly interrupted it.
-
-Her eyes narrowed at the redhead. The girl had just used humor specifically built for May to lower her guard.
-
-"You all are way too good at that."
-
-"What, disarming with humor because we're poorly equipped to deal with up-front direct confrontation?"
-
-Put that way, it almost *didn't* sound like "manipulation".
-
-May shook her head, refusing to let the girl get distracted again.
-
-"What's wrong with me, Naina?"
-
-"Oh. Yeah! There's nothing wrong with you." Naina stated with a grin.
-
-What had felt like an hour of build-up just to lead to such an empty assertion threatened to push May over the edge.
-
-Her hands trembled for a moment, but she maintained control.
-
-"Naina, you brought *ice-packs* for me," May stated flatly.
-
-"Yeah. Zoey mentioned you sometimes got heated. It could be thyroid problems, or bipolar disorder, or it could just be the cocktail of hormone problems that all humans face. Did you know that ADHD spikes with menstrual cycles? To the point that some girls would or wouldn't get diagnosed based on the time of month they took the test? There was a day last month when Zoey and I left to get bubble tea and ended up at the hardware store."
-
-Astrid and May stared blankly at the girl. May was sure Astrid was also trying to piece together the connection between bubble tea and hardware.
-
-Naina picked up on their confusion, "I wanted to build a scale model of the Sears Tower. You know it's called the Willis Tower now? They-"
-
-The continued blank stares seemed to snap her out of the tangent, "Sorry. But yeah, I highly recommend you see someone in case it is bipolar; there are pretty effective treatments. And undiagnosed bipolar is quite intrusive."
-
-She couldn't fight it; the ember flared, and May's voice rose slightly beyond her control. "What, like I need fixing? I need pills to function normally? Is that what you're saying?"
-
-Naina's hands rose, and she stepped back, shaking her head. "No! It's not fixing, I told you, there's nothing wrong with you. And medication is only one path. Most of what helped me was increased self-awareness of my own processing style. If it's bipolar, well... hormonal imbalances are a different beast than neurological wiring..."
-
-She trailed off for a moment, self-correcting off a tangent, "But the therapy, medication, vitamin supplements, routines, breathing techniques, whatever you end up with, it can either be supplemental or corrective, the same way I need glasses. You won't know whether you want contacts, glasses, or laser eye surgery until you start researching and consulting a specialist. Or if you even need anything in the first place."
-
-May turned away, throwing her head back and squeezing her eyes shut. She took a few steps, simply buying herself a few more feet of space.
-
-The entire time.
-
-What was wrong with her?
-
-It was probably... hormones.
-
-It... made... sense?
-
-In hindsight, it almost felt obvious.
-
-May breathed deeply and opened her eyes. Another soft breeze accompanied the silence while she re-centered.
-
-The potential of an explanation made it easier, though. Demons were easier to slay once they were named.
-
-As May turned around, Naina reached into her hoodie pouch and pulled out several more ice packs, holding them out.
-
-May contemplated the offering.
-
-As she accepted them, she noted, "I feel like a bitch now."
-
-Naina shook her head. "No. Good faith, like I said. That's what Zoey and I needed to learn together. Not just good faith with others, but with yourself. No regrets. All I focus on is the next step, and I take those steps with pride."
-
-The girl actually met May's eyes with a smile.
-
-Those green eyes were full of a confidence and conviction that May had not been able to detect in the girl before. Zoey and her both apparently were good at hiding their power levels.
-
-The eyes quickly averted.
-
-Pride.
-
-They were The Pride, right? Were they still?
-
-May was proud, right? She was proud of Leo. She was proud of herself... most days.
-
-Leo was proud, proud of his family, proud of his friends, proud of May.
-
-The only thing missing was Leo's pride in himself.
-
-It sounded like he couldn't, by nature, give that to himself. How the hell could she possibly approach him with all of this, though? Cold-open into apologies? He'd probably deflect...
-
-"What the fuck do I do?" May sank to the ground, her head falling back against Astrid's car.
-
-Astrid chimed in, "You love him."
-
-"I've been doing that." May laughed, but it felt hollow. "It's sort of hard to stop, in case you didn't notice. But... you said he's spiraling, maybe without knowing it."
-
-May closed her eyes, attempting to find any threads of sanity in her racing thoughts.
-
-Naina added, "I mean, yeah... It's actually powerful that you two found that, all things considered."
-
-"All things considered? What, like we're not supposed to be compatible?"
-
-May felt the ember glow brighter, so snapped another ice packet and held it to her head. The chill it provided was quickly becoming addictive.
-
-"Technically not. Neurodivergents tend to bond over shared processing styles. It's the double empathy problem again, affective and cognitive processes typically are-"
-
-May cut her off, "Naina, pretend all I remember from psych classes were developmental cycles in kids aged five to ten."
-
-Naina paused and took a few steps in a tight circle. After one lap, she stopped, staring at May's feet. Her eyes went wide.
-
-"It's like that game you play!" Naina exclaimed. Her hands flailed in the air for a moment before they were shoved in the hoodie pouch.
-
-"I don't-" May started.
-
-"Like if you hit too early, you get a great. If you hit too late, you get a great. Affective and holistic processing is based on intuition and emotions; your processing will come faster, but at the cost of details. Pattern-based and cognitive processing is slower, at the expense of big-picture intuition. If you communicate with two different processing styles, you're going to eternally be stuck in one another's great window."
-
-The ice pack dropped from May's hand to her chest. She made no immediate move to recover it.
-
-She, herself, had always felt like they were just... out of sync.
-
-Naina furrowed her brow. "When you find yourself playing slow in a song, what do you do?"
-
-May's head thudded against Astrid's car softly as she realized where this was going.
-
-"Either intuitively speed up, or skip a note and start the next one earlier. But you said intuition isn't... intuitive... for Leo. Fuck."
-
-"Intuition isn't intuitive... I'm stealing that." Naina smiled, then continued, "Except Leo doesn't have faith in his ability to latch onto the next note, especially if he doesn't have a talk-track, an existing pattern to follow, ready for it. So he just... walks off."
-
-May thudded her head against the door again.
-
-"Hey!" Astrid exclaimed, though May ignored her.
-
-All the times Leo tried to defer... He was just trying to get her to slow down... All the times she pressured him... She just wanted him to speed up.
-
-A desperate dance of eating misses, skipping a beat, just for the sake of getting back into each other's perfect window.
-
-They were chaining greats because of a fucking timing window problem.
-
-Astrid moved to lean against the door next to May. "Cale and I unknowingly forced each other to play outside our comfort zone for our entire lives. Just out of raw stubbornness and the devotion to 'win'."
-
-Naina nodded eagerly. "And there are a lot of factors that cause you to speed up or slow down. The talk-tracks are a big one... Alcohol is a great normalizer of processing styles, as is text-based communication, where you have time to process and craft replies. And shared language... mechanisms to carry more meaning, more context, in fewer words."
-
-May finally picked up the ice pack, returning it to her head, her eyes bouncing between the two.
-
-Astrid added, "It wasn't until we alleviated the pressure on each other and let us actually think before we spoke that things started working. It was night and day."
-
-Naina bounced on her feet, the motion shaking May out of her head.
-
-The girl's arms vibrated slightly at her sides, a move that distinctly reminded May of Zoey.
-
-"Yes! Exactly. Low-pressure environments with similarly minded people. Communities, families, and, if you're lucky enough to stumble upon one, romantic relationships. The important part is that they let you be you... Like how, after this conversation, I'm going to sit in the corner and stay on my phone for the rest of the day, refusing to make eye contact with anyone, having fully exhausted my social battery. Hopefully, just like the LGBTQ community, society will, over time, get used to us being loud and proud about our existence. We're loud, we're proud, we like trains, get used to it!"
-
-The last statement got a snort from Astrid, but May was in her own head.
-
-Just... Let Leo be Leo?
-
-Was it that simple?
-
-Release the pressure?
-
-"It's not seamless, May. There are growing pains, as I told you, while you figure yourselves out. You two are close. We all know it." Astrid offered.
-
-May was very cognizant of the urge to dig in her heels and be stubborn.
-
-She wanted to tell them they were wrong.
-
-How could they possibly understand her and Leo more than she did?
-
-How dare they make assumptions?
-
-How dare Naina accuse them of being mentally different?
-
-How dare they make a fool out of her by calling her out in the parking lot?
-
-But now, she knew that wasn't her, regardless of *what* it was. The impulse felt like a separate entity, one that she could push back on.
-
-May exhuded a loud, "Fuck", feeding that entity just enough to be satiated.
-
-"Yarp," Astrid agreed as she looked over her shoulder towards the cottages they were staying in. "I need your take on some outfit choices for tomorrow, if we're all done here."
-
-May shook her head and rose to her feet, contemplating endless icebreakers with Leo once she returned.
-
-"Fine."
-
 **Leo**
 
-"Cale, she doesn't want anything to do with me," Leo stated.
+"This test is dumb," Leo said.
 
-"Cool. That's fine. You two are moving on, I understand," Cale responded.
+He tapped away on a screen, where a rather long test Cale had sent him seemed to just scroll endlessly with arbitrary questions.
 
-Leo sighed, lying back on the cottage bed. "Then why are we here? You just threw me in here, then got me to ramble about the website for ten minutes."
+"Completely agree. Like, who *doesn't* think how clothes feel is important?" Cale's voice came from across the cabin, where he leaned against the window frame, staring out across the complex.
 
-Cale looked out the window he was leaning next to. "It's nice seeing Zoey happy, isn't it?"
+"And food textures? There's some textures literally no one can stand. Like, no one likes the fat on steak." Leo tapped on a few answers.
+
+"Dude, that's a you thing. I fucking love steak fat," Cale said.
+
+"*How?* It's so..." Leo shivered and held back a gag at the thought.
+
+Cale didn't respond, but Leo could see the smile spread.
+
+Leo sighed.
+
+Cale was being an idiot.
+
+"What does it mean I have to 'act normal' to fit in?" Leo asked, "Everyone has to 'act normal' to fit in. That's the point of 'acting normal'." He tapped the "true now and when I was young" circle.
+
+"Man. So true," Cale said.
+
+Leo glanced over. Cale was doing a terrible job at holding back a smile.
+
+"This is gonna be, like, one of those tests that tells me what type of furry I am or something, isn't it?"
+
+"Something like that," Cale's body shook with a silent laugh.
+
+Leo rolled his eyes and let his head fall back as he typed through several more questions. Who *didn't* try to be helpful when other people told them about problems? It would be a dick move to *not* be helpful.
+
+Right?
+
+This was clearly some dumb prank.
+
+After a few moments, Cale added. "It's nice seeing Zoey happy, isn't it?"
 
 "Isn't she always happy?"
 
@@ -582,7 +42,13 @@ Cale paused.
 
 "Sure."
 
-Most of what he and Zoey's girlfriend did the few times they'd been together was to coexist in the corner of the room on their phones while everyone else was social. It was hard to explain, but it felt like bonding to Leo.
+Leo furrowed his brow. What *did* "He wears his heart on his sleeve" really mean? Was it talking about emotions?
+
+Leo tried to picture the idea of just... wearing emotions.
+
+He did that, he guessed? Like he would smile... But... why was the heart related to emotions? Wasn't the brain the source of them?
+
+He groaned.
 
 "I do really like Naina, though." Leo offered.
 
@@ -592,23 +58,87 @@ Most of what he and Zoey's girlfriend did the few times they'd been together was
 
 Had he come off as being interested in Naina? It definitely wasn't his intent. May was still the only girl he could think about that way.
 
-Cale laughed. "Leo, I'm fucking with you."
+Cale laughed. "Leo, I'm fucking with you. Take the test."
 
 Leo blinked several times, realizing how dumb he had just sounded.
 
 "Oh."
 
-After a quick pause, he circled back, realizing a thread was left open, "Wait, you never answered my question. Why are we here?"
+He lay back on the bed and finished the last few questions.
 
-Cale sighed. It felt slightly over-dramatized to Leo, but what did he know?
+The... result... came up on the...
 
-"Buying Astrid time."
+The result was...
 
-Leo cocked his head. "Buying Astrid time? For what?"
+What the *fuck*.
 
-As if in answer, the door opened, and a confused May stumbled in with a loud "What the fuck, Astrid?"
+"This is a prank. You're pranking me," Leo said.
 
-It appeared she had been pushed; Leo could tell by the way she had been pushed.
+"What was your score?" In a moment, Cale had stepped to the side of the bed, attempting to get a look at the screen.
+
+The number "132" stared back at Leo. The legend for the score range indicated "The mean score of autistic people; strong evidence for autism."
+
+Leo realized his lips had parted and closed them.
+
+"Yes! I'm still number two, baby! Fuck yeah! I got 138, *suck it*." Leo didn't look up as Cale took a victory lap around the cabin with hands raised in the air.
+
+"You... Wait. What the *fuck*. Cale..." Leo blinked multiple times as if the number would change. What did this mean? Leo wasn't... He *knew* autistic people, they weren't...
+
+"Naina said she generally gets 145. Astrid got only like... 105 or so? She needs to get on our level."
+
+"*Astrid?"* Leo asked, finally looking up from the phone.
+
+Leo barely registered as Cale slid a business card of some sort into his hand before stepping back to the window frame and returning to his lean.
+
+Leo knew he was bad at people, but... not *that bad, right?* Did he *look* Autistic? All those times he knew his smile wasn't good enough?
+
+Were his hands doing autistic things?
+
+Did he wear autistic clothes?
+
+He thought back to... well... everything he had *ever* said. Did he always sound... Autistic? What did-
+
+"Dude, spiraling. Can see it in your eyes. Exit whatever thought you have going on there," Cale said.
+
+Spiraling?
+
+Leo looked down at the card Cale had given him.
+
+It read "Autism Card: Can be used to get out of anything."
+
+This... this was too much.
+
+"It's OK, dude. Don't panic. It took me a few weeks to wrap my mind around it. Talk to Naina. She can reframe a *lot* of it for you, and she'll convince you to talk to a therapist. Trust me, dude, I fought *hard* against that, just skip to the part where you try it," Cale said.
+
+Therapy?
+
+*Cale* was in therapy? Leo and Astrid were the *only* people Cale had *ever* listened to. What...
+
+"You're in..." Leo attempted to remember how to speak. How did he normally speak? Did he talk autistically? What would that even mean?
+
+"Therapy. Yarp. Hindsight? Probably should have started in high school, you, of all people, *know* I needed it," Cale laughed.
+
+He fucking laughed.
+
+Like this was all a joke.
+
+"You're acting like this is just... this is... it's a mental disorder, Cale, it's-"
+
+"Talk to Naina. You two will nerd out about how people work, I'm sure. But... later," Cale tilted his head to get a view out the window, and waved at someone.
+
+Who did he wave at?
+
+Wait, Cale had technically deflected earlier.
+
+"Wait, you never answered my question. Why are we here?"
+
+Cale sighed. It felt slightly over-dramatized to Leo, but apparently, Leo didn't know how to read people. So what the fuck did he know?
+
+"Buying Astrid and Naina time."
+
+Leo cocked his head. "Buying Astrid and Naina time? For what?"
+
+As if in answer, the door opened, and May stepped in with averted eyes and crossed arms.
 
 Leo barely registered Cale slipping out the door, shutting it behind him.
 
@@ -618,13 +148,11 @@ Leo's mind engaged, branching into a million paths and attempting to organize th
 
 The continued silence was, in fact, by every definition of the word, awkward.
 
-Uncomfortable even.
-
 May stood by the door with crossed arms, eyes fixated on Leo.
 
-Leo remained sitting up in the bed but refused to look at her directly. He wasn't prepared for this; he could never be prepared for this.
+Leo remained sitting up in the bed but wouldn't... couldn't... look at her directly. He wasn't prepared for this; he could never be prepared for this.
 
-May's sharp voice finally cut the silence down at the ankles. "Mother fucking hell."
+May's sharp voice finally cut the silence down at the ankles. "Mother *fucker*."
 
 She turned to face out the window.
 
@@ -650,7 +178,7 @@ A breeze shook the trees outside, though the cabin barely as much as creeked. Ev
 
 "Fuck Brad." Leo paused. "Wait, did you?"
 
-May cycled a deep breath. "Once. Leo, I was trying to find 'normal'."
+May cycled a deep breath. "Once. Leo, I was trying to find 'normal'. Well... that's what I thought I was doing."
 
 It cut deep; Leo's shoulders somehow managed to sag even lower. Granted, neither May nor Leo had been one another's first, but the thought of that perfect skin being touched by anyone else...
 
@@ -664,306 +192,538 @@ They both laughed.
 
 Strangely, it did make Leo feel better.
 
-The laughter faded back into silence, but it felt... lighter. Not light, by any means, but... lighter.
+The laughter faded back into silence. The silence felt... lighter. Not light, by any means, but... lighter.
 
-Leo was procrastinating. He knew it.
+"I'm apparently Autistic?" Leo said. As if it helped anything.
 
-This confrontation had been building for almost four years, and every added layer simply made it more complex. Leo couldn't detangle *any* of it at this point; routes for logical rationalization had all but evaporated. All that was left were messy, unscripted exchanges, and that horrified him.
+He was expecting shock. Anything.
 
-He needed to rip the band-aid off, so he finally asked, "OK... What do you want?"
+"Yup. That's the theory. I might be bipolar," May said with a distinct lack of shock.
 
-"What do I want? I want my head to stop thrumming with the most absurd impulses to throw things, break things, to make *you* hurt." May growled, her eyes finally averting with that statement.
+Bipolar?
 
-"You... want to make me hurt?" Leo was confused; this was not part of their regular exchange.
+"Bipolar Two: Two Fast Two Furious," she said with a soft cackle. "Or something like that. I'm... still wrapping my mind around it."
 
-They had entered a fog of war of unprecedented conversation.
+Leo pulled his phone out, fired off a few searches, and began skimming.
 
-"No! Leo, for fuck sake, I love you!"
+A pattern that Leo had built in his mind around May suddenly had words. Hypomania... depression... euthymia... episodes... cycling...
 
-Hearing those three words struck *deep* in Leo, satiating a primal hunger. He had been starved for almost four months without them.
+It was literally called cycling.
 
-They, of course, opened a thread of tension that Leo was *hyper-aware* of. The words would need to be answered, for better or worse.
+They were *literally* in a fucking cycle.
 
-Leo rolled out of the bed, beginning to pace the side of the cabin. This was already getting *more* complex, not less.
+"It... *was* hormones..." Leo said quietly. His eyes continued to skim.
 
-May looked like she was waiting for something from him. Expecting something, hoping for something.
+"Fucking dumb, right? Naina said... fuck, I can't remember most of it. My head is fucking throbbing. She said... when I'm high we're going to be like... on different timing syncs."
 
-What had Lola said?
+"What, like chaining bads?"
 
-Leo needed to fight for her.
+"Yup."
 
-"I'm... supposed to... get mad, passionate or something. I don't... I don't know how." Leo admitted.
+Leo nodded. "It all fits... Apparently, Cale is autistic, too. He's... proud of it."
 
-"Leo, don't get mad. Get frustrated."
+"Naina said pride was important, kind of hard to be proud when it's apparently been fucking up our whole life," May said.
 
-What?
+Leo's head fell back against the bed.
 
-May must have read his mind, as usual. "You spend all your time thinking about how you feel. You need to eventually feel *something*. If you can't get mad at me, at Astrid, at Cale... get frustrated at the situations."
+He tapped through a number of links on Autism, absorbing words that fit countless observed patterns like a sponge. It deviated into ADHD, and the rabbit hole only deepened.
 
-"What would I get frustrated about? Where would I even begin?" Leo's pacing intensified, his eyes trailing the floor in front of him.
+"Fuck," was all he could say.
 
-"We abandoned you, Leo."
+"Fuck," May said.
 
-That wasn't what happened at all.
+He dropped the phone off the side of the bed and stared at the circling ceiling fan.
 
-Leo's mind pieced together the context of the situation from a year ago, all the nuance. He could... He could explain the whole thing, all the complexity, but the time it would take to speak it all wouldn't fit with what felt right right now.
+If Cale was... did that... make any of it right? The shit he and Astrid had gone through, the decisions Leo had made. Did May having bipolar make any of it right? The things she said? The things she did?
 
-"You didn't abandon me. You... the timing was unfortunate. If either Astrid or you had still been there, we would have pushed through like normal. And I'm a functional... well... I'm... I should be a functional adult."
+"If you can explain it, does it make it right?" Leo asked.
 
-He came to a stop, facing May, desperately trying to gauge her reaction.
+"What?"
 
-She didn't really give any tells, but he could tell she was still... angry? Frustrated? Was that directed at him?
+"What you said all those months ago. About Priya. Does an explanation provide an excuse?"
 
-The ice pack seemed to be doing *something*, because she wasn't letting the feeling escape into her words. "Let me rephrase. You were abandoned."
+"You remember that?" May asked.
 
-"I was... abandoned," Leo tried the words.
+"Why wouldn't I? I remember everything you say."
 
-They were right.
+"I say a *lot* of shit, Leo," May said. He heard the ice pack hit the ground and the sound of her feet as she paced along the window.
 
-They had not abandoned him, but he had been abandoned. There was an asymmetry between the reality of a situation and the intentions of those involved. You can have abuse without someone being an abuser.
+Leo didn't have a response. So the room fell into a moment of silence.
+
+May finally responded. "I don't want forgiveness for the shit I said. I treated you like shit."
+
+"May, you didn't-" Leo sat up.
+
+"I might have done my best, but I still hurt you. Don't take my accountability away from me, Leo," May snapped. She opened her mouth, but seemed to decide against saying anything more.
+
+Take her accountability away from her...
+
+But... that wasn't... he was trying to make her feel better. She didn't deserve to feel bad.
+
+She wasn't wrong, though... She *did* hurt him.
+
+"Leo, do you want me here?" May asked.
+
+Leo's mouth opened, but she interjected before words could form, "I'm *not* asking if you think *I* want to be here. I'm not asking if you think me being here will be good for *me*. I am asking, specifically, if *you* want me here."
+
+Leo's mouth closed.
+
+What... what *did* Leo want? That wasn't the point, was it? It would be... selfish. He had... put selfishness behind him.
+
+He tried to picture May leaving.
+
+The thought filled him with a pulsing anxiety.
+
+"I don't want you to leave," Leo said.
+
+"Good enough for me."
+
+He studied her.
+
+What was this?
+
+She didn't seem like she was at her... worst?... today, but she was definitely being quick with her words. The irritation was there... But she was able to catch it.
+
+He had a word for this now.
+
+Remission.
+
+Leo watched as May snapped a fresh ice pack and held it to her head. She turned to face out the window.
+
+"So if it's not an excuse... We're back to just... keep doing better?" Leo asked.
+
+"We fucking ran out of ideas on what 'doing better' meant a year ago. We just accepted the fucking cycle and worked around it. I fucking hate saying it, but Tanya was right. I need a shrink ... a... therapist. Medication. Fuck. Fuck fuck fuck."
+
+Did Leo need a therapist?
+
+What would they say? "Stop overthinking things? Now pay me $200?" Like it was that easy?
+
+Leo lay back and closed his eyes.
+
+The silence that stretched was long. Leo heard the shuffling of May's feet as she paced around the cabin.
+
+"Red said... Naina... suggested you took a lot of Astrid and Cale bullshit personally." May finally asked. The bed sank slightly at a corner with a small stretching noise as she sat down.
+
+The question hit somewhere in Leo's rib cage.
+
+He kept his eyes shut.
+
+For a moment, he could barely breathe, as his mind raced back through ten years of "keeping the peace", back to the beginning.
+
+"Yes," Leo said.
+
+"Still? They're getting married tomorrow. At this point-"
+
+"Yes," Leo interjected.
+
+"Fuck. Leo, you were just trying to help. It's not your fault those two were fucking morons who don't know how to talk," May said.
+
+Not his fault...
+
+Leo's mouth opened, but he couldn't find the words. Saying them would potentially have consequences... Would he make it worse? Cale and Astrid were getting married *tomorrow*. Could he really come out about this after all this time?
+
+It would-
+
+"Leo, you're doing the thing," May said.
 
 Fuck.
 
-Frustrating.
+"None of this is simple," Leo found himself saying.
 
-That was frustrating.
+May laughed, and the bed shook with her body. "No, it fucking isn't. Who the fuck told you it was?"
 
-Leo was *very* frustrated.
+"Cale."
 
-"Should I be frustrated that I was left at home in self-destruct mode while my parents kept travelling? Should I be frustrated that your family seems unable to decide whether I'm good for you or actively ruining your chances at happiness? Should I be frustrated that the one who is most hurt by *your own* self-destruction is *me*?"
+"Maybe that works for the wankpuffin. I don't know if you're capable of 'simple', Leo. I love that about you. You let things be complicated, you let *me* be complicated. " May said.
 
-May's head tilted ever so slightly, and the silent mediation of the ceiling fan returned as that last sentence echoed through the room.
+"Of course you're- wait, did you call Cale a 'wankpuffin'?" Leo opened his eyes and sat up again.
 
-Leo blinked, realizing his breathing had grown difficult.
+"Almost went with cockwomble," May said. She was staring out the window towards the parking lot.
 
-Something dripped off his chin and onto the floor. He looked down at the point of impact, finding a tear's splatter. The corners of his vision had blurred with water.
+The word "cockwomble" floated on the edge of Leo's brain, not quite registering.
 
-"Yes. You should be." May stated.
+He needed to say it out loud to someone.
 
-"You..." Leo started.
+The truth throbbed in the back of his brain, pulsing and pushing all other rational thought out.
 
-What... Leo was hurt. He knew it now. How long had he been hurting?
+The real truth.
 
-"You fucked someone from your yoga class in an effort to find 'normal'. May, you fucking *hate* yoga! You... you haven't been to an arcade in a month..."
+"Did Astrid ever talk to you about those first months of us three hanging out?" Leo asked. He swung his legs off the side of the bed and stood, beginning his own pacing.
 
-Leo found himself pacing again, tears continuing to stream with each layer of hurt unravelled.
+"The earliest she will talk about is year two. I swear that girl repressed year one," May said. Leo could feel her eyes trailing him.
 
-"How much of 'finding normal' has involved you taking a sledgehammer to the very things that both you and I know are the core motivators for keeping you moving? I'm watching the woman I love destroy herself over my apparent inability to function like a human being."
+"I... that first month... was awful. Astrid left *bruises* on Cale twice. She called him... I... I can't even say it. She once said Cale was adopted because his parents didn't love him. He didn't react, not visibly, but I knew it hurt," Leo said.
 
-He waited for May to interject; he could tell this was affecting her. He knew it.
+"What the fuck? Why did he put up with that?" May asked.
 
-She simply switched ice packs and continued to stare.
+Leo sighed.
 
-He was feeling his steam run out, though tears continued to drip off his chin. He wasn't good at anger.
+Past the point of no return.
 
-But he continued, "You're in a community full of intelligent people who would *die* to get even a moment with an athletic, ebony goddess like yourself. Sweaty nerds that would grovel at your feet. And you fuck someone from a yoga class."
+"Before I found him, Cale was a loner. The weird kid no one wanted to hang out with. For good reasons. He... Fuck." Leo's words caught in his throat.
+
+He stopped and looked over at May. She had an ice pack held up against her forehead again. She remained quiet.
+
+"I overheard him being talked to in the principal's office. He was caught going into the girls' locker room after school," Leo said.
+
+He studied May. Her mouth opened, but after several moments it closed again.
+
+So he continued, "He was in my programming class, and I started sitting next to him. I was curious, because he didn't... seem like a creep. It didn't fit any patterns I knew, but I've never really known how people worked. I wanted to learn. I never asked him about... that incident. But over the next few months, we just... clicked. Instant best friends," Leo said.
+
+"It was... just a misunderstanding, right? The locker room?" May asked.
+
+"I... actually don't know. But..."
+
+Leo returned to pacing. Saying this out loud... felt good. He could physically feel a pressure he had carried in his head for almost half his life lessening.
+
+But there was still more to go.
+
+His mouth had gone dry, so he wet it before continuing, "A few months in, he started coming over. His parents were going through a divorce... Some argument over Zoey's dad, but I didn't realize that until later. He met Astrid. It was... dumb. They had an argument over a fucking piñata. A *piñata*. It ended with Astrid calling him a misogynist pig and him calling her a... a... cunt. It made *no* sense to me, but they were *immediately* inseparable. *Minutes* after that first fight, they were sitting next to each other with barely two inches between them. You asked why Cale put up with it?"
+
+Leo stopped in front of the window again.
+
+"They *both* loved the attention."
+
+He was close. Then someone else would know. May could judge. She would go back to calling Cale a creep.
+
+She would understand just how much Leo fucked up.
+
+"How... how do you play into this? It just sounds like you helped. Those two were, *are*, fucking idiots together. We knew that," May said.
+
+Leo swallowed one last time. His heart pounded, ready for the end to come. "Cale slept over a lot. Like a *lot*. One night at the end of that month, I caught him... well..." Leo paused, then forced the words out. "He was stealing one of Astrid's shirts. Stuffing it in his backpack. The one she had worn that day. He had to have snuck into her room while she was sleeping to get it."
+
+The cabin went silent. The whirr of the ceiling fan even seemed to fade into nothing.
+
+"What the fuck," May finally said.
+
+"I fucking *snapped*."
+
+"You-"
+
+"*Ripped* into him. It's... the only time I have ever seen Cale cry."
+
+Another few moments of silence.
+
+"What the fuck," May repeated.
+
+"I told him if I ever saw him crossing Astrid's boundaries again, I would call the police. That I would make sure she never talked to him again."
+
+The memories flooded back. The absolute shame on Cale's face, how sharp and unrelenting Leo had been with his accusations. How Cale's eyes had blown wide when Leo grabbed his arm and stepped into his face and spat every vile word he could think of.
+
+The way Cale had collapsed, how his sobs had kept Leo awake for the rest of the night.
+
+"Did you... Leo, you *yelled* at someone? You *yelled* at *Cale*?" May asked. Her tone didn't sound judgmental... It sounded... confused?
+
+Leo the robot. Yelling at his closest friend. Of course May would be confused.
+
+Leo felt a tear trail down his cheek. He ignored it.
+
+"It was three in the morning. I couldn't yell. But I was furious... I used... words. The words I knew would hurt him, the words *I* knew would make my point. The same exact words I told Astrid to stop calling him. May... I called Cale a *retard*."
+
+The word practically diced Leo's lips to shreds as it escaped.
+
+"Holy fuck," May said.
+
+The following morning flashed into Leo's mind. The way Astrid had called Cale an idiot over how he pre-cut his pancakes.
+
+"You know us retards, we do everything wrong," Cale had said.
+
+And Astrid had laughed.
+
+And Cale had *grinned*.
+
+And Leo simply had watched in silence, afraid to cause any more damage.
+
+"Leo?" May said quietly.
+
+Leo blinked. A scattering of flowers blew by outside the window, and the cabin creeked slightly under the pressure of the wind.
+
+"It was my fault, May. It was like Cale... retreated into his head, behind that... behind those smiles... I saw it happen in real time. And I let him. It's not confidence. It's never been confidence. Astrid never seems to remember... when I first met Cale, when she first met him, there were no smiles."
+
+More tears fell. Leo's body shook with a sob, followed by a sniffle.
+
+"Leo, it's not your fault, you-"
+
+Leo shook his head sharply. His voice slowly rose, filling the cabin. "The information wars? The shame? The way he treats Astrid like a game? The way he treated *himself*? The way he insults himself, the way he couldn't simply ask Astrid out for a fucking coffee? Every time I see him fucking smile, smirk, grin, any of it, I fucking *know*. *I* made that happen. And then Astrid took his distance keeping as *her* fault, while he *kept* *fucking smiling*. The self-hatred that *she* developed..."
+
+Leo's fists clenched, and energy pulsed through the muscles in his arms as he flexed them. He felt the heat fill his head.
+
+Rage.
+
+"And I did *nothing*." Leo spat, "Because I *knew* that I was *shit* at people. I had practically *murdered* my friend. I fucking... I *fucking* watched and did nothing while the doppelganger that replaced him consumed itself on obsessive-"
+
+"Leo."
+
+Leo growled, focusing his face in the reflection. His cheeks were covered in shining streaks of tears. His eyes... they seethed with hatred.
+
+"What kind of fucking friend does that? What kind of-"
+
+"Leo!"
+
+Leo growled again, louder. He slammed his hand against the window frame, making the glass rattle. He screamed. "Does Autism excuse any of that? Does Autism excuse us for fucking ourselves up? Astrid was a bitch, Cale was a creep, and I was a fucking selfish dumbass. Tell me, does Autism excuse *any* of that? Does it-"
+
+"*Leo!"*
+
+Leo felt a hand grab his shoulder. He was spun around, and two strong arms embraced him. His head was pulled against May's shoulder.
+
+Leo failed at a deep breath.
+
+Then tried again.
+
+He gasped as tears dripped onto the cloth of May's blouse.
+
+Slowly, he raised his own hands, placing them on May's back. His body shook both of them with a series of sobs, but she held him firmly.
+
+"Head in the game, Leo," May said.
+
+Leo laughed. It came out wet, prompting a follow-up snivel. "I'm letting a creep marry my sister because I-"
+
+"Head. In. The. Fucking. Game. Leo," May repeated. Her arms tightened.
+
+Leo took a deep breath.
+
+Spiraling.
+
+Cale called it spiraling.
+
+That's what it was called.
+
+May continued, "What you did was call an *actual* creep out on his bullshit."
+
+"But I could have-"
+
+"You were a fucking teenager who didn't understand himself, who didn't understand anyone else. What the fuck else would you have done?" May said.
+
+"It doesn't excuse-"
+
+"Fuck no, it doesn't. Autism or not. Nothing will ever excuse the shit Cale and Astrid did to each other. Nothing will ever excuse the way Priya treated you. Nothing will ever excuse the words you called Cale. Nothing will ever excuse the way I treated you," May said.
+
+Leo shook his head slightly. "But I-"
+
+"Stop. The story I just heard was that you saw your best friend and sister on the verge of catastrophic failure, and you put your foot down in the firmest way you knew. And then you monitored, making sure neither of them pushed *too* far again."
+
+Leo took a few deep breaths.
+
+"I should have used softer words... I-"
+
+"Did you have those softer words? Did you know all of your de-escalation techniques back then?"
+
+"I... no."
+
+"What would you say if you saw another moderator getting upset at how two community members were handling personal business in private?"
+
+"If there was something predatory or illegal-"
+
+"Which you saw. And stopped. Ten years ago."
+
+Was... was that how it played out?
+
+Leo... had only gotten involved when he saw a direct risk?
+
+"Does Cale actually enjoy Astrid's insults?" May asked.
+
+Leo nodded, burying his face further into the crook of her neck. His arms tightened, absorbing her warmth to fill the void left by the anger.
+
+"He always did. Once I got Astrid to soften them. It was... always insults from *other* people that hurt him," Leo said.
+
+"Then no. Leo. You did the right thing. Every decision you made was right."
+
+Leo shook his head violently, "You saw what happened when they started dating! I set them up for failure! They-"
+
+"Are their own people. Cale left his training wheels, *you*, behind when he made his move. They had a bumpy start. They fixed it. Don't take *their* accountability away from them. It's not yours."
+
+May squeezed him.
+
+It was a hug that said, "I will die on this hill." And Leo knew she would.
+
+Fuck.
+
+They were their own people...
+
+Had Leo been... viewing them as problems rather than people?
+
+*He* had objectified them.
+
+Fuck.
+
+Leo blinked, causing a few remaining tears to drip onto May's shoulder. For a few moments, he simply breathed, feeling the pent-up pressure in his head and chest draining and leaving something more... empty.
+
+It was good empty.
+
+Leo hadn't felt empty in... well... a decade.
+
+"I just... wish I could say things that don't make people hate themselves," Leo said.
 
 May laughed.
 
-Laughed?
+"Leo, do you think you're empathetic?" May asked.
 
-"There's only one sweaty nerd for me." She simply said.
+Leo had answered that earlier.
 
-The statement slapped Leo across the face. He should be happy about it, though, right?
+On the test.
 
-He wasn't.
+The test that told him he was Autistic.
 
-Leo found *himself* laughing. "It sure didn't feel like that watching you storm off at Gamfest."
+"No," Leo said, truthfully.
 
-Fuck, was that too much? It was well above his standard levels of aggression.
+"Naina is overpowered. Fuck. That girl needs a nerf."
 
-She would get mad, defensive, right?
+Their hands slid off of each other as May took a step back. A moment later, she was standing with an ice pack back on her head, looking out the window. Leo turned to stand next to her and leaned his head onto her shoulder.
 
-"No, it wouldn't have. I was wrong, Leo."
+"I was a fucking wreck when you found me, Leo. The cycles we have? A month of on and off highs, then a few months of deep lows?"
 
-Of course, she-
+Leo nodded.
 
-Wait, what?
+"Picture that, but a different boy in each cycle. Sometimes two or three in the same series of highs. I was *engaged* for a month when I was twenty. All my idea."
 
-Leo stopped his pacing, facing away. "No. You were-"
+"You were... huh," Leo filed the note away as a data point. Not a shocking one.
 
-"Leo, no. We have an entire fucking rule for it. 'Never play angry.' That's not a new rule. At any point, I could have had them delay the match a few minutes. And it was a fucking convention tournament, so who the fuck cared anyway. Neko was clearly sleep-deprived; it wasn't even a true match. I. Was. Wrong."
+She had proposed the concept to him more than once. And kids. "We shouldn't make big decisions when you are like this" was the cause of at least 2 times when May stormed out.
 
-Leo's entire perspective shifted, and the cabin felt like it had flipped into another dimension entirely.
+Leo felt a bit bad about the guys. They... probably had no clue what they did wrong.
 
-His mind raced to fill in the blanks, to argue with himself, explaining exactly why she would never have made any other decision than the ones she had.
+"I fucking *hated* myself. Like... more than now. My... what are the... not high-or-lows called?"
 
-But it couldn't compute any of that logic against the confidence with which she admitted fault.
+Leo pictured the pattern and mapped it to one of the words he had seen, "Euthymia."
 
-Leo trusted her more than he trusted himself.
+"I'm not fucking remembering that. Mids. During my mids I try to act like my highs. They're... addicting. You feel... Fuck this sounds dumb. You feel like a *god*. I was pretty sure I sprouted angel wings when playing Pump once."
 
-He turned, expecting to find shame, avoidance, or sadness on her face that would betray her assertion.
+Leo snorted and squeezed her. "You are basically a god at the game."
 
-"I. Was. Wrong." She repeated, with a flat face that drilled the assertion deep into Leo's mind.
+May laughed and squeezed back. "Fucking nerd. But no... It meant I would say things that I knew weren't right, but said them *like* I knew I was right. It... I started not trusting myself. I said so many fucked up things that caused guys to leave me, or for me to storm off. And it was like... a single thing they said could just... change how I viewed them. I hated it."
 
-She left no room for misinterpretation.
+Leo tried to picture it. It sort of fit the pattern?
 
-Three simple words, delivered with conviction.
+"I just assumed I was wrong, or that you needed a few days to cool off. You... haven't done that as much as you used to."
 
-Leo fell back onto the bed, arms sprawled, staring at the ceiling.
+"That's my point," May said. "You just... let me be me. You accepted the cycle like it was just... part of the May package."
 
-He wasn't quite sure if it was ten seconds or five minutes that he lay there, eyes following the ceiling fan's circular motion.
+"Is that... empathy? It... wasn't intuitive. I had to... think a lot, and understand."
 
-He couldn't...
+"Leo. My parents and sisters spent my entire life expecting me to find some fucking career to leave a footprint on the world, while I just wanted to work a job that paid enough to buy whatever dumb spontaneous video game purchase I made each week. Every boy who left me basically said I was undatable. How fucking empathetic are they?"
 
-He...
+Leo furrowed his brow.
 
-It was like the foundations of logic had collapsed.
+"Your family-"
 
-Leo's brain couldn't even find the starting points of tangled threads to begin unravelling.
+"They support. But they don't try to understand, not to the depth you do."
 
-"Just hit the arrows when they get to the top." The words slipped out.
+"You're saying people... don't... take the time to understand the nuance of other people?"
 
-May paused, processing his statement, before giving a resounding, "What?"
+"Fuck no. Most people just say shit like 'I'm sorry' or match your emotions."
 
-"It's... Simple. Cale said to keep things simple. But nothing is fucking simple. Every time I think I've found an answer, it just unveils more complexity. I... I don't know, May. But it's like the game... You can say 'just hit the arrows when they get to the top', but that ignores all the complexity that goes into it."
+"That's not empathy. That's... sympathy. Right?"
 
-May laughed. "Leo, when we play, do we contemplate every single toe and heel position we make?"
+Leo looked back over his shoulder at his phone, which remained on the floor by the bed. He desperately wanted to look up the definitions.
+
+"I don't know. I think you're right. I don't think they care about the distinction. I definitely never did until I met you."
+
+"That's fucked up. You're you. You're May. How can they support May being May if they don't understand May?"
+
+May went quiet.
+
+For a long while, they stood there, watching freshly bloomed flowers blow across the lightly forested complex and distant parking lot.
+
+"Fuck, Leo. When you say shit like that, I half expect you to put on a fucking straw hat and go off searching for the One Piece," May finally said.
+
+Leo shook his head, but he felt the smile at the corners of his mouth.
+
+She continued, "But no... a lot of that self-hatred and uncertainty just... went away when you... You just accepted me. You would work *with* my dumb assertions to try to find value in them on my mids. It's only my highs you struggled with... which we now know why. No one else did that. I was a broken piece of shit, and you treated me like I was worth gold."
+
+"Because you were. To me. To Cale, to Astrid. I think all of us were just used to having people have... drawbacks? And you kept... like... all of us from spiraling. I told you. You're our tank."
+
+"You all think way too fucking much," May cackled.
+
+Leo pulled the "autism card" Cale gave him out of his pocket and handed it to May before separating himself and plopping back down onto the bed.
+
+"What..." May doubled over with laughter. The sound caused Leo's own lips to widen and curl into a smile. "Who fucking gave you this? Cale? That fucking... that... fuck. I got nothing. He's a fucking dumbass."
+
+May walked over and fell next to him, slipping the card back into his pocket. Their hands overlapped in the center of the bed, lacing fingers together.
+
+"I still don't think it's an actual excuse. We did some fucked up stuff," Leo said.
+
+"No. Could argue we were playing with custom-mapped controllers without knowing it, which would earn retries in some tournament scenes," May said.
+
+Leo felt it was less like he was playing with a custom-mapped controller and more like he'd been playing on hardcore insta-death with forty mapped buttons, while everyone else competed on casual mode with a single button rotation.
+
+But... Close enough.
+
+"What do we do with that information, though?" Leo asked.
+
+May's arm brushed against him in a shrug.
+
+"Do we really just..." Leo continued, "...keep doing better and hope we have enough information now?"
+
+"What else would we do?"
+
+What else would they do...
+
+She said it like it was so simple.
+
+She always made everything sound so simple.
+
+"Just hit the arrows when they get to the top..." Leo muttered.
+
+"What?"
+
+Leo looked over, finding May staring with a raised eyebrow.
+
+"It's... like... what Cale said when he said to keep things simple. Like... happiness... life... was *that* easy. Like the game was that easy. You just... hit the arrows when they get to the top, right? It ignores the complexities of foot position, arm power, stamina conservation, everything."
+
+Leo laughed.
+
+May didn't.
+
+"Leo, when we're playing, when you're hitting a dozen notes a second, do you think about every single pattern you're reading? Do you think about your exact heel and toe position?"
 
 Leo paused, mentally playing back what it felt like to be mid-game. There were definitely specific pieces of tech that required active attention.
 
 "Not all the time, but-"
 
-"Sometimes, yes, for unique patterns. But the majority of it is... just hitting the arrows when they get to the top. Our muscle memory and intuition handle most of it. It would be absurd to think we contemplate every single step before taking it. Our mind would give out before our legs did."
+"Sometimes, sure, for unique patterns. But most of it is... just hitting the arrows when they get to the top. Muscle memory handles most of it. It would be absurd to think we contemplate every single step before taking it. Our brain would give out before our legs did."
 
 That... was true.
 
 Had he been overcomplicating simplification?
 
-Simplification wasn't about finding simplicity in complexity?
+Simplification wasn't about finding simplicity in complexity...
 
 It was... just... what?
 
 Trust that he had the muscle memory and experience to reactively treat complex things as simple?
 
-"Fuck." The word escaped, feeling like a resignation.
+Leo's head *pounded*. It was a mental fog he had only been faintly aware of which suddenly felt overbearing.
 
-People, society, the universe itself, had always and would always be more complex than he could ever fully comprehend.
+His brain would most certainly give out before his legs did...
 
-Then where could he start?
+"Fuck." The word escaped, feeling like a resignation to reality.
 
-He needed one central fact, anything to stabilize himself.
+"Fuck," May agreed.
 
-His eyes focused, and he turned his head, meeting May's eyes across the room.
+"My head hurts," Leo said.
 
-It was obvious.
+"That's a fucking mood," May agreed.
 
-It was something that had not changed in their entire three, almost four, years together, despite how irrational it was, despite how little progress he had made on understanding the concept.
+"We need therapy," Leo said.
 
-It was something that came more reflexively than any video game.
+"Damn straight," May agreed.
 
-Something that would close a *very* important thread of thought that May had opened shortly after entering the cabin.
+"I love you," Leo said.
 
-Just hit the arrows when they get to the top.
+"I love you," May agreed.
 
-"I love you." He finally stated.
+They paused. Their eyes met as they turned their heads towards each other. This would... normally be the points where they would... well... fuck out the rest of the emotions.
 
-The words blossomed through the cabin, restoring it from its multi-dimensional shift and filling it with warmth.
+"We should go back to slow," they both said simultaneously.
 
-May stood up.
+May cackled. Leo laughed. Their hands squeezed.
 
-Moments later, she was lying next to him in his arms.
+"We'll figure it out," Leo said, looking back up at the ceiling.
 
-It felt like a broken piece of the world re-formed.
+"Fuck yeah, we will. We're The Pride. If Astrid and Cale can figure their shit out, we can too," May responded.
 
-A comforting familiarity that washed away all of the frustration.
+"The Pride," Leo agreed.
 
-Leo basked in the warmth for a few moments before sighing and following up, "We should probably talk through all those other arguments we've put off. The kids one is still going to be hard for me."
+They remained in the bed for some time, simply basking in what felt like the first true moment of synchronization they had ever experienced.
 
-May laughed and shook her head. "Fuck, Leo, we have a lot to talk about. I'm going to grab Naina later to help catch you up. But I think we need to revisit those conversations with the context that I'm prone to impulsive and irrational moments of spontaneity. We're in our mid-twenties, we have time."
-
-Now, Leo knew he had been stressed.
-
-He had known that he had a tendency to carry every unfinished conversation on his back like a crucifix. On some level, he knew it contributed to the passive allocation of mental bandwidth. However, he never quite could get a read on how much.
-
-May had, in one statement, grabbed every single piece of burden Leo had been bearing and thrown them off a cliff.
-
-They had a clean slate.
-
-Endless voices that Leo hadn't even realized were clouding his mind and dampening his ability to logically rationalize suddenly went silent.
-
-He had been screaming at himself for years, likely longer than May existed in his life, and he hadn't even realized it.
-
-He had been so intent on not getting mad at people...
-
-When in reality, he had been furious at himself.
-
-But here, right now, the only thing that existed was wrapped up in his arms, smiling at him like he was the only person in the universe that mattered.
-
-"I wonder if Cale and Astrid realized they threw us in *their* room," Leo said.
-
-The smile he gave May felt *earned* through the feeling of dried tears.
-
-May's own smile evolved into the playful grin Leo loved so much, and she cackled, a sound that single-handedly evaporated any remaining tension in the room like a plasma grenade.
-
-"Someone needs to test the marital bed. Who better than the best man and the bride of honor?"
-
-With that, they kissed, and hands began to re-explore bodies with a zeal backed by four *long* months of craving.
-
-**Meredith**
-
-"Are you kidding me? Why is she so short? And what is that pout! I don't pout!" Astrid exclaimed as the movie started.
-
-"You're really going to talk through this, aren't you. I see we're getting the added commentary with this viewing," Cale noted.
-
-"Cale, I have *earned* the right!"
-
-"Also, you used to pout."
-
-"That's besides the point."
-
-"Is it, though?"
-
-The exchange earned chuckles through the scattered guests as the on-screen couple mirrored the bickering with arguments of hot dogs and tacos.
-
-Merdedith, however, was basking in her treasure. The soft golden glow of a family collected washed over her from the room.
-
-Lara, Sho, Naina, and Zoey sat off to one side. Naina was translating for Sho to the best she could. Zoey, of course, was mirroring the various over-exaggerated postures and gestures of the characters, adding her own dialogue to "spice things up".
-
-Hawthorn was supporting an already drunk Asuna, as the two continued to exchange stories of Lara with Diego, who had Lola's wig off and to the side.
-
-Astrid exclaimed, "I *never* said 'It's not like I like you or anything'. Who wrote this script?"
-
-"Technically, you did," Cale noted.
-
-"That was *our* moment. And it wasn't like this... this... *anime trope*..." Astrid huffed.
-
-"Teeeeechnically..." Cale laughed.
-
-"You're an idiot." Astrid punched him in the shoulder, at the same exact time that the on-screen Astrid did. It earned a new round of laughter from the room.
-
-"Astrid! Are you armored up over your own movie?" Cale wrapped an arm over Astrid's shoulders.
-
-"It's not like I like it, or anything, baka." Meredith could barely make out a brief pout before her daughter laughed, then kissed her fiancé.
-
-"Like mother, like daughter, right?" Meredith heard Paul whisper into her ear. She scoffed.
-
-"You were the defensive one, baka." Meredith whispered back. She didn't know what "baka" meant, but the youthful reference made both of them laugh.
-
-She had always been sure of Astrid and Cale working out. "If" had never been the question, only "when". Sometimes people have their own journeys to go through before they can work together.
-
-It was the same way she was confident that Leo and May would work out. They-
-
-The door to the room opened, and all heads turned.
-
-There stood, as if presenting themselves, the missing pieces of Meredith's treasure. Hands held, with warm smiles that left the room feeling complete.
-
-The only piece that showed of the pride that flowed through Meredith's veins was a slight twitch upwards at the corner of her mouth.
-
-"Yeeeeeeeeeeeeeeeeeeeeees!" A scream erupted from the energetic Zoey, who dashed across the room and flung her arms around May.
-
-"Why is MotherFucker here?" Sho asked in slightly forced English. All heads turned to him with an air of shock at the only English words anyone had heard escape his lips.
-
-"That's her game tag! To clarify!" Leo announced to the room, but to Meredith, it didn't clarify much. May was already doubled over in her deep cackle.
-
-May and Leo eventually took their seats next to Cale and Astrid, and the four exchanged words that Meredith could not hear.
-
-The smiles on their faces were different; something had clearly changed, for the better.
-
-Meredith exhaled a deep breath that had been held for twenty-six years. Her children were taken care of. Her adopted children, including Sho, Lara, Asuna, and Hawthorn, were already committed to Christmas. Leo had started something called a "Discord" for them all.
-
-She and Paul had helped start this family from the ground up, and she was *proud* of where they had ended up.
-
-Individually, each of them was fragile, many already cracked and scarred, but collectively they were unbreakable.
-
-That strength, that connection, was a treasure she wouldn't trade for the world.
+Enjoying the Perfects.
