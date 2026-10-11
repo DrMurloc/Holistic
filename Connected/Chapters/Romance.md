@@ -1,8 +1,8 @@
+## Romance (September)
+
 **Naina**
 
 Naina's brain was spread across the room.
-
-But it was worth it.
 
 A fourth of her brain was on the TV. Zoey had put on "The Slow Burn: 6".
 
@@ -20,25 +20,43 @@ A fourth of her brain was on Zoey, who spun rapidly in her desk chair, tapping a
 
 Naina was not a good multitasker.
 
-Saying she had threads was likely misleading; it was more like one thread rapidly processed and context-switched while the others did their best to maintain working memory in the background.
+Saying she had threads was likely misleading; that owl could only focus on one thing at a time. Its head would swivel to one monitor, inch the progress forward, then swivel to another.
+
+Would the college let her get a pet owl?
+
+She’d have to feed it.
+
+And clean up after it.
+
+She-
+
+Wait.
+
+Naina set her jaw and re-read the differential equation in front of her.
 
 Overwhelmed was an underwhelming word to describe Naina's current state.
 
 But it was worth it.
 
-At the center of all the tangled, yet controlled, anxiety sat a single image of Zoey and Naina kissing in a dimly lit bar, serenaded by a love song.
+At the center of all the tangled, yet controlled anxiety nested a single image of Zoey and Naina kissing in a dimly lit bar, serenaded by a love song.
 
-The critical part was less the kiss and more the fact that Zoey's joy would be her own, for once.
+And Zoey would be happy.
+
+For herself.
+
+And she would love herself. Just like she helped Naina love *her*self.
 
 That single image kept Naina going.
 
-There were still almost three months before the trip. Naina had to remind herself that it would pass quickly with classes, but it felt like *forever*. The intrusive thoughts regularly *screamed* at Naina to just kiss the bundle of joy right there on the spot. She held them back.
+Naina glanced at the date on her phone.
 
-Because Zoey was worth it.
+It felt so foreign that a few months from now, a November-Naina would be on a train with Zoey. The intrusive thoughts regularly *screamed* at Naina to just kiss the bundle of joy right there on the spot. She held them back.
 
-Zoey emitted a sob, redirecting all one-hundred-seventy-five percent of Naina's mental threads onto her. Naina looked up and, in fact, found tears rolling down the girl's cheeks.
+Because Zoey was worth the wait.
 
-This was somewhat unprecedented; the image almost didn't compute.
+Zoey emitted a sob.
+
+Naina’s mental owl to swiveled its head and redirected all one-hundred-seventy-five percent of Naina's mental threads onto her. Naina looked up and found tears rolling down Zoey’s cheeks.
 
 "Zoey? Are you OK?" Naina rolled out of bed and walked over to her friend.
 
@@ -54,17 +72,19 @@ Zoey did nothing to hide her phone from Naina and Naina read:
 
 *"Idiot!-"*
 
-Naina's brain did a soft reboot, attempting to come to terms with what she was looking at.
+Piece by piece, what she was looking at formed into a clear picture. It had been inevitable, really, even if Naina hadn’t seen it coming. Like a Doctor Who crossover fic in any fandom.
 
-Several threads came back online, and she had to hold back a laugh. "Are you writing a self-insert café scene with your family?"
+She asked anyways. "Are you writing a self-insert café scene with your family?"
 
-"Yeah, why?" Zoey seemed legitimately confused.
+"Yeah, why?" This particular head tilt angle of Zoey’s seemed to be legitimate confusion.
 
-Naina smiled and shook her head. "I don't really have an answer for that. It's just... weird."
+Naina squeezed the small stress ball nestled beneath the smooth cloth of her hoodie’s sleeve. It had seen quite a bit of action since Zoey installed it for her the other day.
 
-And the weird was worth it.
+"I don't really have an answer for that. It's just... weird,” Naina finally said.
 
-Naina began to look for the fic on her own phone. To her utter surprise, Zoey, or "love4everZZZ", was *not* the only writer for Cale and Astrid.
+And the weird was worth the wait.
+
+Naina looked for the fic on her own phone. To her utter surprise, Zoey, or "zoeDawg777", was *not* the only writer for Cale and Astrid.
 
 Naina blushed at some of those summaries. Did Cale know these existed? There were way too many "main character death" tags in that list.
 
@@ -72,21 +92,21 @@ That one appeared to be shipping Cale with *Zoey*.
 
 Suddenly, Zoey's café scene seemed timid.
 
-Zoey pondered Naina's question. "A few hundred people seem to like it."
+Zoey offered. "A few hundred people seem to like it."
 
-Zoey was right; she did, in fact, have a few— wait. "Zoey, there are thirty-six chapters here. How long have you been writing this?"
+Zoey was right; she did, in fact, have a few hundred— wait. "Zoey, there are thirty-six chapters here. How long have you been writing this?"
 
-"When did you introduce me to fanfic?" Zoey asked. Her tears seemed to have receded, and she gave herself a firm spin.
+"When did you introduce me to fanfic?" Zoey’s tears had receded, and she gave herself a firm spin.
 
-Naina felt a strange thrill that consisted of part pride and part horror. "You wrote thirty-six chapters in almost *two* months?"
+Naina felt a strange thrill. Pride? Horror? Both. Definitely both. "You wrote thirty-six chapters in almost *two* months?"
 
-And her amusing hyperfixations were worth it.
+And her amusing hyperfixations were worth the wait.
 
 "Yeah, why? Oh—wait." Zoey raised her phone.
 
 "Waiting," Naina acknowledged.
 
-She watched as Zoey's eyes rapidly darted across her phone. Her face went through a series of evolutions, from contemplation to confusion, then to joy.
+Zoey's eyes rapidly darted across her phone. Her face went through a series of evolutions, from contemplation to confusion, then to joy.
 
 "Cale is going to propose!" Zoey exclaimed.
 
@@ -94,23 +114,23 @@ Naina leaned her head over the phone, curious, but couldn't quite make out the w
 
 "Pfft. He invited me to go home and join him at the park on the last day it's open for the year."
 
-Zoey got up and skipped to the light switch. The room was darkened and the fairy lights turned on, bathing them in a twinkling glow.
+Zoey got up and skipped to the light switch. The room darkened and the fairy lights turned on, bathing them in a twinkling glow.
 
-Naina grinned and took her place on the bed, rolling upside down: Zoey had entered romance mode.
+Naina grinned and took her place on the bed and rolled upside down. She cleared her head and gave the owl a well-deserved break.
 
-And this, above all else, was why Zoey was worth it.
+Zoey had entered romance mode.
 
 Naina engaged. "OK, Zoey, how is an invitation to the park an indication he's going to propose?"
 
 "It's where they started dating, of course."
 
-Zoey pushed the chair to the side of the room, then proceeded to frolic in circles, starting off with the most pristine of spins that enveloped her in the glimmering radiance of the fairy lights.
+Zoey pushed the chair to the side of the room, then proceeded to frolic in circles, enveloped in the glimmering radiance of the fairy lights.
 
-"You think he's going to go big?" Naina asked, knowing very well the answer. This was not the first time that she had engaged in Zoey's romantic ideals.
+"You think he's going to go big?" Naina asked, knowing very well he would.
 
-"Of *course*! He *has* to! He's a true romantic; there is nowhere to go but big!" Zoey released the softest and most angelic of sighs. Naina's heart fluttered, following that smile through every skip, hop, bounce, and twirl.
+"Of *course*! He *has* to! He's a true romantic; there is nowhere to go but big!" Zoey released the softest and most angelic of sighs. Naina's heart fluttered.
 
-"I don't think it needs to be big to be romance." Naina chuckled. It got a brief glare from her friend.
+"I don't think it needs to be big to be romance." That got a brief glare from Zoey.
 
 Naina just grinned, egging Zoey on.
 
@@ -118,7 +138,7 @@ Naina just grinned, egging Zoey on.
 
 "I'm pretty sure the definition of romanticism is tied to a literary style from the 1800s. A celebration of fantastical emotions triumphing to act as a stark contrast to the emerging focus of logic and reasoning in the Enlightenment."
 
-This got Zoey to stop. A confused face turned towards Naina, its features slightly distorted by shifting shadows. "Naina, I thought you sucked at history."
+This got Zoey to stop. "Naina, I thought you sucked at history."
 
 "Hyperfixation," Naina said simply.
 
@@ -128,15 +148,13 @@ Naina shrugged. "I can when it's true."
 
 Zoey considered this for a moment. "Fine, but only because you're cute." She returned to her circular motion, although it had evolved into a skipping pace rather than a frolic.
 
-Naina watched as the girl considered the assertion, genuinely curious about where it would lead.
-
-"That's what romanticism *was,* not what it *is*. We celebrate love and happiness, not sadness." Zoey stopped and turned to Naina, waiting for an answer.
+"That's what romanticism *was,* not what it *is*.” Zoey retorted. “We celebrate love and happiness, not sadness." She stopped and turned to Naina, waiting for an answer.
 
 Naina suspected that Zoey was the type of person who refused to watch past the marriage scene in Romeo and Juliet.
 
 "Weren't you just making yourself cry earlier?"
 
-"Well, yes. But only because it would make the ending that much bigger when Cale and Astrid end up getting married! People don't want the sad, they want the happy." Zoey's smile and frolic returned, gleefully turning back into the room with a large skip.
+"Well, yes. But only because it would make the ending that much bigger when Cale and Astrid end up getting married! People don't want the sad, they want the happy."
 
 "You know, there's an entire subgenre of romance called tragedy."
 
@@ -146,42 +164,30 @@ Naina laughed. "I think, by definition, it's romance."
 
 "That definition is dumb. And outdated."
 
-Zoey, as usual, refused to be held back by such frivolous things as "well-established categorical constructs."
+Zoey, as usual, refused to be held back by such frivolous things as "well-established categorical constructs” and “institutional knowledge”.
 
 And that, most certainly, was the biggest reason this girl was worth it.
 
-Zoey had endless struggles, many more than almost anyone would see. School was *not* easy for Zoey. Friends were *not* easy for Zoey. Naina didn't know the full extent of it, but her childhood had most certainly *not* been easy.
-
-Naina suspected that there were very few things that *were* easy for Zoey. She knew, because they were similar problems Naina herself had to solve. And, from what Naina had gathered, Zoey had not had ten years of therapy to guide her.
-
-But through sheer, raw, unyielding determination, this girl had managed to contain all of that struggle, all of that strife, turn to the world, and give it the largest and most energetic beaming smile that had ever existed.
+Zoey was a girl plagued with enough generational trauma and biological hurdles to leave *anyone* else a cynical and withdrawn hermit. She could barely keep *herself* afloat. And she still woke up, slapped on a smile, and drove herself to do better with the hand she had been dealt.
 
 She even turned stimming into raw joy: frolicking, skipping, swaying, head bobbing, delightful squeals. Unlike many neurodivergent people, she didn't hide it or shamefully tuck it away; instead, she wore it with *pride*, improving the lives of *everyone* around her.
 
-Mask or not, it was who she was.
+Not because she got something out of it.
 
-And *that* girl, the girl who had, and would, pick positivity *every* time, *she* was worth it.
+Not even just because it fit some motivational framework.
 
-The girl who motivated Naina not just to fit in or assimilate, but to seek ways to capitalize on her strengths: *that* girl was *worth it.*
+But because she genuinely wanted everyone else to feel the happiness she herself could never quite reach.
 
-So yes, Naina was overwhelmed.
+And *that* girl, the girl who had, and would, pick positivity *every* time, *she* was worth the wait.
 
-Even now, watching her friend bask and spin in the dancing lights of fantasy, Naina's brain was tense with a hundred different unmade decisions and tasks.
-
-Each unknown crept at the edge of her brain like an assassin. It was the most stressed Naina had ever been in her life, without a doubt, and she had almost three more months of it.
-
-But Zoey was worth it.
-
-This was no longer about trying to win Zoey over; Naina had become quite convinced that the girl was infatuated with her.
-
-In retrospect, there were a million signs long before the kiss on the forehead when Zoey thought Naina was asleep on the bed.
-
-No, this was about giving the most wonderful and delightful girl that had ever existed her own grand moment. To give her the very same happiness that she so diligently pumped out into the world.
+The girl who motivated Naina not just to fit in or assimilate, but to seek ways to capitalize on her strengths: *that* girl was *worth everything.*
 
 They had their routine, their contract, their ritual... They were *content*.
 
 But "content" wasn't good enough.
 
 Zoey deserved better than content.
+
+She had just laid out her definition of happiness. She deserved to get it.
 
 Because she was worth it.

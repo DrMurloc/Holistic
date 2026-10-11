@@ -1,8 +1,10 @@
+## Endgame
+
 **Astrid**
 
-Astrid clung to the impossibly perfect man while he awkwardly attempted to get keys out of his left pocket with his right hand. She could help him, or at least let go of his left arm, but it was funny to watch him struggle.
+Astrid clung to the impossibly perfect man as he fumbled for keys in his left pocket with his right hand. She could help him, or at least let go of his left arm, but it was funny to watch him struggle.
 
-The perfectly slight smile he wore meant he knew what she was doing, and he rolled with it.
+The perfectly slight smile he wore meant he knew what she was doing.
 
 Because he was perfect.
 
@@ -18,9 +20,29 @@ Every date night, which was every night, was perfect.
 
 It was all so. Damn. Perfect.
 
-Cale finally got the door open, and Astrid let go of his arm now that he no longer needed it. The subtle tease was not lost on him and earned her a brief glance back with that charming smirk, which filled her with joy.
+It was like he was a fucking contemporary romance protagonist.
 
-Cale called them "micro-teases", and he loved them.
+**Now, I will admit, over an eternity of selective timeline branching, Cale maaaaaay have become subject to a rather interesting effect.**
+
+**There’s a marvelous play called “Rosencrantz and Guildenstern Are Dead”. It’s full of whimsy and amusing tangents in what otherwise is a rather droll side story to Shakespeare’s Hamlet. An ongoing gag is the coin flip. The coin is flipped nearly a hundred times. Heads. Every time. Statistically possible, realistically inconceivable, and existentially horrifying.**
+
+**At some point, when the perception of randomness is challenged by a coin landing on heads 85 times in a row, the brain will naturally reach for Occam’s razor. Is the simple answer that the 2.5e-26 chance (which is quite improbable, for those unfamiliar with scientific notation) of getting** ***that specific*** **outcome was just as probable as any other result, or was some outside force involved?**
+
+**In Cale’s case, I might… maybe… possibly… have branched the timelines a** ***tiny bit*** **in his favor.**
+
+**Not to say that he is incompetent; he’s quite brilliant and self-driven.**
+
+**But, well, when it comes to things that depend on luck, Cale’s die tends to favor natural 20s.**
+
+Cale’s keys slipped from his hand and caught on his foot. In a fluid motion, without hesitation, he kicked them back in the air and caught them.
+
+A fucking.
+
+Romance.
+
+Protagonist.
+
+Astrid snorted and rolled her eyes as the door swung open.
 
 She hadn't lied.
 
@@ -30,17 +52,15 @@ But they couldn't build a future on *only* games.
 
 She needed this illusion of perfection smashed so they could build an endgame.
 
-They entered the refurnished room. Astrid's plants sat interspersed between wooden bookshelves and leather furniture. The idea of this warmly lit space being the hollow city of boxes from a few weeks earlier felt foreign.
+They entered the refurnished room. Astrid's family of succulents sat interspersed between wooden bookshelves and leather furniture. The idea of this warmly lit space being the hollow city of boxes from a few weeks earlier felt foreign.
 
 It was already home.
 
-A large dry bar and wine rack lined a wall, though no bottles sat in it. Cale had, at some point, decided he didn't like drinking at home. It sounded like pacing himself was a problem when silly things like "social convention" didn't exist to slow him down.
-
-Astrid's eyes flickered to the hallway that led to the bedroom, then over to her perfect idiot.
+Astrid's glanced to the hallway that led to the bedroom, then over to her perfect idiot.
 
 A mixture of fear and anticipation caused her heart to thud.
 
-Astrid went on a light offensive. "How long did you say you knew Lola?"
+Astrid went on a light offensive. "How long did you say you knew Diego?"
 
 "I didn't say."
 
@@ -50,15 +70,11 @@ Cale fell into it, sinking several inches into the soft leather, leaving space f
 
 He grinned.
 
-"No. Time out." Astrid said, letting her face remain flat.
+"No. Time out." Astrid said flatly.
 
 Cale blinked as if Astrid had released him from some spell. His mouth fell open slightly.
 
-"What... What's wrong? Did I do something wrong? That thing with Lola, I-"
-
-"No, Cale. Stop, please. Give me a second." Astrid paced a few steps away, facing away and tapping her foot with arms crossed.
-
-"Of course," Cale said.
+Nothing came out.
 
 Her mind flipped through a million... scripts.
 
@@ -68,11 +84,9 @@ Diego was right.
 
 And she didn't have one for this.
 
-And it horrified her.
-
 "Cale, I-" she started. She couldn't find the words.
 
-She turned back, and the image of raw fear in Cale's eyes caused her to take a step back as her heart froze.
+The raw fear in Cale's eyes caused her to take a step back as her heart froze.
 
 "What did I do, Astrid? Please tell me. I just want you to be happy."
 
@@ -80,53 +94,17 @@ Astrid's heart shattered, then melted into a puddle beneath her.
 
 The hum of the air conditioning unit cut out, leaving the room in an absolute silence that let the words echo through her entire body.
 
-*I just want you to be happy.*
+“You just want me to be happy?” Astrid repeated.
 
-Cale gave a frustrated growl that Astrid had never heard from him before. His head fell against the back of the seat. "See, I did it again, I-"
+Why did the sentence make the hairs on her arms bristle?
 
-"What? What part of what just happened makes you think you did something *wrong*?"
+“Of course.”
 
-Cale slowly looked back at her, his eyes uncharacteristically narrowed. "You... froze. And your mouth fell open like you were offended. I crossed a... boundary, right?"
+Astrid stared. She wasn’t quite sure what to do with the assertion.
 
-"Cale, hearing you say those words right now was likely the most impactful thing I've... I... I don't have words for this. They made me feel good. Good is an understatement... Fuck, I literally don't have language for this."
+And Cale stared right back. She could see calculations running behind his eyes.
 
-The silence that fell between them was thick, tense, a barracade.
-
-"Bad assumptions." Cale finally muttered quietly. His eyes fell to the floor.
-
-"What?" Astrid tilted his head.
-
-"In... software... it's... Assumptions aren't inherently bad. Everyone pretends they are, but... You maximize them. You design code and systems, so you can make the most assumptions. It... helps focus on the real problems, not all the problems. But you need to check them... or else... *Fuck*."
-
-His head tilted back, staring at the ceiling.
-
-Astrid let the word bounce around in her head for a moment.
-
-Assumptions.
-
-Astrid *did* have language for *this*. "Cale, if assumptions both parties have made are proven to be false, it would be grounds for a voided contract. But some will be rebuttable, and others will not. And if we have any *presumptions*, we need those on the table *now*."
-
-After a moment of processing, Cale glanced back to her. "We're saying the same thing."
-
-"Yes."
-
-The moments ticked by unmeasured, while they processed the implications of what they had just laid out.
-
-Cale shook his head, "I really don't want to need a legal team and a team of software architects just to be able to make you happy."
-
-"No."
-
-There was something itching at the edge of her brain. The most important question Diego had asked.
-
-Could she trust him?
-
-*All* of this had felt about *her*. The absence of self servitude left an impression... of... what?
-
-The subtext, it came with innuendo... *was* he hiding something?
-
-She let the words form as they hit her mouth.
-
-"It's... not just about my happiness. You know that, right?"
+"It's... not just about my happiness,” Astrid said. “You know that, right?"
 
 His silence spoke volumes.
 
@@ -134,15 +112,15 @@ His silence spoke volumes.
 
 "But... I..."
 
-"It would make *me* happy," Astrid pleaded.
+"It would make *me* happy," Astrid pleaded, “if *you* were happy.”
 
 "It would be selfish."
 
-"There's a line between self-caring and selfish."
+"No, it would be self-caring. There's a line between self-caring and selfish."
 
 "What... what is it?"
 
-The room fell into silence. Astrid turned and began to pace slowly. Her fingers found her lips and worried. The familiar light scent of soil washed over her as she passed her rubber tree.
+Astrid turned and began to pace slowly. Her fingers found her lips and worried. The familiar light scent of soil washed over her as she passed her rubber tree.
 
 What would draw the line in court?
 
@@ -152,59 +130,77 @@ What would draw the line in court?
 
 "Negligence. Are you saying just the act of due diligence is enough?" Cale asked.
 
-"Yes. In most legal cases."
+"Yes. In most legal cases. Depending on circumstance, having done your best is more than enough to avoid blame for not trying at all or inexperience."
 
 "But I'm literally *constantly* doing due diligence. My entire life is analyzing and iterating. It's *exhausting.* I really don't know how people do it."
 
-Astrid looked over her shoulder, then turned to face him. She furrowed her brows and began to walk back.
+Astrid squeezed her eyes shut and worked through the assertion.
 
-"Cale, most people *don't*. I don't think you have the problem of needing to think *more*, which is where almost every client in legal history is. I think you have the problem of needing to think *less*."
+She believed him.
+
+She couldn’t think of a time when she saw Cale half-ass an effort. Lazy people don’t end the night collapsing forward onto beds with their face buried into a pillow to tune out the lingering noise in their head.
+
+He either did things turned up to 11, or didn’t commit in the first place.
+
+"Cale, most people *don't*. I don't think you have the problem of needing to think *more;* I think you have the problem of needing to think *less*."
 
 A grin flashed on Cale's face. "I don't know, Astrid. You know me, I'm an-"
 
-Astrid stomped her foot; the sharp sound seemed to bring the very fabric of time to a halt. "Stop. Not now. Not in time out. You know you aren't. And you know I never meant that."
+Astrid stomped her foot; the sharp sound puncturing the very fabric of time. "Stop. Not now. Not in time out. You know you aren't. And you know I never meant that."
 
-Astrid's heart pounded as the grin faded off of Cale's face into something... something...
+Astrid's heart pounded as the grin faded off of Cale's face. His shoulders softened, his eyes averted down, and the dozen or so muscles that held up his smiles simply quit.
 
 She couldn't quite read it.
 
-This wasn't his analytical mode. This wasn't his armor, his mask.
+This wasn't his analytical mode. This wasn't his armor.
 
-He looked *exhausted*.
+This was the face he hid in the pillow. The face from that first night on the metro. The face that felt like a mirror into herself.
 
-Just like she felt.
+But on him it didn’t look like exhaustion.
 
-Just like they had both looked on the metro to his condo on that first night.
+It looked like *defeat*. Surrender.
 
 "Everything on the table?" Cale asked, seeming hesitant to meet Astrid's eyes, "Check all assumptions?"
 
-"We have to. Cale... the information wars, the deflecting, whatever the hell you were trying to do with leaving me alone with Diego... I... maybe it was fine for a week or two of mentally re-centering, but I can't keep that up forever, and I don't think you can either."
+"We have to. Cale... the information wars, the deflecting, whatever the hell you were trying to do with leaving me alone with Diego. I can't keep that up forever, and I don't think you can either."
 
-Cale didn't respond; his eyes remained focused on some point behind Astrid.
+Cale didn't respond; he focused on some point behind Astrid.
 
 "Please," she said, "Right now, it feels like you are hiding something."
 
-His eyes flickered to her at the words, and any semblance of confidence or composure slipped away as his body deflated.
+His eyes flickered to hers; any semblance of confidence or composure slipped away as his body deflated.
 
-Was that... shame? Regret?
+Not just defeat. Shame. Regret.
+
+Regret?
 
 On *Cale*?
 
-The thought almost didn't compute in Astrid's mind.
+Cale finally started, "I never could understand what about you stood out."
 
-Cale finally started, "It's... always been about boundaries. Yours. The world's."
+Cale rose and led her to his office. Astrid watched his shoulders the entire way. The way he walked, slow but determined, definitely felt like a surrender. Like this was his death march. Like he was seeing the end of a game he had lost years ago.
 
-Astrid took a step back as Cale shifted, then rose to his feet. He didn't make eye contact as he walked past her. She hesitated, then turned to follow.
+“I think at first I thought you were confirming what I knew about myself. Everyone else said it in silence, but you said it out loud. ‘This boy is an idiot’.”
 
-He led her to his office.
+High school.
 
-A whiteboard sat to one side with technical jargon and diagrams that Astrid couldn't understand. The large wooden desk supported three wide monitors. Post-it notes were stuck to almost every surface of the monitor and the desk, and multiple notebooks lay scattered around the room in various states of wear.
+She could barely remember the start. A lot happened in those first few months. Cale felt so ingrained in her life it felt strange to think of a “first insult” at this point.
+
+But he *believed* her?
+
+“Cale, I never–”
+
+“--No. I learned quickly you didn’t mean it. It only took a few days for me to hear what you really meant.”
+
+A whiteboard sat to one side, filled with technical jargon and diagrams that Astrid couldn't understand. The large wooden desk supported three wide, curved monitors. Post-it notes stuck to almost every surface, and multiple notebooks lay scattered around the room in various states of wear.
+
+She had never seen Cale read a single thing off the notes, but she had watched him scribble thoughts down endlessly mid-meeting.
 
 "I need you to say it again." Cale looked back. "We're doing honest, right? No games, no secrets? You want that?" His hand hovered over the handle of a desk drawer.
 
 Astrid's eyes fell on the drawer. Her mouth ran dry. Every worst possibility ran through her head. For a brief moment, she even considered Zoey's assertions that Cale was secretly a spy.
 
-"Yes, please," she said. She found her arms crossing, but caught herself and forced them to hang at her sides.
+"Yes,” she said. “Please."
 
 The drawer opened.
 
@@ -212,13 +208,13 @@ After a few moments of extracting various office supplies, Cale removed a false 
 
 He stepped to the side, away from Astrid.
 
-Astrid took a step forward, leaning in and half expecting to find a gun or a CIA badge.
+Astrid leaned in and half expecting to find a gun or a CIA badge.
 
 It was a notebook.
 
 A simple, black-and-white speckled composition notebook. Like a thousand you might find in high school, but the bindings on it were worn, much more than any other book in the room. The edges of several pictures stuck out from between several pages.
 
-Astrid eyed Cale as she took the notebook out. He had slid his hands into his pockets, but averted his eyes. His mouth opened as if to clarify what she held, but then he shut it.
+Astrid eyed Cale as she took the notebook out. His mouth opened as if to clarify what she held, but then he shut it.
 
 She flipped it open to the first page. It was written in pencil, with multiple lines erased and rewritten several times.
 
@@ -236,13 +232,11 @@ It was too much. She couldn't name any of it.
 
 It *should* be fear, right?
 
-The number of red flags this *should* raise was... uncountable. Finding out the man she had known for ten years had been taking notes on her *should* be an instant dealbreaker. If she told literally any of her friends about this, every single one would say to leave.
+The number of red flags this *should* raise was uncountable. Finding out the man she had known for ten years had been taking notes on her *should* be an instant dealbreaker. If she told literally any of her friends about this, every single one would say to leave. May would lose it.
 
 But it didn't compute.
 
-Cale wouldn't harm a fly. If he had meant harm to her, he'd had two weeks of her sleeping in the same bed as her. He hadn't made a *single* move, even *after* she had already offered sex that first night...
-
-He *couldn't* be a threat, right?
+Cale wouldn't harm a fly. If he had meant harm to her, he'd had two weeks of her sleeping in the same bed. He’d made not a single move, even when she had wished he would.
 
 She needed to finish.
 
@@ -256,25 +250,25 @@ She needed to finish.
 
 Astrid read that line several times.
 
-The complicated knot of... everything... in her chest tightened.
+The complicated knot of... everything tightened in her chest.
 
 "You... intentionally started seeing me less," she found herself saying.
 
 "Yes."
 
-That... was manipulative. Even Diego couldn't deny it.
+That was manipulative. Even Diego couldn't deny it.
 
 Cale was manipulative.
 
 Another dealbreaker... right?
 
-Or was that him respecting boundaries she never could communicate? Doing his best in the confines of something out of his control?
+Or was that him respecting boundaries she never could communicate?
 
-Astrid's vision blurred at the corners, "I thought you hated me. When you started disappearing."
+Astrid's vision blurred at the corners. "I thought you hated me. When you started disappearing."
 
 "I could never hate you, Astrid. I love you. I always have."
 
-Astrid looked up and felt a tear drip down her cheek. She could see Cale's eyes track it, but he made no move to wipe it away. Why didn't he? Wasn't that the standard expectation? The man wipes the tear away.
+Astrid looked up and felt a tear drip down her cheek. Cale's eyes tracked it, but he made no move to wipe it away. Why didn't he? Wasn't that the standard expectation? The man wipes the tear away.
 
 As if to answer her question, the tear dripped down onto the next line, leaving a small dark splotch and drawing her attention back to the book.
 
@@ -286,15 +280,15 @@ It was true.
 
 But... how did he know that?
 
-Cale spoke. "That one took a long time to put into words. It was... difficult, considering you act differently around me than you do around others. Your... armor? Mask? Whatever we want to call it? It's different for me."
+Cale spoke. "That one took a long time to put into words. It was difficult, considering you act differently around me than you do around others. Your armor? It's different for me."
 
-"I... Masks, yes. I think we're past calling it armor. They were never constructed to protect. They were constructed to hide. But... It's because you *actually* make me feel," Astrid said, her eyes still hovering over the line.
+"It's because you *actually* make me feel," Astrid said, her eyes still hovering over the line.
 
-"I'm glad I got that right. This entire thing... The notes, the... obsession... even the confidence in all of the other rules, all came back to that one assumption."
+"I'm glad I got that right. This entire thing... The notes, the obsession, the spiraling, even the confidence in all of the other rules, all came back to that one assumption."
 
-The way he said that... was that resignation or relief?
+Was that resignation or relief in his tone?
 
-Astrid flipped to further pages. Several held photographs of them. The same way she took selfies with him in the background... he apparently had gotten a few of her.
+Astrid flipped to further pages. Several held photographs of them. The same way she took selfies with him in the background. He apparently had taken a few of her.
 
 One stood out, her hands on her hips, elbows flared, with eyes narrowed, wearing her old pout. It was from a trip to the mall. Cale had threatened to leave, then taken a picture of her as a "joke" to mock her pout.
 
@@ -302,15 +296,25 @@ A small section sat under the photo.
 
 *Astrid uses this pose to express vulnerability. She is either hurt or is on the verge of feeling hurt. Return to emotional safe zone immediately, or risk harm to Astrid.*
 
-"I... really wish I could say you got... any of this wrong," Astrid said. She closed the book and let it drop in her hand to her side.
+She closed the book and let it drop in her hand to her side. "I really wish I could say you got... any of this wrong," Astrid said.
 
-She looked up and found a smile on Cale's lips; it felt... forced... almost... crazed? She had never seen it on him before.
+She looked up and found a smile on Cale's lips; it looked... forced. Almost crazed?
 
-He took a step forward, causing her to step back. The feeling in her chest grew; her heart was hammering.
+He took a step forward, causing her to step back.
 
-"It's been my life. It... It's always been for you. All of it." The smile grew, taking a toothy shape she had never seen on Cale. And his eyes... the way they fixated on her... was that... predatory?
+The feeling in her chest grew.
 
-Literally any rational person in this situation would... run, right? Astrid's body most certainly was trying to tell her that, or at least she thought it was.
+Her heart hammered.
+
+The room dimmed from the corners of her vision. That smile, it was crooked.
+
+What…
+
+What was this? What–
+
+"It's been my life. It... It's always been for you. All of it." The smile grew teeth. And his eyes... the way they fixated on her. Was that predatory?
+
+Literally any rational person in this situation would run, right? The way her chest constricted and legs pulled towards the door, her body most certainly wanted to run.
 
 But none of this makes sense.
 
@@ -318,11 +322,11 @@ Maybe she wasn't a rational person.
 
 "Cale, hear how you sound. When you say *all* of it, you can't possibly mean-"
 
-"Of course, all of it." Cale shook his head, with a forced laugh that caused Astrid to take another step back. "How could I have given you these last two weeks if I didn't have the position I have now? How could I have ever been worth your time if I hadn't improved myself? How could I-"
+"Of course, all of it." Cale forced a laugh that caused Astrid to take a step back. "I needed to be a better person for *you*. I needed to be *smart* for *you*. To keep up with *you*. Why would the most perfect woman who graduated top of her class pay attention to the college dropout? I *needed* to be successful. It was the only way–"
 
 "Cale! Hear yourself, *please*, you're-"
 
-He took even another step forward, "Astrid, I love you. This is what love is, right? I'm giving you *everything*."
+He took even another step forward. The light from a passing car glinted off his glasses and cast shadows across his twisted smile. "Astrid, I’m devoting myself to you. I’m *yours*. I love you."
 
 *Run.*
 
@@ -332,27 +336,31 @@ Every piece of literature, every movie, every anime about obsessive "love" flitt
 
 Every single one came out with the same conclusion: Get. Out.
 
-They were wrong.
+*I can trust him, right?*
 
-She was missing something, and she trusted him enough to know that.
+She was missing something, and she trusted him enough to know at least that.
 
 Fuck the stories.
+
+Fuck the scripts.
+
+Fuck the armor.
 
 She loved this man.
 
 "No."
 
-The word erupted from her mouth as a dagger, backed with an icy assertiveness that would come with *no* misunderstandings. It impacted, causing Cale's crazed smile to shatter into parted lips.
+The word erupted from her mouth like a dagger, backed by an icy assertiveness that left no room f*or* misunderstanding. It impacted, cracking Cale's crazed smile.
 
 "But-" he started.
 
-"Cale, this... what you just described is unhealthy. That's not love. That's tragedy. You should know this. You've read the books."
+"Cale, what you just described is unhealthy. That's not love. That's tragedy. You should know this. You've read the books. You’ve watched those dumb animes."
 
-Cale nodded eagerly, a hint of the smile coming back, "Your favorites. The ones you read to feel. It's selfishness that-"
+Cale nodded eagerly as a hint of the smile came back. "The books. Your favorites. The ones you read to feel. It's selfishness that-"
 
 "You think those are about *selfishness*?"
 
-Cale's smile faltered. "Yes? It's... everyone says... Selfishness in relationships... Modernism and... We need more men who take care of women, it's-"
+Cale's smile faltered. "Yes? It's... everyone says... Selfishness in relationships… it's-"
 
 "Stop."
 
@@ -360,33 +368,13 @@ Cale did.
 
 Astrid turned away, raising a finger to her temples and closing her eyes.
 
-He wasn't *wrong*. The ideals he referenced were... *technically* right. But they didn't fit here. Not for... *this.*
-
-"I don't-" Astrid paused, double-checking her words, "I don't think those ideals, those lessons, exist for *you*."
-
-"But... It's the socially accepted guidelines, right?"
-
-"Do you think women are inferior?"
-
-"Of course not!"
-
-"Those guidelines were *not* made for you. I do *not* want to be 'taken care of.' This... honeymoon phase has been amazing, but we have *always* been equals, even if you don't believe that, and I do *not* want that to change." Astrid turned back, the glossy texture of the composition notebook pressed against her fingertips as her hands clenched.
+"I do *not* want to be 'taken care of.' This... honeymoon phase has been amazing, but we have *always* been equals, even if you don't believe that, and I do *not* want that to change." Astrid turned back, the glossy texture of the composition notebook squeaked against her fingertips as her hands clenched.
 
 Cale took a moment to process the assertion.
 
-"I... know that... I think. You're... independent, and I wanted to make sure everything was your decision," Cale said.
-
-"I-" Astrid started.
-
-He... was right. That *was* what she had built her life around. *She* made decisions. The only reason she had finally made a move was that his confession had been on *her* terms. She couldn't deny that.
-
-"I'm part of the problem here," Astrid said. "You said it that first night. I don't... think I fully agreed at the time. I thought you were just comforting me."
-
-Cale, notably, didn't respond.
-
 Astrid opened the notebook again and flipped through. She didn't really register any of the words that stared up at her.
 
-She remembered all of the pictures. All of them had been taken with some level of consent, even if implied. The same as the pictures Astrid had of him. As strange as it was, Cale *did* seem to understand boundaries.
+She remembered all of the pictures. All of them had been taken with some level of consent, even if implied. As strange as it was, Cale *did* seem to understand boundaries.
 
 None of that formed into a picture Astrid could understand.
 
@@ -394,25 +382,49 @@ How could someone who *clearly* understood boundaries, possibly *too* well, need
 
 Was *this* a breach of boundaries? If so, it was the odd one out and explained much of his shame.
 
-Asrid continued, "Why did you need notes? Why write it down? Why the photographs? The image of you sitting here over your desk and... *obsessing* like this is... Cale, it's creepy."
+Wait.
 
-Cale winced at the word and shrank with a step back, bumping into a bookshelf with a soft thump.
+No assumptions. No speculations.
+
+She needed to just ask.
+
+"Why did you need notes?” Astrid asked. “Why write it down? Why the photographs? The image of you sitting here over your desk and... *obsessing* like this is... Cale, it's creepy."
+
+Cale winced at the word and shrank, bumping into a bookshelf with a soft thump.
 
 The reaction twisted Astrid's heart.
 
-She raised her empty hand and took a step forward. "No! Cale. That's... I said that wrong. It is creepy without more context. I want to understand, not judge."
+She raised her empty hand. "It is creepy without more context. I want to understand, not judge."
 
-Cale raised his head, studying her.
+Cale raised his head, studying her. “I needed to get it right. I needed to know your boundaries.”
 
-He was still worried that she was judging him. She... she needed to show him that this was different. That the Astrid listed in that book was *not* who she wanted to be.
+And he didn’t just… ask her?
 
-"You should not have ever needed to take those notes in the first place. The mixed signals I've sent... This is *not* a you-or-me thing; this is an 'us' thing. To be honest, any sane people would have gone their seperate ways years ago. But I think we can concur that *we* are *not* sane."
+She would have–
 
-Astrid tossed the notebook, and it landed in a trash bin by the desk. Cale's eyes followed its path, then turned back to her. A smile flickered to his lips briefly before fading into that contemplative, but neutral face.
+She would have played it down as a stupid question and called him an idiot, while trying to give him an answer mixed into the subtext.
 
-He slowly stepped forward, coming to a stop next to her and looking across the post-it-note-covered desk.
+Because that was the script.
 
-"I... my entire life is notes. It's not just you," Cale said. "It's so... hard to keep track of everything. So I write it all down. Put it into cold storage. It lets me focus on what I'm solving, and less on... what I'm not solving. Of course, keeping the notes organized is a whole thing... but... even if I never look at what I wrote again, having written it just helps."
+Fuck.
+
+Fuck fuck fuck.
+
+She did this.
+
+She needed to show him that this was different. That the Astrid listed in that book was *not* who she wanted to be.
+
+“Cale. I made you need to listen to the things I didn’t say. That was my fault. I’m not doing it anymore. I don’t want this to be a you-or-me thing; I want it to be an ‘us’ thing. Maybe us against a constraining world that doesn’t get it, but ‘us’ nonetheless.”
+
+Astrid tossed the notebook. It hit the inside wall of the trash bin by the desk an fell neatly in. Cale's eyes followed its path, then turned back to her. A smile flickered to his lips briefly before fading into that contemplative but neutral face.
+
+“Us,” Cale repeated.
+
+“Us,” she confirmed.
+
+He slowly stepped forward, coming to a stop next to her to look across the post-it-note-covered desk.
+
+"My entire life is notes. It's not just you," Cale said. "It's so hard to keep track of everything. I have a million thoughts a day. So I write it all down. Put it into cold storage. Even if I never look at what I wrote again, having written it just helps cut down the noise."
 
 Astrid exhaled, closing her eyes.
 
@@ -420,17 +432,17 @@ Astrid exhaled, closing her eyes.
 
 It actually made a lot of sense to her. She did the same thing when processing legal documents in college.
 
-Cale continued, "I actually hadn't written in the notebook for a while. I have a blog I started using. Just typing out thoughts as they hit me, or reflecting on stuff I learned from our interactions."
+Cale continued, "I actually hadn't written in the notebook for a while. I have a blog I started using. It– we should talk about that at some point. Just typing out thoughts as they hit me."
 
 "Of course you blog." Astrid rolled her eyes.
 
 Cale chuckled.
 
-Their eyes met, and their hands interlaced fingers between them. She started to turn to lead them out of the room, but paused halfway, looking back over her shoulder.
+Their eyes met, and Astrid interlaced their fingers between them. She started to turn to lead them out of the room, but paused halfway, looking back over her shoulder.
 
 "Ok. But what the *fuck* was that smile? I wish I had a picture, it was *ridiculous*. A rational person would have assumed you were a serial killer and bolted."
 
-Cale shrank and raised his free hand to his neck with a rather uncharacteristic blush. "Um. It was... I was trying for 'supportive love'. I... haven't practiced that. I tried to wing it?"
+Cale raised his free hand to his neck with a rather uncharacteristic blush. "Um. It was... I was trying for 'extremely supportive love'. I haven't practiced that. I tried to wing it?"
 
 "You *practice* your smiles?"
 
@@ -442,7 +454,7 @@ Astrid opened her mouth with a retort, and found none.
 
 Cale flipped the light off in the room as they slowly made their way back to the love seat.
 
-"What I never understood..." Cale said. "You already had your... armor... your... mask when I first met you in high school."
+"What I never understood..." Cale said. "You already had your armor when I first met you in high school. The so-called ‘ice queen’."
 
 Astrid didn't immediately respond.
 
@@ -450,103 +462,191 @@ He was right, technically.
 
 "Astrid?"
 
-They came to a stop in front of the love seat.
+Okay. Let’s do this.
 
-"Everyone else always emoted with such big... *emotions.*" The word felt foreign, taboo. "I got referred to as 'ice queen' once or twice, years before we met, and the image just... sunk in. I didn't mind, actually. That image... 'strong, independent, logical woman', it felt empowering, so I... adopted it." Her eyes turned down as if studying the sentence that just escaped her lips. "Maybe *you* aren't the only one who took social expectations to the wrong extreme."
+From the beginning. She wanted all of it. So she would tell him all of it.
 
-"And then me? The mask always looked silly on you. Seemed exhausting."
+“I liked the title. You know Mom always pushed Leo and me to solve our own problems, to be independent. And… everyone else always emoted with such big… *emotions.*” The word felt foreign, taboo. “So I took it. The persona.”
 
-"*You* were *infuriating* and *unrelentless*," Astrid said with a sigh.
+“The cold never bothered you anyway.”
 
-Cale laughed, then fell back into the seat. "Huh. So basically... Our particular combination of 'takes things seriously and literally' and 'fucks around and finds out' was a tad... oh, what's a word..."
+“I swear to god, Cale.”
 
-"Calamitous," Astrid offered with a nod.
+“Sorry. I’ll let it go.”
+
+Astrid did her best not to reward him. She really did. She tried so hard.
+
+The groan still escaped.
+
+And Cale gave the deep, guttural, self-amused chuckle that Astrid loved *so much*.
+
+“It always looked silly on you. The armor.” Cale fell back into the love seat. Astrid stopped by her golden snake plants that surrounded the TV to check their water levels.
+
+“Was ‘silly armor’ your invitation to poke and prod at me with that insufferable grin?”
+
+“Oh, I didn’t poke and prod *that* much.”
+
+*“You were infuriating and unrelenting*,” Astrid snapped.
+
+Cale went silent.
+
+Astrid sighed and moved into the adjacent kitchen. She could still see Cale through the open arch window that connected the two spaces. The way he stared at the rubber plant with vacant eyes… he was lost in his own head.
+
+She turned on the faucet and focused on the bottom of her watering can. The ripples and tiny bubbles off the frothing water seemed to clear her mind enough to organize thoughts.
+
+Boundaries.
+
+Cale was worried about boundaries.
+
+He had apparently always been worried about boundaries.
+
+Even back in high school.
+
+“I would have told you ‘no’, for what it’s worth,” Astrid noted without looking up. “If you ever had gone too far.”
+
+Cale didn’t immediately respond.
+
+Astrid flipped off the water and began to make her rounds.
+
+Two weeks. They’d be gone for two weeks. Most of these plants would be fine for even a month without attention. She worked on removing dead debris and making sure everyone was well watered anyway.
+
+“Would you have? Honestly. I was never sure.” Cale asked.
+
+“Probably not, actually,” Astrid admitted. “I don’t think you ever did go too far, though. There were certainly times I wished you pushed, though.”
+
+“Pinkys?”
+
+“I would have kissed you on the spot if you had flirted again,” Astrid said truthfully, thinking back to the heat that had flooded her when he whispered the words *“you look phenomenal today.”*
+
+“Even with Leo and May watching?”
+
+“Yes.”
+
+“Holy shit.”
+
+“And the frat party,” Astrid continued. “The one where I ended up telling Dustin to fuck off and leave Leo alone. You were flirting with that bimbo.”
+
+“What, Charisma? She wasn’t a bimbo. She was–”
+
+“You were *flirting* with *another* girl, and I–”
+
+Cale laughed, “Astrid, I didn’t know how to flirt back then. I shit you not, I was mansplaining how bitcoin was going to change hte world to her.”
+
+Astrid froze. She slowly set the watering can down as her face worked through a few emotions that she didn’t bother trying to name.
+
+“Bitcoin,” She repeated.
+
+“Yarp. Up until you dragged me away by the wrist and complained about the noise.”
+
+“Bitcoin,” She said one more time.
+
+“Look, it wasn’t my proudest moment. But–”
+
+“Cale. I dragged you away because I was going to bring you straight back to my room and lay my claim right there and then.”
+
+After a moment, the words settled.
+
+“Holy shit,” Cale said with a laugh. “I left you at your door and just said ‘good night’ because I thought it would be creepy to ask to come in. You’re saying you were trying to–”
+
+“Yarp,” Astrid finally fell into the seat next to Cale. She wasted no time curling around her arm and resting her cheek against his shoulder. It was very much her arm at this point.
+
+“For what it’s worth, I never could have gone home with anyone else. It would have felt like a betrayal.”
+
+Astrid nodded. “Any time someone asked me out, all I could picture was the look on your face if you found out.” She closed her eyes and focused on the feeling of his warmth against her cheek.
+
+“God we were so… oh, come on. Brain’s being slow. Give me an adjective.”
+
+"Calamitous," Astrid offered.
 
 "Untenable."
 
 "Maladaptive."
 
-Their eyes met, and they shared a mutual laugh.
+“Nice,” Cale said with a grunt of approval.
 
-"Game on?" Cale asked.
+“You really spend that entire time consumed with understanding me?”
 
-Astrid shook her head. "Say this isn't just about my happiness."
+“College?” Cale asked. “Actually? No. Between stuff going on with Zoey, the tiring process of dropping out, figuring out my first job, trying to make amends with Mom, and starting the community with Leo, I didn’t have much time to think about you. No offense.”
 
-Cale gave an overly dramatic groan and tilted his head back, and a piece of his smirk flickered to his lips. "Astrid, I-"
+“No. It’s good. I’m glad. I was busy being an overachiever anyway,” Astrid said with a sigh. “Overachieving my way straight into a starbucks for a year.” Wait. Roll that back. “You started talking to your Mom again?”
 
-"Cale. We're in time-out."
+Every muscle in Cale’s arm went tight, and his knuckles cracked. “I’m still annoyed she was the one who left, and not Dad. But there were… family… *politics* going on.” The word “politics” wa practically spat out of his mouth like filth. “I’m not mad at *her* anymore, at least.”
 
-Cale looked back up at her, then exhaled a drawn-out breath.
+Astrid immediately moved to deflect. To give him an out. His and Zoey’s parents had always been taboo topics. Cale had once returned from Pittsburgh with a black eye that he wore with pride but refused to acknowledge.
 
-"Fine," he said.
+She needed better than deflection.
 
-"No 'fine'. Say it."
+“If you ever want to talk about it, I’m here,” Astrid said softly. After a moment, Cale’s arm relaxed.
 
-"This isn't just about you."
+“Not tonight. Tonight is us,” he said.
 
-"Again."
+“Okay. So you dropped out,” Astrid said.
 
-"Astrid-"
+“I had been through a lot. I started developing… Ah, what do you call it…”
 
-*"Again."*
+“Confidence?”
 
-Cale straightened up and took a deep breath. His eyes closed. It was several moments before he spoke.
+“Apathy,” Cale corrected.
 
-"You can't ask me to take less time focusing on you. I legitimately enjoy it. But... yes. I accept--and agree--that this is a two-way relationship, we are equals, and I will make sure to consider my own mental health and happiness. If we are still being fully honest, that's... going to take some adjusting. The drinking and spontaneous trips were the only... vices?... I ever allowed myself before..."
+Was that what it was?
 
-His eyes opened.
+That… sounded horrible. Right?
 
-"Game on. Satisfactory. We'll work on it. Also, I'll have my people reach out to your people about that drinking thing to get something on the books for discussion." Astrid fell into the space Cale had left next to him and promptly found his arms wrapped around her, his hands resting on her stomach.
+Cale continued, “I stumbled through so much and came out on the other side fine that… I just sort of stopped caring. Or tried to. Whatever life threw at me, I would figure it out, right?”
 
-Astrid still had some digging to do, some missing pieces of the puzzle. But... she felt she could expect real responses now, even if playful.
+“Cale, that sounds like confidence.”
 
-"So... Diego," Astrid said, going back to her very first question.
+“No. I wasn’t confident I could achieve what I wanted. I just… resigned to failure as part of the process and stopped caring about it.”
 
-"I knew Diego for four years. The day I turned twenty-one. Lola didn't really exist back then. Well, not like she does now."
+“But you kept trying,” Astrid noted.
 
-Astrid thought back. "Twenty-one... Oh."
+Cale paused.
 
-An image flashed in Astrid's mind of Cale's face dripping in tequila.
+“Yes?”
 
-Astrid felt his cheek rest against the back of her head as he continued. "It's funny, I visited Zoey a little bit before that time, you know what she said?"
+“Not apathy then; why would you try if you really didn’t care? Maybe apathy set-backs, I suppose. But if you say ‘apathy’ I’m going to think you straight up don’t care.”
 
-"That you're a super spy?"
+Cale’s mouth worked for a moment. “Huh. Well. I’m bringing that one back to Diego.”
 
-Astrid felt Cale's head shake gently. "Nah, that was before the spy thing. I was a mad scientist developing the world's first love potion back then."
+Oh, right, her original question. “How long have you known Diego?”
 
-"Why would she think that?"
+“About the same time, actually. Right after dropping out. I… sort of… ‘gave up’. On our game, on everything. I kind of did an all-in move. I flirted.”
 
-"Because I told her it."
+Astrid did some mental math.
 
-"You two are weird."
+“Your twenty-first birthday?”
 
-Astrid knew that Zoey needed the weird. Cale kept a tight mouth about it, but Astrid had picked up on the times when Cale would fly out to Pittsburgh with little notice. He once came back with a black eye, which he wore with pride but refused to acknowledge.
+“Mhm.”
 
-Cale continued, "But, no. She said our costumes matched too closely. That they clashed. Which... you know... considering what we just talked about."
+He *flirted*?
 
-Astrid nodded and shifted in the seat, resting her legs over Cale's lap and off the side of the couch so she could watch Cale's face.
+“Was that what that was?” Astrid asked, “Your twenty-first birthday? Cale. You complimented my boobs in front of about six people, including Leo. I was convinced you were teasing me.”
 
-He continued, "It had me thinking... And then... well, tequila to the face. I... think I called you a bitch again or something. I tried to make it funny, but... well..."
+“I didn’t say I flirted *well*. I just said I flirted. You just called it ‘apathy to the set-backs’,” Cale noted. “Also, the shot of tequila you threw in my face didn’t feel too great.”
 
-His eyes fell with another moment of that uncharacteristic regret.
+“Timing, Cale. Timing is important. Compliment the breasts in private, you get to touch them. In front of random friends? Tequila to the face.”
 
-"And then Diego?" she asked, hoping to move past the moment.
+“First off, Leo *never* let us be alone. Second off, they look great today,” Cale’s hand came up and hovered over her chest.
 
-"And then Diego." He nodded, regret replaced with a smile.
+Astrid snorted, “Later.”
 
-Astrid tried to picture a broken Cale at a bar, reeking of tequila. She didn't like the image.
+“You said–”
 
-Cale continued, "It was at Diego's old bar. It was basically a hole-in-the-wall— sticky floors, broken taps, and all. Carmen had caught them putting on lipstick and took Lara to a hotel, threatening divorce and full custody. It was a right-place, right-time moment for both of us."
+“Later,” Astrid repeated. Admittedly, she was proud he made the attempt, even if it was in jest. It was the most physical interest he had let himself show in the last two weeks. But she was not done playing archaeology into what the hell happened between them.
 
-"And you... What? Used your wit and charm to cheer him up and motivate him?"
+Cale shook with a silent laugh, and the hand retreated. “Right. Where were we?”
 
-Cale laughed; the motion shook Astrid's body lightly. "'They', by the way. But, fuck no. Astrid, I had no fucking people skills, you know that. Those early days were just Diego and me venting. Eventually, they and I began to help build one another into who we are now."
+“Tequila to the face,” Astrid said.
 
-This was the part that confused Astrid.
+“Ah. Yeah. So, I sort of stumbled out of that bar and into another bar a bit further downtown. Newer bar that was struggling to get off its feet called ‘Diego’s’. Right place, right time kind of thing. It was basically a hole in the wall back then. Carmen had caught him trying on one of her dresses and lipstick or something, threatened to take full custody of Lara. It’s a whole thing. I didn’t *really* believe she was as bad as Diego said until I saw her today.”
 
-"Cale, the other day in the course of one elevator ride, you convinced someone to quit their job and pursue their love for writing."
+"And you... What? Used your wit and charm to cheer him up?" She paused. “Them?”
 
-"Yeah, that was fun." Cale laughed again. She could see pride gleaming behind those eyes.
+“Her in drag, him out of drag. But Fuck no. Astrid, I had no fucking people skills, you know that. Those early days were just Diego and me venting."
+
+"Cale,” Astrid said flatly. “The other day, in the course of one elevator ride, you convinced someone to quit their job and pursue their love for writing."
+
+"Yeah, that was fun." Cale laughed again.
 
 "But it's like people are just a game to you now?"
 
@@ -556,7 +656,7 @@ Cale widened his smile, an unspoken "Yeah, and?"
 
 "Talking to people. Everywhere. Everyone. How else was I going to learn to talk to *you*?"
 
-Astrid laughed. "You're saying you spent years *training* for... this? For us? For me?"
+Astrid laughed. "You're saying you spent years *training*? For me? For this?"
 
 "Of course."
 
@@ -566,15 +666,11 @@ They were going to need to work on that.
 
 "How long?" she asked.
 
-His renewed grin indicated she was asking the right questions; he was *proud* of this. "Four years. It was that same day. The one thing Diego and I came out with on that first night was an agreement that we needed to change."
+His renewed grin indicated she was asking the right questions; he was *proud* of this. "Four years. It was that same day. The one thing Diego and I came out with on that first night was an agreement that we needed to change. No regrets."
 
 "You just... what, talked to people? Bar hopped and socialized?"
 
 "And flirted. A *lot* of flirting. All catch and release, of course. Needed to learn what did and didn't work. I'm sorry to say you're not the only girl, or boy for that matter, who's thrown a drink in my face."
-
-Astrid blinked a few times. "You are telling me you would get girls... and guys... interested in you, just to let them down?"
-
-"I mean, when you put it that way... In hindsight... if we're being technical... Yes?"
 
 Astrid punched him in the leg, though she wore a smile.
 
@@ -582,17 +678,13 @@ Astrid punched him in the leg, though she wore a smile.
 
 The idea of this ex-video gamer grinding out charisma like a character skill was deeply amusing. But...
 
-"That... that is a *lot* of effort," Astrid said.
+"That is a *lot* of effort," Astrid said.
 
 Cale's eyes glazed over for a moment in thought. Astrid shifted slightly, shaking a few pins and needles out of her leg.
 
-Suddenly, Cale grinned.
-
-"There's a philosophy in software design called Domain Driven Design. It's... um... designing software around language barriers. The same words can mean different things in different bounded contexts. Leo and I share a lot of context. Software development, gaming. I *think* it's why we got along so well. When two systems interact that speak different languages, you need a translation layer."
+"There's a philosophy in software design called Domain-Driven Design. It's designing software around language barriers. The same words can mean different things in different bounded contexts. Leo and I share a lot of context: Software development, gaming. I *think* it's why we got along so well. But when two systems interact that speak different languages, you need a translation layer. An anti-corruption layer."
 
 Astrid blinked.
-
-She... actually understood that. Even if some of the words were foreign.
 
 If systems implied invested parties... Then... how did that map?
 
@@ -602,7 +694,7 @@ Two entities establishing meaningful communication across different contexts wou
 
 "Exactly! We use APIs; you use actual physical contracts. Same concept."
 
-"And the implication is that it's *your* responsibility to own that contract, *your* responsibility to 'solve communication', and not a shared responsibility with me and everyone else?"
+"And the implication for you is that you feel it's *your* responsibility to own that contract, *your* responsibility to 'solve communication', and not a shared responsibility with me and everyone else? Am I not an ‘invested party’ in this relationship?"
 
 Cale's mouth opened.
 
@@ -610,9 +702,9 @@ Then closed.
 
 His brow furrowed into a rare moment of speechlessness.
 
-"No one else seemed to have an issue? So... yes? I sort of just... assumed it was a problem with my... contract. It's like there was some established standard... GraphQL or something... that I just didn't follow?" Cale finally responded, though he looked uncertain.
+"No one else seemed to have an issue translating with each other? So ... yes? I sort of just... assumed, with you, it was a problem with my... contract. It's like there was some established standard... REST or GraphQL or something... that I just didn't need to discern." Cale looked uncertain.
 
-"Are the consumers of your... APIs?... are they not expected to put some effort into interpretation as you do into definition?"
+"Are the consumers of your APIs not expected to put some effort into interpretation?"
 
 "They do, but... It's a provider-consumer relationship for APIs. I would provide and document, and they... Huh."
 
@@ -622,153 +714,221 @@ Astrid's heart twisted as she realized just how deep this went.
 
 "Yes?"
 
-"And you are not allowed to be a consumer? Others are *not* providers that should be invested in *your* interpretation?"
+"And you are not allowed to be a consumer?”
 
 Cale's mouth opened, but nothing came out.
 
 Astrid ran her hand along the back of his neck. His skin bristled at the touch, but his mouth slowly closed, and his eyes softened into exhaustion.
 
-"I can't control what others provide. They define their APIs, I define mine. Expecting anything would be entitlement, right? If that makes sense?"
+“Hold on. That was… a lot of philosophy.”
 
-"I... logically that's... sound? But, the implication is that *you* are left interpreting the messy contracts of others while assuming yours is poorly defined? Meanwhile, you have spent *years* refining your contract, while others haven't."
+“Agreed. Where were we?”
 
-"Have they *not*?"
+“The house,” Cale said.
 
-Astrid laughed.
+The house.
 
-"No. Cale. The entire legal industry gets paid top dollar because refining presentation and language is *not* a skill the average person refines. The average person is *terrible* at communication." Astrid paused, then averted her eyes. "Which is likely ironic coming from someone who insults you as a sign of affection. So... perhaps I'm a contributor to the problem."
+Falling asleep holding a body pillow, pretending it was the man who slept on the other side of the wall next to her. Waking up to the smell of bacon with a batch made extra crispy just for her.
 
-Cale's head shook; the curls of his hair brushed against Astrid's palm.
+Standing next to each other in the kitchen for no reason except to be next to each other. Every night Astrid would tap her fist against Cale’s door and say “goodnight, idiot”. And he would have some new retort every time.
 
-"You weren't the first to call me an idiot. I was used to it by the time I got to you. I knew how to read between the lines, even if I didn't have the language skills to understand it back then. It was like I had the patterns in my head but not... the words. It's likely good we didn't meet in freshman year. Teenagers, right?"
+And Astrid would smile.
 
-Astrid glanced back and found that uncertainty in his eyes. He had mentioned thrown drinks in his face...
+It was perfect.
 
-This was not simply a high school problem.
+And then…
 
-She knew it. She had her own number of misinterpretations. Understanding that you need to hear what people mean, not what they say, was most certainly something she understood.
+“We never could figure out what went wrong,” Astrid said. “Six months, and we thought everything was fine. You seemed happy. Then you just… left.”
 
-"You still hear it. The insults," Astrid said.
+Cale didn’t immediately respond.
 
-Cale thought for several moments. "Now? No. But early on in the bar scene? It's rare for someone to vocally criticize... but there were times I could read the silence, hear the words they didn't say. You can see it in their face, the 'what is wrong with this dumbass'? So I learned the scripts, as Diego calls them. I built a deck."
+Astrid squeezed his arm against her and nuzzled his shoulder.
 
-"Cale, I don't think it's ever been a problem with you... I think-"
+“I was convinced it was my fault, you leaving,” Astrid said.
 
-She thought what?
+“Astrid, it wasn’t–”
 
-His conclusion didn't feel like the right answer.
+“--I’m *so* confident in the moment,” Astrid interjected. “When we’re bickering, bantering, arguing, whatever you call it. When we have momentum, I’ll be so sure I have it figured out, that I have you figured out, that I’m playing every move right. But then the silence sets in when you’re not there, and I reflect.” Astrid’s throat caught on a small batch of tears. She let one fall and swallowed the rest. “In the moments between, I would convince myself that it was all my fault.”
 
-But Astrid had no better answers.
+Another tear escaped to join the first.
 
-*She* was now included in contract negotiation because she was invested in him, but, to his point, the rest of society was *not* invested in the relationship. A meaningful contract can't be established if only half the parties are invested in good faith.
+“And I made that worse,” Cale noted. “By giving you more moments between. Fuck.” His head fell back against the couch. “I thought I had it figured out. But I was just making you hate yourself more.”
 
-That was a logical dead end, though it unnerved her. A thought for later.
+Astrid wanted to shake her head. To deny it.
 
-"You know you don't need the... cards... with me, right?" Astrid finally asked.
+But that was what happened.
 
-"Now I do."
+She would let him back in closer because she needed the validation that he *would* come back.
 
-"Good."
+“It wasn’t just you,” Astrid added. “It was like you said. The sadness and fear I worked up in myself over you was addicting. Like letting myself soak in the tragedy was better than feeling nothing at all.”
 
-It still didn't feel like the *full* solution, but the thought that Cale felt safe with *her* felt sufficient.
+But now he was here.
 
-So she dug up a different question, "Cale, you told them about *fantasies*? I-"
+She shifted her legs over his lap and buried her face into his neck. She inhaled, filling herself with the faint scent of his rose body soap.
 
-"No! That was... As much as I pretend, I'm not *that* dumb. Lola and I... play off each other. It's... a game? I don't know how to explain it."
+“Fuck,” Cale said.
 
-Astrid nodded slowly. "No, that... makes sense. Strangely. Just... Give me a bump under the table or something?"
+“Fuck,” Astrid agreed into his collarbone.
 
-Cale nodded slowly. One of their phones vibrated on the nearby coffee table, but neither moved to check it.
+She could feel his pulse against her nose. Steady. Calming.
 
-Finally, he responded, "I promise. No keeping you in the dark. No more Astrid and Cale, we're... Castrid? Astrale? Our ship names suck."
+A reminder that he was here.
 
-Astrid snorted and rolled her eyes, shimmying to mold herself deeper into his lap. For a moment, she simply tilted her head against the seat and studied a curl next to his ear that seemed slightly out of place.
+“You never said why you left,” Astrid eventually said.
 
-"So... how... how much does the L.A. bar scene know about me?" She eventually asked, her eyes briefly turning to his before finding a particularly cute curl in his hair.
+“I started thinking about Zoey’s dad. The manipulation, control. The way things had to be *his* way,” Cale said. His own nose buried into the top of her hair, bumping up into the ribbon. “I think I saw too much of me in him. The way *he* needed to be the one to solve problems. The way the smallest deviations from routine drove him insane. The way he tried to categorize things into absolute ‘right’ and ‘wrong’.”
 
-Cale opened his mouth, but all that came out was an exhale as he organized his thoughts.
+Astrid pulled back.
 
-"Not much. Lola and Miss Pearl are the only ones who know details. Everyone else... I think... it was my own way of... venting? I think that's what Leo would categorize it as. I mean, especially in the early days when I started seeing you less..."
+She studied Cale’s face. He just averted his gaze to the rubber plant, it seemed to be his own personal reminder that *she* was here. He didn’t reveal emotions she could name. Just that resignation. Like he had just admitted something that cost him.
 
-Astrid's lips moved before her brain did, "You mean during your yandere arc?"
+“That’s how you view yourself?” Astrid asked.
 
-She hated the words as soon as they left her lips, and the way his eyes turned down in a rare moment of regret broke something deep inside of her.
+“I’m manipulative, Astrid. It’s easy when things go my way, but when I lose control, I… I get frustrated fast.”
 
-Astrid interjected before he got too far. "No. Cale. I'm sorry, I didn't mean that. That one crossed a line. Lingering habit. Pushing away things that make me feel... well..."
+Manipulative.
 
-"Loved?" Cale offered.
+Even Diego had called him that.
 
-His eyes turned back up to her.
+It didn’t sit right with her.
 
-"Yeah. That," Astrid said.
+He continued, “I started second-guessing myself when I lived with you three. ‘Are they hanging out with me because I’m worth hanging out with, or did I manipulate them into seeing something I’m not?’ I followed our scripts, and each one left me more and more drained. I could tell our fights were getting worse, sharper. I wasn’t happy. I was the most miserable I’d ever been.”
 
-Fuck, why couldn't she still say it? She *knew* it, but the sounds of the word couldn't quite form in her mouth.
+Something broke inside of Astrid. Something deep.
 
-Cale's smile deflated. It was subtle, a motion only Astrid would ever pick up.
+The idea that he had been on the other side of that wall, hating himself, while she practiced kissing on a pillow that did *not* need her affection.
 
-He wanted to hear it. She needed to say it. She knew it. It was inevitable.
+“I wish you had told me,” she whispered. “For what it’s worth, I didn’t notice the fights getting worse.”
 
-"What were you waiting for, then? Four years is a long time," she asked.
+“I might have just noticed myself getting bitter. I don’t know that I would have believed you if you had tried to comfort me, regardless. I wasn’t ready.”
 
-Cale's mouth opened and closed several times; she apparently had asked the right question.
+She liked to think she would have found *something* to say if he had told her he was suffering… Right?
 
-He finally answered, looking slightly past Astrid, "I think I was scared. All of the notes and rules state that I was waiting for *you* to end it. But I'm not so sure anymore. I'm generally good about handling failure. I fail a *lot.* It's practically my entire job, failing forward. But... with you... It was almost like the idea of trying and failing, closing a door, was infinitely worse than walking away with the door still open."
+She wasn’t actually sure.
 
-That... that was what it was, wasn't it?
+“So you moved out. Did it help?”
 
-Fear of an unacceptable unknown.
+“Zoey was there for that part. That helped,” Cale nodded. “Helped a lot. The distance helped. But everyone seemed to have their own ideas on how to help? ‘Just let her go’, ‘find someone else’, ‘don’t think about her so much’, ‘just talk to her’, ‘you’re just playing games with yourself’.”
 
-"For... for what it's worth. I... shared the sentiment."
+Cale’s mouth hung open for a moment, and his arm stiffened again. “Like it was that easy.”
 
-Astrid thought through his earlier statement, and she found her hand playing lightly on the back of his neck. His cheek nuzzled into her palm, spreading a faint smile to both of their faces.
+Astrid sat up and watched as his face began to turn red. His jaw clenched.
 
-Everything on the table.
+Anger?
 
-"Cale, tell me honestly, why me?"
+Cale spoke through gritted teeth, “Like, oh, okay, thanks for the advice! I’ll just control my head!”
 
-Cale raised an eyebrow. "Originally, or now?"
+Astrid shifted out of his lap and placed a hand on his leg. “Cale.”
 
-"Originally."
+“Like I wasn’t aware of my fucking white whale.” Cale’s voice rose incrementally; he glared across the room at nothing in particular. ”Like I’m unaware of the games. Of course I play games! If I *don’t* play games, then I sit around and do nothing while failing class. I-”
 
-He said with no hesitation, "No fucking clue."
+“Cale,” Astrid said louder with a sharp tap on his leg.
 
-It earned a snort from Astrid. "You *are* a romantic to the core."
+“Which one would *you* pick?” Cale spat. “Have fun with pushing the rules to their limits, or rot away because the systems the world already has are just so fucking impossible to navigate?”
 
-Cale winked, but continued, "Honestly, though? Something just... stood out that I couldn't name. Still can't. Now though? Astrid, you care about me. You spent that entire roller coaster line attempting to calm me down because you didn't want me to soak in fear. You've built a whole language of lovingly crafted insults just for me. I have never once heard you insult anyone else."
+Astrid didn’t know what to do with this. She had never, in her entire life, seen Cale angry.
 
-"I have ten more ready for whenever you earn them, by the way." Astrid joked, using the words to push back a welling of tears in her throat.
+“But no! Just because I see what I want and find paths to it, suddenly *I’m* the monster. *I’m* the overly obsessive fucking *yandere* and–”
 
-Cale's eyes latched onto those words for a moment, and she could see cogs turning, but he quickly snapped himself back to the current discussion.
+“Cale!” Astrid snapped her fingers in front of Cale’s face.
 
-"You've always made me feel seen. As twisted as that sounds. Until Leo found me, I was literally no one. My parents never wanted me. The only other family I had was... well... Zoey. I had the social skills of a weasel. Like I said, most people just... ignored me? Shrugged me off? *You* always took time for me, whether helping in school or insulting me, it didn't matter. You saw me. And you cared."
+He blinked and focused on her fingers. The red in his face quickly receded.
 
-This felt backwards; he was the one who was always watching *her*. Had she undervalued what she had viewed as minor moments of sympathy?
+“Look at me,” Astrid said. She didn’t wait. Her hands found his cheeks and turned his face towards her. Neither of them quite made eye contact, but she didn’t care. She had his attention.
 
-Astrid was struggling really hard with those tears. "I think you have our lines mixed up."
+“That’s behind us,” Astrid said sharply. “The self-hate. You want my boundaries? There’s my first one.”
 
-Cale shrugged. "I don't know what to tell you."
+She ran a hand through his hair and felt a surge of satisfaction as he notably relaxed again. She didn’t like him looking tired, but she infinitely preferred it over the rage she had just seen.
 
-The idiot turned his head and kissed her hand.
+“I don’t know if–”
 
-The feeling distracted Astrid long enough for several tears to escape, dripping down over smiling lips. Cale's eyes trailed them down her face.
+“Either of us. We find steps forward. We don’t find reasons to hate ourselves, regardless of how messed up we were. Period. End of clause.” She paused and thought back to Cale’s language. “No regrets.”
 
-"I... I'm sorry. The information games. I should have trusted you more."
+The words hit him.
 
-Astrid's mouth began to form the words "You're an idiot", but she caught herself.
+She could see it. The way his eyes closed. The softening of his jaw.
 
-Those were words of deflection. Cale loved them, but it wasn't what he needed.
+“Fuck,” Cale said. He collapsed back against the seat. “Diego always said I did ‘no regrets’ wrong.”
 
-She knew it.
+“Rule one, Cale. No self-hate. We’re doing our best, even if we don’t feel like it.”
 
-She always had, somewhere in the back of her mind.
+“Self-deprecating jokes?”
 
-Instead, she said, "I didn't give you good reasons *to* trust me. Why would you have? It's like I said. I presented you with a poorly refined contract and put the responsibility on you to interpret."
+Astrid contemplated the line there. “Only when they are for humor. No covering up real insecurities.”
 
-Cale didn't deny it.
+“Agreed,” Cale said.
 
-And she loved that.
+Astrid pulled him into her arms this time. He went willingly, and she tucked his head under her chin.
 
-"We should... do this every now and then. Re-baseline. Revisit assumptions," Cale offered instead.
+For a long while they sat there, the silence only interrupted by passing chatter from far below or the sirens of a passing emergency vehicle.
+
+“Fuck, I love you,” Cale finally said, only slightly muffled into her sternum.
+
+“I know,” Astrid said.
+
+Cale sat up. Long before she saw the way his eyes had wilted, she knew “I know” wasn’t enough.
+
+This was him asking.
+
+He wanted to hear it.
+
+She needed to say it.
+
+It was inevitable.
+
+Was she there? What was blocking her? He had opened up completely to her in ways she hadn’t even imagined. From every angle. He had laid his beating heart into her hand multiple times tonight.
+
+“Draw your boundary,” Astrid said.
+
+“What?”
+
+“Rule two. Draw a boundary,” she met his gaze.
+
+“How?” Cale’s face contorted as if the concept was spoken in a different tongue.
+
+“First, say this is about your happiness too.”
+
+She could practically see the monkeys bashing the typewriters behind his eyes, trying to come up with something original.
+
+“Monkey brain,” she snapped her fingers again and his eyes focused. “Those words. Exactly those words. You don’t need to come up with some fancy way to rephrase it and make them your own. Just say them. ‘This is about my happiness too’.”
+
+“This is about my happiness too?” Cale tried.
+
+“Remove the question mark,” Astrid said.
+
+“This is about my happiness too,” Cale said.
+
+“Again,” Astrid demanded.
+
+“Astrid, this is–”
+
+“*Again,*” she snapped.
+
+“This is about my happiness too,” Cale said.
+
+“Boundary. Draw one. Any boundary,” Astrid demanded.
+
+“I don’t want to water your plants,” Cale said. “I would *actually* die of boredome and I’ve been dreading the day you ask me to do it.”
+
+“Done,” Astrid said.
+
+Cale blinked. “Wait. Really? Just like that?”
+
+“Just like that,” Astrid nodded. “It’s a calming routine for me, and there are services I can hire to take care of them if I’m away. I’ll make it work.”
+
+Cale took a moment to look around the room, re-considering Astrid’s little green family with something that almost looked like relief.
+
+Had *that* really been sitting in his head?
+
+What else did he have going on in there?
+
+**Oh, Astrid.**
+
+**You could fill multiple books with everything going on in that head.**
+
+**I suspect we will, in fact.**
+
+“Huh,” Cale finally said. "We should... do this every now and then. Re-baseline. Revisit assumptions.”
 
 "Agreed."
 
@@ -786,7 +946,7 @@ Astrid shifted on the seat, bringing herself up to straddle his legs, and lowere
 
 When she pulled her face back, she found that smirk.
 
-"Take that off," she said, shaking her head.
+"Take that off," she said.
 
 His shirt was off nearly instantly, and she laughed.
 
@@ -794,21 +954,21 @@ His shirt was off nearly instantly, and she laughed.
 
 Astrid watched as the smirk faded, leaving behind a significantly more subtle smile.
 
-"Cale..." Astrid started, grabbing his eyes.
+"Cale..." Astrid started.
 
 His head tilted ever so slightly.
 
-She procrastinated for a moment, an attempt to piece together the words. "You have been amazing. More than I deserve. But..."
+She attempted to piece together the words. "You have been amazing. More than I deserve. But..."
 
 "Astrid, you-"
 
-Astrid cut him off with a sharp head shake. "No. You internalized enough of this. Let me finish."
+Astrid cut him off with a sharp head shake. "No. Let me finish."
 
 He went silent.
 
 She could do this.
 
-She found more words to push off what she knew had to come next.
+She found more words to procrastinate what she knew had to come next.
 
 "I only hope that I'm able to give you even a tenth of the affection and attention you provide me. Because..."
 
@@ -832,7 +992,7 @@ She said it.
 
 Astrid's breath hitched in her throat. Her heart *pounded* as heat flooded into her skin like a fever.
 
-Cale's eyes went wide, and his mouth appeared to form some word that never escaped.
+Cale's eyes went wide, and his mouth formed some word that never escaped.
 
 Astrid didn't look away.
 
@@ -856,7 +1016,7 @@ The words rang through her whole body, filling her with the emotional climax she
 
 Astrid breathed in and gave a trembling exhale.
 
-"Astrid..." Cale's voice broke, and his chest stuttered on a breath.
+"Astrid..." Cale's voice broke.
 
 She found *every* excuse to use the new, most passionate word of her entire life.
 
@@ -876,7 +1036,7 @@ She placed her hands down on his thighs to support herself as she leaned forward
 
 Cale found words, even if simple ones, and gave a tear-broken laugh. "Fuck, Astrid."
 
-His own hands made it up under her shirt and onto her waist. Her skin bristled at the touch, sending a new jolt of electricity that branched through her body.
+His own hands made it up under her shirt and onto her waist. Her skin awakened at the touch, a new jolt of electricity that branched through her body.
 
 "You're going to *wish* you had died next to my ghost with how inescapable my love will be."
 

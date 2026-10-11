@@ -1,715 +1,1103 @@
+## Mimi
+
 **Hawthorn**
 
 The air *thrummed* with anticipation.
 
-The enormous domed building seemed incapable of housing the roars, chants, and cheers of the crowd. Muffled bass of sound tests cut through the clamor, and the squeaks of sneakers echoed as stagehands found their places.
+The dome seemed infinite; Hawthorn wasn’t sure it even qualified as “inside” versus a small pocket world designed to overflow the sensory overload of electronic-enhanced hyped. It was impossible to distinguish the crowd's shouts and cheers and the general cacophony of fifty thousand freeloaders as they filed into neat rows overlooking the central raised metal platform.
 
-Kenji, whom Hawthorn had finally met in person hours earlier, ran by with a clipboard, giving both Hawthorn and Asuna... well, Mimi a smile and a nod.
+Of course, none of that was quite what Hawthorn was focused on.
 
-This was well-oiled with chaotic precision.
+The itch.
 
-Mimi was, by all counts—as Asuna described—"kawaii-yo".
+He had forgotten about the itch.
 
-Something felt off about a pink wig and face-painted blue hearts on a girl who, not too long ago, had requested Hawthorn kick a toddler.
+The waving glow sticks, the large TVs playing animated music videos, the exhilarating feeling of being part of something bigger than you? Even Mimi herself: the blue and pink frilly dress, the blue hearts on the cheek, and a pink wig that fell just below her shoulders?
 
-The exposed light grey eyes, however, were what really threw him for a loop.
+All a service partaking in the beauty of well-crafted capitalistic exchange.
 
-A tiny part of him felt jealous that others would get to experience that piece of her; he'd come to think of those eyes as his.
+And well-crafted it was.
 
-"Anxious?" Hawthorn asked the stretching Asuna.
+Hawthorn saw every detail. Tallied every cost. Those animated music videos weren’t free. Having someone Asuna trusted on the sound system wasn’t free. The dozens of stagehands scurrying around here and there were more pivotal than anyone would ever realize, and very much not free. He was sure the venue demanded all sorts of assurances and insurance around their provided equipment. The load-in window had been tight, and their load-out window was tighter. Crowd control barriers, budgeting, the metal stage, the marketing that went into *filling* the stadium in the first place.
 
-Asuna shook her head, throwing him an energetic smile which he was beginning to suspect originated from this character.
+The list went on.
 
-"Oh that's the easy part. Just let Mimi take over." She hopped up several times, performing a few skipping circles.
+He kept an eye out for the gaps. It’s what he did.
 
-"Gotta say, I'm excited. Haven't seen you perform. Well, singing in the shower aside." He would sit with his back to the restroom door and let her voice envelop him every time.
+Things misplaced, process going wrong, miscommunications, misunderstandings; he had even checked the rate the merch was selling at earlier.
 
-Asuna turned back to Hawthorn and tilted her head. "You didn't... look up videos?"
+All *meticulously* calculated.
 
-"Nah. Wanted the first time to be raw, you know." He winked. It earned him a laugh.
+And that scent, the well-oiled passionate tang of competence, it slipped right on through layers of regret and self-doubt, and it tickled a slumbering piece of the bear that he had thought dead.
 
-It was honest, though. Hawthorn *had* been curious, but videos never quite do reality justice.
+The need to solve. The need to optimize. The need to *grow*.
 
-The moment was interrupted as Kenji ran by yet again, shouting "One minute!" without stopping.
-
-Asuna's eyes lingered on Hawthorn's, clearly with a touch of anxiety. Maybe he shouldn't have called attention to the fact that it'd be the first time she would perform for him.
-
-Hawthorn looked around, noting nearby stagehands. He couldn't give her a hug of support. But he smiled: the same smile she had given him a day earlier when his mind had been stuck in a spiral in that aquarium.
-
-It seemed enough; her eyes squeezed shut.
-
-**Asuna**
-
-Mimi let the crowd's electricity *fuel* her.
-
-Asuna briefly contemplated how many in this crowd had body pillows.
-
-Mimi banished the thought, hopping to get the blood pumping.
-
-The song started —a classic, a variation on the opening song her mother had used. Upbeat, rhythmic, something the crowd could clap to, something to get them engaged.
-
-She counted off in her head, feeling the routine come back like riding a bike.
-
-Mimi took a moment to consider a newfound desire to learn how to ride a bike, but managed to reel the thought back.
-
-At twelve, Mimi entered.
-
-She was met with an ocean of glowsticks: pink and blue, waving in rhythm.
-
-This crowd felt even *more* alive than usual, as if they knew about the traumatic and life-altering events she'd just come back from.
-
-Mimi breathed in the crowd's aura and exhaled joy: an addictive feedback cycle that satisfied the long-reward-starved idol.
-
-Asuna ran mental math on how many seats were filled, which was almost all of them. The margins here would help fuel many of the investments she had planned.
-
-Mimi banished Asuna, yet again, as she clapped in rhythm to guide the stadium into the first song.
-
-**Hawthorn**
-
-Hawthorn watched, thoroughly impressed, as Asuna proceeded, within the span of thirty minutes, to be a whole new five people that he had never met before.
-
-Each song carried a distinct style, distinct ways of inciting the crowd, and distinct ways of enticing you to get lost in some variation of excitement.
-
-At multiple points, Hawthorn found his foot tapping, and once even clapped his hands.
-
-It was charming.
-
-It didn't help him.
-
-Cale was right. He couldn't, and he wouldn't, get rid of Vanessa. There was no letting go. That was never the intention; it was never even a question, despite how long he had spent attempting to answer it.
-
-Maybe that was the angle.
-
-Identify in the concrete facts, stay fluid on what remains.
-
-There was at least one reserved seat in his heart. Always would be. Even if a piece of Hawthorn had died that day with the love of his life, that love was too strong to not carry over into the next life.
-
-That fact snapped and locked into place with a click.
-
-Easy.
-
-But dancing here before him, raising a mic and orchestrating a sea of simps like they were trained dogs, was not merely one girl applying for a position, but dozens.
-
-And Hawthorn was finding that he loved every single one of them.
-
-Not so easy.
-
-Hawthorn ducked out one of the side doors, emerging into the audience to keep his eyes on Asuna as she moved onto an extended stage in the center of them.
-
-She performed a series of kicks and points, making eye contact with several members of the crowd.
-
-From this angle, Hawthorn could see the smile on her face. It was wide, and it wasn't fake. He knew her fake smiles; she was enjoying *every* second of this.
-
-Their eyes met across the sea.
-
-Asuna didn't break stride or song for even a moment, but remained locked on his gaze.
-
-Hawthorn grinned and tipped his invisible hat to her.
-
-She turned back to the rest of the crowd.
-
-He had asked her to decide what she wanted to do... Why had he asked her that? He wondered if she had that question going through her head right now.
-
-It was the same question he had posed to Vanessa all those years ago.
-
-**Now, some of you might be scratching your heads and thinking, "This is clearly being narrated wrong; there's no way anyone is just standing there and** ***brooding*** **in the middle of the crowd at a concert."**
-
-**Let me pivot the camera across the room to the stands in the elevated mezzanine, where someone is currently waving pink and blue glowsticks in the air while jumping up and down, surrounded by no fewer than a dozen friends.**
-
-**They are in the middle of an existential crisis that comes with realizing that copepods live a much more content life involving significantly less brooding and overthinking, cover substantially more of the earth's surface, and outnumber humans by over 150,000,000,000 to 1. They are correctly realizing that copepods will be around long after humans destroy the surface, and, by most measures, are the master race.**
-
-**Pivoting behind Hawthorn, there stands a couple. One is a boy, one is a girl, I can never keep track of which is which as they tend to exchange wigs and clothes every day. They, too, were cheering and shifting with the music's undulations and Asuna's voice.**
-
-**Before Hawthorn's movement into the crowd, towering over the surrounding fans, one of the couple had been deep in thought. They had been considering JUST the right wordage to win internet arguments and change people's minds mid-conversation.**
-
-**Coincidentally, they had been very close to an actual answer. It would have made the person they were mid-fight with on social media over the categorical definition of "categorical" blink, ask the question "what is wrong with me", then proceed to go to a therapist and find out that they were subject to particularly poorly regulated hormones that caused them to have periods of thinking their opinions were divine in nature.**
-
-**However, as Hawthorn took his position in front of them, both of the couple's minds had simply become a repeat of "kowai, desu-yo". They were half convinced Mimi was about to get assassinated by the russian branch of the Yakuza. They did not, for the record, know how to tell foreigners' nationalities apart.**
-
-**So, yes, Hawthorn was, in fact, standing there with crossed arms and "brooding and overthinking" in the middle of a high-energy J-Pop concert; such an event is not uncommon. He just didn't care if others saw him do it.**
-
-**Anyways.**
-
-**Where were we?**
-
-**Vanessa.**
-
-Was Hawthorn trying to repeat Vanessa? Set up a woman he loved to spend her entire life doing the one thing *she* loved?
-
-He had *no* regrets about Vanessa living out her dreams. *That* was not a source of his regret.
-
-Another fact snapped into place.
-
-Hawthorn couldn't help but smile as Asuna raised the microphone with a radiant cry that rippled through the crowd.
-
-What *did* he regret? Did he want to do that again?
-
-Or was he trying to save a businesswoman from the exact burnout and suffering that he had gone through?
-
-Was Asuna Hawthorn, or Vanessa?
-
-Even assuming he *could* forgive his mistakes, was he repeating them or preventing *her* from making them?
-
-The song ended as Asuna performed a final jump. She walked back towards backstage, microphone still raised high, as the pulsing crowd erupted.
-
-Hawthorn ducked back through the door to meet her backstage.
-
-**Lara**
-
-Lara watched the large American re-enter backstage.
-
-Who was he?
-
-Lara hadn't seen him before today, but the man seemed fairly friendly with both Mr. Aizawa and Miss Morita...
-
-Wait, no. Focus.
-
-She turned her attention back to the job as Mimi ran off the stage. Two bottles of water and several power bars were at the ready, and she needed to make sure Mimi stayed on schedule. The intermission timing was tight, and supposedly, Mimi was prone to losing track of time.
-
-Mimi stopped and exchanged a few words with the American. Both of them glanced over at Lara.
-
-Was Lara not supposed to be here? Mr. Aizawa had explicitly told her to be ready at this spot.
-
-Whatever. If Lara wasn't in the right spot, then they would tell her.
-
-Lara's concerns eased as Mimi smiled at her. The idol scurried over and accepted one of the offered waters.
-
-"Makeup," Mimi stated simply in English.
-
-Lara nodded and escorted her back towards the makeup room.
-
-Lara watched in shock as a power bar was grabbed and devoured in what seemed like one bite. Mimi chugged a water, and then another power bar evaporated.
-
-Lara supposed all of that exercise would make her hungry, too... but that had been almost impressive.
-
-"Was it good?" Mimi asked, tilting her head.
-
-"Yes!" Lara nodded, though she hadn't seen much of it. It was ironic how little of each performance Lara got to see, considering Mimi had been half the appeal for applying for the job.
-
-"I'm glad! It's been a while," Mimi responded.
-
-Lara's attention had been stolen elsewhere, though.
-
-That other stagehand running towards them...
-
-That was the boy from the other day, the one she had hugged. Or the one who hugged her? In any case, the memories of that warmth tightened Lara's chest in all the right ways.
-
-Eyes met, and they both stumbled to a stop.
-
-The air grew thick with an unspoken energy that drowned out the distant bass.
-
-What... what would Lara say? What *could* she say? There was no way he spoke Spanish.
-
-But for the first time in her entire time travelling, she wanted to say something.
-
-He flashed her a broad smile and bowed. It was precise, his back arched perfectly, hands perfectly tense against the side of his legs.
-
-She had never seen one so... refined? Especially not on anyone their age. It was like he measured a perfect forty-five degrees.
-
-Would matching his bow be right? There was a different bow for women, as Lara understood. What was the difference?
-
-She followed the general motion of the boy's boy, but clasped her hands in front.
-
-When she straightened up, she found the boy with parted lips. Did she do it wrong? She would need to practice later. She'd figure it out.
-
-"Lara!" Mimi's voice cut through the thought.
-
-Oh. Right.
-
-"Sorry!" Lara said as she ran past the still-frozen boy.
-
-Mimi laughed, shaking her head.
-
-Lara looked over her shoulder before they rounded the corner towards makeup, but he was gone.
-
-Well, now she knew who he was.
-
-That boy had been sitting in her head for days; she *knew* that she recognized him from *somewhere*.
-
-**Sho**
-
-Sho's heart raced as he ran.
-
-He had several confetti launchers and CO2 canisters to check, but that was far from what was on his mind.
-
-The girl had recognized him, and that moment... the way she had looked at him...
-
-She appeared as if she wanted to say something.
-
-And for the first time in months, so did he.
-
-Did she not speak Japanese?
-
-And the bow... He had never seen a foreigner execute one so *perfectly*.
-
-In any case, the demon lord's army had been in a holding pattern ever since the hug in the garden. They still crept at the corners of his mind, but it was like she had presented him with a powerful shield to fend them off.
-
-His honor *demanded* he pay her back in full, somehow.
-
-He shook the thought off; he would find her again.
-
-For now, he had a job to do.
-
-**Asuna**
-
-Mimi, back on the stage, glanced at Hawthorn's supportive smile as the music kicked back in.
-
-This time, Mimi fell into the familiar rhythm, guided by a decade of muscle memory, while Asuna mulled.
-
-She didn't have an answer.
-
-She loved all of this.
-
-She loved the fans' energy.
-
-She loved calculating precisely how much they would make from t-shirts and figure sales today.
-
-She loved the idea of conducting market research on every single line item currently in her notepad app.
-
-She loved that the old couple, likely Astrid's parents, were currently dominating the mosh pit Mimi had opened.
-
-She did that! How cool is that?
-
-Hell, she loved supporting a stagehand live out her desire for world travel, even if only for a few months.
-
-Mimi scurried back and forth across the stage on autopilot, leaning forward off the stage and raising arms to rile fifty thousand clapping hands.
-
-But Hawthorn wanted an answer.
-
-And she couldn't keep doing everything, right? That was the whole point; they were decoupling her from... the things she loved. Because it was unhealthy, right?
-
-Had they been unhealthy?
+And right here, extending her legs wide and bending forward against the floor in a deep stretch, was someone who needed to learn to *grow*. He didn’t know how the hell her and Kenji had made it to a venue this size with their small team of thirty or so, but he sure as hell wasn’t going to–
 
 No.
 
-The realization hit her as she coordinated the two halves of the room into alternating glowstick waves. She was facing away from the crowd, so it was unlikely that anyone caught the brief flicker of Mimi's smile.
+Hawthorn squeezed his eyes shut and let the cacophony envelop him.
 
-The unhealthy part was being the only one accountable. Responsibility was easy, responsibility was fun. But accountability was hard. Being a single point of failure, *that* had burned Asuna out.
+He was doing it again. He knew where that path led him.
 
-Was this a scaling problem?
+He promised himself. No more accountability. That was a different life.
 
-Was everything always a scaling problem?
+“Y’arr okay?” Asuna asked. He felt a sharp poke in his belly.
 
-Mimi drew a heart in the air and flashed a peace sign in front of her eyes with a wink.
+“Did y’all just try to say ‘y’all’?” Hawthorn snorted and looked down to find those striking grey eyes looking at up him over a wide shit eating grin.
 
-Regardless, it was still a lot. Almost definitely too much.
+“Got you to laugh,” Asuna said with a wink. That was Cale’s wink.
 
-She would need to make sacrifices; Hawthorn would need an answer.
+“Doin’ fine. Collectin’ thoughts. Ya know.” Hawthorn glanced at a nearby monitor showing the stands. Nearly full.
 
-Asuna took control of movements as they prepared to exit the stage and tease the crowd before an encore.
+“You know eventually you gotta *do* something with those thoughts,” Asuna stated.
 
-The encore today was an Asuna song, not a Mimi song.
+“Debatable,” Hawthorn stated.
 
-It wasn't crafted with a tried-and-true formula. There was no market research, no hours spent listening to competitors, no field testing.
+What positions would they even add to start? They definitely needed someone assigned to load-in and load-out; that seemed like quite the single point of failure. Dangerous, to boot. Did she have an HR department? She might not need one at her size, but–
 
-It was a song she had crafted without a proven recipe.
+No.
 
-It had been composed with raw and authentic emotions.
+Stop.
 
-And this would be the first time anyone but Asuna heard it.
-
-She hoped that Hawthorn enjoyed it.
-
-**Hawthorn**
-
-Hawthorn had spent much of his career learning to spot passion.
-
-The continued roars of the crowd barely registered as he catalogued every skip, spin, pivot, and wave that Asuna made.
-
-Most of organizational leadership was people chess: identify what *really* got someone going and position them to tackle it. Identify the gaps in the passion and fill them in. You ended up creating positions around common and effective themes of *passion*.
-
-Typically, you find one, *maybe* two, things that *really* get someone passionate. People liked to specialize.
-
-This girl—*everything* she did—was *passion* incarnate.
-
-Even the way she had interacted with that stagehand, there had been energy that could only be described as perkiness and enthusiasm.
-
-When they had been in recovery mode, he had assumed her work life was frantic, barely making ends meet. Stitching together whatever worked.
-
-But no.
-
-Was *this* what Asuna brought *every* fucking day? To every *fucking* thing she did?
-
-He had been exposed to this; he just hadn't realized it.
-
-It was like Asuna had a mask to maximize the efficiency of *every* interaction. She even brought her fucking all to being *serious*. And when she didn't have one? She learned, and she learned *fast*.
-
-She even dove into burnout recovery as if it were a career-changing project. Which, technically, Hawthorn supposed was not far off.
-
-She was still mortal, though. Even if she had an organization of thousands doing the parts she didn't want, exuding this much passion across so many fronts, it was too much for one person.
-
-For... one person.
-
-The thought echoed through Hawthorn's head along with the last notes of a rather climactic outro.
-
-Asuna drew a heart with her fingers, struck a pose with a peace sign, and winked at the crowd. A surge of cheers and yells erupted, every single one screaming Mimi's name in an organized unison that Hawthorn hadn't thought possible from a group of unemployed freeloaders.
-
-Asuna skipped lightly along the stage, her eyes meeting Hawthorn's. She must have noticed his brooding stone face, as she flashed him that new supportive smile that she had composed just for him.
-
-Hawthorn's heart fluttered, a feeling that had quickly become common again since the aquarium. His own matching smile emerged.
-
-No. Asuna wasn't one person.
-
-And Hawthorn sure as hell wasn't leaving her.
-
-The final fact snapped in.
-
-Hawthorn loved Vanessa; he had no regrets about her life, and he was not leaving Asuna.
-
-The trio seemed to glow with a radiant warmth.
-
-What remained was whether Hawthorn could forgive himself for a life of negligence.
-
-He could figure that out in time; for now, he had a tiny ball of passion to protect.
-
-Asuna stopped barely within the colored tape that indicated where the audience could see.
-
-Hawthorn began to approach, but she shook her head. The crowd still shouted her name.
-
-Ah, encore.
-
-Her head bobbed back and forth to a rhythm, though there was no music. The crowd's chanting stuttered, then swelled; the name "Mimi" could likely be heard throughout the city.
-
-It appeared she was counting out time. Crafting *just* the right amount of tease. Letting the anticipation build, finding *just* the right moment to ride the waves of hyped frenzy.
-
-Her eyes remained on Hawthorn's the entire delay; he could see her chest rising and falling in deep breaths.
-
-She finally nodded and turned, eyes lingering on Hawthorn over her shoulder for several steps.
-
-Hawthorn had expected her to burst onto the stage, to make that bubble of ecstatic restlessness pop and drip fulfillment over the entire dome.
-
-She walked.
-
-This wasn't Mimi, at least no part of her that Hawthorn had seen tonight. That gait was precise, yet organic and natural.
-
-Was this Asuna?
-
-The low energy hushed the crowd. The stark contrast between the idol who left the stage and the one who returned heightened anticipation, filling the air with a poised readiness.
-
-Hawthorn found himself moving up as far as he could, attempting to get a look at Asuna's face. He could see stagehands on the other side of the stage doing similar.
-
-She turned her head to him as the first notes began to play, and smiled. It was brief; she needed to turn back to the audience. But the implications were not missed.
-
-She had his attention.
-
-With a visible deep breath, her mouth opened, and her voice filled the silent dome.
-
-Now, Hawthorn wasn't really a music specialist.
-
-He knew that every song today had been unique. But every single one had been upbeat, and any breaks in rhythm or hints of conflict only served to build anticipation for some climax that lulled you into losing yourself.
-
-This song was not that.
-
-It was slow, organic, almost haunting, and the conflict in the tone existed simply to exist. But, despite the conflict, it carried a radiant, heartwarming buoyancy.
-
-The tension in his body evaporated. That damn pesky smile that found this girl to be phenomenally attractive splayed across Hawthorn's face with no resistance. Hawthorn sighed like a fucking high school girl staring at a crush.
-
-Asuna had, in merely a few measures, grasped the connection between their hearts and ripped it *wide* open.
-
-And the lyrics...
-
-Love that spanned lifetimes.
-
-A god loved a mortal.
-
-And reshaped the entire world, purely for the mortals' happiness, going as far as giving up their own heavenly powers.
-
-Hawthorn had expected it to highlight the asymmetry of lifespans, the unfairness, the sadness of loss. Those seeded points of conflict in the tone seeped into his skin, craving resolution.
-
-But it didn't.
-
-It simply celebrated the mortal's bliss.
-
-Hawthorn wiped away a traitorous tear that escaped.
-
-Hawthorn had once believed in the holistic interconnectedness of the universe. That everything happened for some reason, part of some grand plan that was simply too complex to perceive.
-
-He had viewed himself as a pawn in that plan. A pawn who, he had thought, played his role pretty fucking perfectly. The number of times he had been in *just* the right place, at *just* the right time, and *just* the right person to solve *just* the right fucking problem simply couldn't be ignored.
-
-And he had been in *just* the right place, at *just* the right time, to find Vanessa failing a fourth attempt at college, broken and lost.
-
-And he had been *just* the right person to make sure she never needed to be subject to failure ever again. She led a life of perfect joy, doing what she loved.
-
-Asuna's question from that first night echoed in his mind: "What would either answer change?"
-
-This song spoke truths. That life... Vanessa's life... Hawthorn's decisions... they weren't parameters to be adjusted; they were constants, just as unchangeable as his love.
-
-There was nothing to change. "Forgiveness" or not, that wasn't the point.
-
-"No regrets" had never been about forgiveness. It was about good faith, not in the universe, not in others, but in himself.
-
-He *had* done his best.
-
-The power of hindsight didn't change the fact that the decisions he had made were made with a different perspective, a different context.
-
-With what he knew now, would he do something different? Absolutely. Had he been operating with that knowledge? No.
-
-But Vanessa had been happy. Hawthorn knew that. She could have been happier, but she *had* been happy.
-
-He *had* been a good pawn, right up to the point in that hospital room, the moment the monitor flatlined, while he was fucking helpless to do *anything* about it.
-
-But then, exactly a year later, by some impossible to ignore "coincidence", in that very same room, he found another girl. One who had very *nearly* been at the end of *her* own life, a life he *had* saved. And this girl, he could do *everything* for.
-
-This pawn knew its direction.
-
-And he would do his best.
-
-The song swelled for one final measure. It offered no resolutions. Simply an open ended celebration.
-
-When had she written this?
-
-Hawthorn's mind traced back to every moment together. The times he caught her sneaking glances at her phone. Why did she *sneak* glances? That smile in the aquarium... "Naomi"'s smile. The one she used when hiding something.
-
-A final realization hit.
-
-The advice he had been giving... That had *not* been advice for Asuna. That had been advice for himself and Vanessa. Lessons from a separate life.
+The itch was there, nonetheless.
 
 Fuck.
 
-It was behind him.
+A sharp jab in his stomach snapped him back once again.
 
-No regrets.
+“I’m going to start drawing on your face when you do that, and it’s going to be a penis,” Asuna said. “It’ll give Kenji a heart attack. Do you want to do that to Kenji? Do you want to kill my best employee? That’s blood on *your* hands.”
 
-What was in front of him was an impossibly passionate woman who had poured her heart into a stadium of NEETs for him.
+Hawthorn stared.
 
-If his heart didn't have space for Asuna, for this impossibly giant woman, then it would need to learn to fucking grow because it was about to get cramped in there.
+Mimi stared back.
+
+Don’t reward her. It was bad.
+
+Hawthorn snorted.
+
+Fuck.
+
+Asuna grinned and took a few steps back towards the stage. She bounced on her toes a few times, closed her eyes, and when she opened them, the smile she wore made Hawthorn’s breath catch.
+
+**Mimi**
+
+Not beaming.
+
+Charming. Add a touch of knowing to that smile.
+
+Perfect.
+
+Peace sign, other hand on the hip, butt out.
+
+Good.
+
+And look straight into his eyes like he’s the only person in the world that matters.
+
+Hold it.
+
+**Hawthorn**
+
+It was like she had turned straight into one of those bubbly cartoon characters on the billboards.
+
+The passion she put into crafting that was… Hawthorn didn’t have a word for it.
+
+All of this. Everything she did.
+
+Passion.
+
+A piece of his stone wall chipped in the form of a slight twitch up off his lips.
+
+“Asuna, you look so…”
+
+What was a word?
+
+**Mimi**
+
+Mimi’s eyes widened as the words left his lips. The peace sign slowly fell to her hips.
+
+The way he was looking at her.
+
+Into her eyes.
+
+*Her* eyes.
+
+“So…?” Mimi said quietly, barely loud enough to hear over the continued roaring.
+
+“So…”
+
+**Hawthorn**
+
+This girl told him to kick a toddler the other day.
+
+Hawthorn snorted.
+
+“Ridiculous,” he said.
 
 **Asuna**
 
-Asuna took a deep breath as the song ended.
+The energy drained straight through her toes and into the smoothly laminated floor.
 
-The crowd raged in a chaotic frenzy, having experienced something distinctly new and different from their beloved idol.
+Asuna glared.
 
-She was glad they enjoyed it.
+“The term is ‘*kawaii-yo*’,” she grumbled.
 
-It hadn't been for them.
+He was teasing her. She knew it. Why had that bothered her this time? What had she expected him to say?
 
-Her eyes lingered on the pulsing masses, the waving glowsticks, raised phones, and flashing cameras. She waved and bowed as Asuna; Mimi was tucked away for the night.
+*“Mimi you’re adorable and I want to take you home and hold you in my strong and protective arms and keep you safe from the overbearing endless onslaught of obligations that you overcommitted to?”*
 
-But Asuna was procrastinating.
+Huh.
 
-When she stepped off this stage, she would be stepping into an unknown future.
+That had been strangely specific.
 
-And she still had no answer on what she wanted that future to be.
+Two pairs of sneakers squeaked against resin from down the hallway.
 
-Who the fuck was she?
+**Sho**
 
-The only thing she had learned was that this was yet another aspect of her that she loved. Composing and channeling pieces built to evoke rather than rile.
+Sho’s feet stepped with purpose next to his new… Manager? Whatever Mr. Aizawa was to him now.
 
-Could she face Hawthorn without answering? She supposed there wasn't a deadline or anything. But... The longer the question remained open, the more she felt like she was failing her task.
+Ahead of them, standing not too far from the backstage noise insulation curtains, the new American reached out and ruffled Mimi’s hair. The sharp glare she gave the man was intimidating enough to make Sho stumble a step.
 
-Asuna gritted her teeth and turned to her future.
+“Did he–” Sho began to ask. He cut himself off, it wasn’t his place to question elders, especially wise ones like Miss Morita.
 
-Her future was *grinning*.
+“Don’t mention it,” Mr. Aizawa stated firmly. “It is their business.”
 
-Grinning?
+“Yes sir,” Sho said.
 
-His eyes were *beaming*.
+Sho kept a respectful distance while Mr. Aizawa, Miss Morita, and the American discussed something in English.
 
-Beaming?
+He glanced around to take inventory of lifts, traps, carts, anything needed for scene changes.
 
-This didn't seem like the fake grin he used over the phone with Kenji. This was... he was giving her her own grin back? Was this Vanessa's grin?
+Well, that’s what he told himself he was doing.
 
-Asuna walked forward, the audience forgotten, her lips parted.
+His focus bounced around the various other stagehands that popped in and out of his vision, searching for bushy hair, amber eyes, and that smile.
 
-"Hawthorn," she started. What was she even going to say?
+She would be here, right?
 
-"No. Not here."
-
-Hawthorn looked around at the various stagehands who rushed about. Asuna knew that no one would be focused on them, though. Not for a few minutes. Her part was done, Kenji's had begun.
-
-Hawthorn ducked them behind two folded curtains, which opened up into an enclosed area of privacy. The curtains muffled the frenzied noise outside, allowing them to speak at relatively normal levels.
-
-"You liked it, then?" Asuna smiled nervously as the two came to a stop a mere foot away from one another.
-
-Hawthorn laughed, *actually* laughed. "When... When did you write that?"
-
-Asuna thought back to the many afternoons and evenings spent in the master bedroom, humming under her breath while Hawthorn showered. In Osaka, once she had her phone, she coordinated with a contracted composer to have a melody synthesized.
-
-"I might be bad at vacation," she admitted.
-
-Hawthorn shook his head with a sigh. His mouth remained open like he was searching for words.
-
-He wants an answer... Why else would he drag her back here?
-
-She grabbed the first thing that came to mind. "Singing. I want to sing. Love songs."
-
-"What?" Hawthorn asked, his brow furrowing in confusion.
-
-"'Who the fuck are you?' I'm a singer."
-
-Asuna did her best to smile, though the lie hurt. There was no way he'd buy it, either. Who was she kidding? He saw right through her on day one, and he'd see right through her today.
-
-Hawthorn snorted and shook his head. "No! No! Forget that. You're Asuna."
-
-Was he saying that she's not Mimi? Granted that song was an Asuna song, but... had he picked up on that? She didn't think he had a solid grasp of her masks yet.
-
-Asuna searched hard, but there was only one word that felt appropriate, a Japanese word.
-
-"What?"
-
-Asuna found two large hands on her shoulders. She glanced between them before turning back to Hawthorn.
-
-What was this?
-
-"Asuna. You are Asuna. All of that, the business, the idol, the food, even Naomi to some extent, it's *all* Asuna."
-
-That smile, practically ear to ear... it... was authentic.
-
-Asuna found yet another use for the word still on her tongue.
-
-"What?"
-
-Hawthorn inhaled and exhaled deeply, seeming to prepare himself for the words that came next.
-
-"I was wrong."
-
-Asuna, meanwhile, was finding great value in her single choice of word.
-
-"What?!"
-
-Hawthorn lowered his hands and shook his head. "I'm not saying those words out loud a second time. Everything I've said, forget it."
-
-Everything? There were a *lot* of lessons she had learned that most certainly had value.
-
-"Everything? Hawthorn-"
-
-"Oh yes, everything."
-
-What did that mean, though? What were the actionables?
-
-"Hawthorn, what do I do then?" Her eyes met his, pleading. At this point, *she* needed an answer.
-
-His smile widened. "Whatever you want."
-
-Like that explained *anything*. Did Hawthorn not have answers? Did *Asuna* have answers?
-
-The curtain rustled, and a muffled, yelled instruction reminded them that they were merely feet from fifty thousand people and a dozen or so staff.
-
-Neither of them so much as winced.
-
-"But what if I want to do everything?"
-
-He briefly laughed, crossing his arms with assurance. "Then we do everything."
-
-Asuna turned her head away briefly, trying to think of how to further push back on this insanity. Why was she pushing back?
-
-There was, however, a word in his statement, an important one.
-
-Hawthorn had always been very meticulous in establishing Asuna and Hawthorn as separate entities that had mutual and tightly coupled interests. But he had just said...
-
-She turned back, attempting to contain hope that seeped out of every pore. "We?"
-
-Hawthorn nodded. "Yes. I spent one life more distant than I want from the love of that life. I'm not about to repeat that mistake."
-
-Did he... call her...
-
-Asuna's heart beat rapidly. She looked down and found shaking hands.
-
-She had just spent two hours performing flawlessly with surgical precision in front of fifty thousand people. Yet, here, a single implied confession of love seemed to shatter her to her core.
-
-She grabbed onto any excuses that came within arm's reach.
-
-"Hawthorn, I clearly was overwhelmed."
-
-Why was she fighting this? He was giving her what she wanted. *Everything* that she wanted.
-
-She was scared.
-
-What part scared her?
-
-Hawthorn was *not* scared. "And when we find things that overwhelm you, we're gonna hire some other poor schmucks to do the parts that you don't want to. It's called delegation. Besides, you said it yourself. You get shit done, and I keep us directed."
-
-Asuna looked around at the pocket of space they had, as if someone would hand her another justification, any reason to back away from being handed every hope and dream she ever could have desired.
-
-"What if we can't? You're suggesting the answer is to throw both of us into the fire. What if we're just signing us up for an eternity of burnout?"
-
-Hawthorn's grin faded, leaving the faintest of smiles that only Asuna would ever pick up on. His eyes narrowed with affectionate conviction.
-
-He stepped forward, closing what little distance existed between them. Asuna's breath caught, head tilting back to stare up into those stable and focused eyes. Her lips parted as two firm hands found her waist.
-
-Hawthorn's voice was commanding.
-
-This was a voice that was evolved to crack mortals open to their souls. A voice that could shift entire industries on a whim, a voice that had the confidence to make or break thousands of jobs with a single word.
-
-The perseverance, the willpower, the unshakeable inevitability of the entire universe seemed to coalesce in his complexion, propelling forward a single, definitive, and unbreakable assertion.
-
-"Then we burn together. *No regrets.*"
-
-Now, Asuna was not one for romance. Romance was inefficient.
-
-The idea of emotions superseding logic? It was a relic, had no place in modern professional society. This was the age of fact and logical action. Analyze, act, analyze, act. To pretend otherwise was a waste of time. And time was expensive.
-
-With those six words reverberating through every fiber of her existence, said by the man who had spent weeks logically compartmentalizing every aspect of emotional growth needed to achieve his end goal...
-
-Asuna began to understand how emotions could move nations.
-
-Every piece of love, lust, sadness, and joy that she had shared with this man convoked through her body like an implosion.
-
-She trembled with a thrill, as if looking out of a helicopter before jumping, hoping their parachutes were well-tested.
-
-The only thing that kept her stable, kept her standing, were those eyes. That impossibly solid gaze seemed to cling right back onto her.
-
-She had no words. There were no words.
-
-She reached far and found two: "Oh fuck."
-
-Hawthorn's body shuddered. His eyes carried a deep passion that Asuna had never seen in him before. A zealous fervor that screamed, "You will have the world, and I will have you".
-
-He grabbed onto the words that Asuna had released and maximized their value.
-
-"Oh fuck."
-
-Asuna felt her feet leave the ground.
+She didn’t quit, did she?
 
 **Lara**
 
-Lara scanned the area. Mimi was supposed to be here?
+Lara beamed at the long table in the break room, set with several dozen tiny plastic boxes of rice, karaage, and hamburg steak. She had added a dash of Sazón Casero to the hamburg steak sauces. She hoped it wouldn’t be too foreign.
 
-Lara had been delayed; she had hoped to catch that boy backstage, but couldn't find him.
+Several others grabbed boxes and began to wolf down the contents without a second thought.
 
-Everyone was running around and wrapping up shop, hoping to get home fast. Cases rattled, the soft thudding of feet against the stage could be heard from all directions, and Kenji shouted instructions further back stage.
+The polite groans of appreciation were all she needed.
 
-Maybe Mimi left with the American? But Kenji told her she'd be here.
+Cheaper than a catering company, she got to use a professional kitchen, and her temporary family would be fed.
+
+Lara flashed a smile at the ravenous stage hands.
+
+The smile faded as her headset crackled to life and “*kaien sanjuppun mae*” was called.
+
+San… Ju… Um… Thirty.
+
+The way everyone else checked the clock but didn’t move, she was guessing they had thirty minutes.
+
+While a few others rushed past Lara to shove food into their faces before the show, Lara’s steps stayed light and carefree as she drifted into the hallway and headed toward makeup.
+
+Let everyone else have their fires. Lara was on her time.
+
+**Hawthorn**
+
+“Did y’all say it’s *on fire*?” Hawthorn asked.
+
+“That’s the… um… yes,” Kenji said, holding up his phone. It did, in fact, display one of their loading trucks with a burning hood.
+
+A million questions flooded Hawthorn’s head. Various forms of “how” and “why” and many, many iterations of “what?”
+
+Asuna grabbed Hawthorn’s phone out of his pocket and looked at the time.
+
+“I don’t have time to–”
+
+“Y’all ain't doin nothing,” Hawthorn said firmly. He gave her the look. No questions. No arguments. No–
+
+“Hawthorn, I’m the one with the contract for–” Asuna started, clearly not caring about the look.
+
+“Send it to Mr. Aizawa,” Hawthorn stated. “You have one job. All of tonight. You are Mimi. Heard?”
+
+What was he doing? Was he directing?
+
+Asuna and Kenji shared a look. Hawthorn had seen the look a million times in his life. It was ubiquitous, a brief moment of silent discussion before a power shift.
+
+Fuck.
+
+He was doing it again.
+
+But that itch… he couldn’t fight it.
+
+“Heard,” Asuna said. She turned with finality, took a few steps, and continued to warm up through a series of energetic hand waves and foot slides.
+
+“Mr. Aizawa,” Hawthorn said as he took a brisk pace towards the loading dock. “Fire department–”
+
+“Already on the scene.”
+
+“Forward the truck contract to me. Liability on our part? Negligence?”
+
+“The engine was left running,” Kenji noted. Hawthorn clocked the stagehand with the messy black hair fall in step behind them without a word.
+
+“Our driver?”
+
+“Yes.”
+
+No fluff. Direct answers. Perfect.
+
+Hawthorn switched to Japanese, so their trailing stagehand could understand. “Who’s in charge of load-in and load-out?”
+
+“Miss Asuna is–” Kenji started.
+
+“When she’s not around. Who makes the calls?”
+
+“Formally? No one. Informally, Sho,” Kenji nodded behind them.
+
+Hawthorn turned. He sized up the young man. His hair was a mess, and he held himself straight with a confidence no one that age should have. Hawthorn knew better than to judge by appearance alone.
+
+“No!” Sho waved his hands in an X. “Mr. Aizawa humbles me. I am–”
+
+Yup. This was his man.
+
+“Mr. Aizawa, send me the contracts. Sho here will sort out the logistical changes for the evening. I’ll handle the relations with the rental agency.”
+
+And probably network to get them a deal for a contracted dedicated driver on a good deal. One fewer thing for Project Galaxy to handle.
+
+“I couldn’t possibly–” Sho began.
+
+“Sho, listen to Mr. Morisset.”
+
+No going back now.
+
+He had taken ownership over a problem, and there was nothing that would stop him from following through.
+
+Fuck.
+
+“What should I do?” Mr. Aizawa asked.
+
+Fuck. Fuck fuck.
+
+“Whatever you were doing, but minus the loading bay.”
+
+Countless branching patterns filled Hawthorn’s mind with the statement. Organizational structures, unknowns to resolve, the balance of explore and exploit. The fact that the answer to “a third-party piece of equipment had malfunctioned” had resulted in the answer “our lead idol needs to make a call” was a holistic problem.
+
+And that holistic problem needed compartmentalization and prioritization.
+
+The thought brought with it a jolt of energy that Hawthorn had not felt in years, even before Vanessa’s passing.
+
+Kenji bowed, then took off towards the sound booth.
+
+“Sho. Powerful name for a powerful man. Let’s go figure out what to do with a burning truck.”
+
+“If you insist, sir.”
+
+That itch was going to get scratched.
+
+**Mimi**
+
+Mimi watched Hawthorn walk off with Sho. They disappeared around the distant edges of the noise-canceling curtains.
+
+He wasn’t going to watch.
+
+She… shouldn’t care that he didn’t. Right?
+
+Mimi was just business, after all.
+
+No.
+
+No brooding.
+
+That’s such an Asuna thing to do. Apparently. Brooding. Mimi doesn’t brood. Mimi emotes.
+
+She breathed in the energy of the crowd and slipped back into warm-up. The thrill of those first few moments on the stage teased the edge of her mind, and she let it envelop her.
+
+No thoughts.
+
+Just action.
+
+Two hours of *doing,* with no other obligation in the world. Every step, every note, every smile, was calculated, crafted, practiced, and refined through years of repetition.
+
+The remaining twenty minutes passed quickly.
+
+The first notes of her intro hit. Her feet hit the ground. She flicked her hair on the way out as spotlights blinded her temporarily.
+
+Her throat opened, and she put her whole chest into it.
+
+“*Konbanwa Tokyo!”*
+
+And the dome erupted.
+
+The itch vanished.
+
+The worry about burning trucks vanished.
+
+The persistent need to look up the best counter for Iron Tager’s annoying Spark Bolt vanished.
+
+The spreadsheets would come later. Final ticket sales. Merch numbers.
+
+All that existed was the stage, the sea of glowsticks, and fifty thousand of the greatest fans in the world, here for *her*.
+
+Mimi.
+
+**Hawthorn**
+
+“How’s she holding up? I’m hoping forty minutes of silence is good news,” Hawthorn said into the headset on a frequency that reached only Kenji. He held his phone a few inches from his other ear while trying to tune out the insurance company's annoyingly perky elevator music.
+
+“Flawless, as always.” Kenji’s voice crackled back.
+
+Good.
+
+No one would ever need to know that their beloved little Mimi had been roughly three inches of steel away from never performing again.
+
+Out here, in the vast and open concrete space dotted with dollies, crates, and packing palettes, Hawthorn could actually think. The distant bass still cut through the walls as a persistent *thump thump thump*, but it was nowhere near as bad as the absolute assault on the senses that immediate backstage had been.
+
+Across the loading bay, Sho worked with pencil and paper to reorganize twelve trucks of equipment into eleven. As Hawthorn had expected, the young man threw himself into the problem.
+
+Passion.
+
+Project Galaxy was full of it.
+
+And it all swirled around a single woman who had taken the “in-the-trenches” leadership style a bit too far. The employees like Kenji, like Sho, they threw themselves into their work because at the top sat a devoted woman who put effort into each and every one of their contracts, into making sure their jobs were comfortable.
+
+Hawthorn wasn’t quite sure how much of it was perfectionism and how much was shielding. Asuna was most certainly a perfectionist. *“If you want things done right, do them yourself.”* was not an unfamiliar phrase to her.
+
+But she cared, too.
+
+Why would she find ways to fit a girl who doesn’t even speak Japanese into the roster? Equity was definitely part of Asuna’s unspoken vocabulary; but how much time had she put into contemplating the line of “undue hardships”?
+
+Wait, was he investing in the future of the company or the future of Asuna?
+
+He tried to picture how he would have responded to the burning truck if Asuna hadn’t been there.
+
+It didn’t fit.
+
+He couldn’t picture it because he wouldn’t be here.
+
+He was standing in a *loading bay* at the venue for a *J-Pop* concert, coordinating with a *stage-hand,* while holding the most vague job description of “Security Advisor” he had ever seen written on paper.
+
+A month ago, the thought would be laughable.
+
+And here he was.
+
+Asuna never asked him to be here.
+
+He never asked if he should be here.
+
+And here he was.
+
+Fuck.
+
+How does that compute against Vanessa?
+
+**Sho**
+
+Was Mr. Morisset brooding?
+
+With that coat, Sho could practically picture the man snapping a gloved hand and sparking fire into the air while ruminating on the past crimes in the Ishvalan War.
+
+Oh wait.
+
+Sho had a job.
+
+An important one.
+
+If he failed, Miss Morita would likely end up going out and renting–and driving–a truck herself again. Sho did not want that. She needed a break.
+
+Sho returned to the small game of Tetris that consisted of sketched boxes of palettes and equipment. Hawthorn had asked for eleven trucks. Sho was pretty sure he could get it down to eight.
+
+He sure hoped the concert was going great.
+
+**Asuna**
+
+The concert was going *terribly*.
+
+Only sixty percent of the audience had bought glowsticks! They were pretty! Asuna even went all in on the ones that syncronized and made patterns across the crowd. Lose yourself in the appeal of mob mentality capitalism, damnit!
+
+The chill splash of water against the back of her throat cleared her head.
+
+“Time?” Asuna asked in English.
+
+“Ten minutes,” Lara responded. Minimal as always.
+
+Asuna wondered why the girl hated English so much. She knew she could speak it.
+
+She pushed the thought aside, and glanced around the dimly lit space. The monitors showed half of the stadium empty as fans took restroom breaks, stretched legs, and hopefully committed to investing in the collective glow-stick powered group think.
+
+Maybe the high tech ones were too expensive?
+
+“One heart is wrong,” Lara said.
+
+Asuna stared at Lara’s raised phone and noted how one of her cheek hearts had distorted from a bead of sweat that sat too long.
+
+Ten minutes. That should be fine.
+
+“Makeup,” Asuna said.
+
+Lara beamed and they made their way towards the back rooms.
+
+Where was Hawthorn?
+
+**Hawthorn**
+
+“No, an engine catching fire from being left running for an extra thirty minutes is *not* negligence on the driver's part,” Hawthorn said. They walked briskly through the hallway, while Hawthorn’s gaze swept for Kenji. Sho’s pencil kept scratching against the paper as they walked.
+
+Hawthorn didn’t even register the bullshit the claims agent responded with.
+
+“Listen,” he said. “Project Galaxy has been a low-cost client for a decade.” He didn’t need to mention the part where they were low cost because insurance claims were the last thing Asuna ever found time for. “To be blunt, we’re in the market for a new provider.” Absolute, blatant lie. It was the lowest item on the to-do list. “Organizational growth is seeing pressures we hadn’t anticipated with our original terms, and at the very least a revisited contract is on the menu.” Definitely a lie.
+
+Sho held up his paper to show seven trucks. Weight distributed front and center to minimize swerve risk. Packed to the brim, but packed. Hawthorn grunted in approval.
+
+Wait, what had the agent responded with?
+
+Something positive, Hawthorn thought.
+
+It didn’t matter.
+
+“Pass it up the chain; I’m mid-event right now. Shoot us an email with next steps. Thank you for your honest takes; I’m looking forward to our next communications.”
+
+He hung up.
+
+They just need to get Sho’s plan approved by Kenji, who’d have better context than Hawthorn on the equipment–
+
+Wait, why was Hawthorn alone?
+
+**Sho**
+
+Out of the corner of Sho’s vision he could make out Mr. Morisset turn to look at him.
+
+That’s not where his focus was.
+
+The girl stood in front of him.
+
+*The* girl.
+
+The one who could fight off the demons and made Sho’s heart hammer against its cage.
+
+She was right there. Looking at him. Her mouth hung open, just like his. Was she searching for words too?
+
+“*Hola,*” she said.
+
+What?
+
+**Lara**
+
+“Konbanwa,” the boy said.
+
+What?
+
+That was one of the hellos, right?
+
+“Konbonwa,” Lara replied.
+
+The boy smiled, then quickly hid it.
+
+She knew she knew him from somewhere. The boy from the park.
+
+The *hot* boy from the park.
+
+She just wanted to run her hands along that muscled back again.
+
+**Sho**
+
+Sho was in love.
+
+That’s what this was.
+
+The way her eyes seemed to sparkle, the edges of his vision blurred and she was suddenly the only thing he could see.
+
+Just like in anime.
+
+His hairs stood on end, his stomach fluttered, and–
+
+**Asuna**
+
+“Lara!”
+
+**Hawthorn**
+
+“Sho!”
+
+**Asuna**
+
+Asuna rolled her eyes as Lara quickly scurried to catch up with her.
+
+Young people were awkward. Staring at each other like that. Get your emotions in check. We’re on the job.
+
+As they turned down the hallway towards the stage, Asuna glanced over her shoulder at the retreating broad shoulders of Hawthorn.
+
+He just happened to look back at the same time.
+
+Eyes met.
+
+Her heart performed its own somersault.
+
+Shit.
+
+She turned away.
+
+No time for that.
+
+Mimi’s back on.
+
+Don’t think about how much you need Hawthorn there, watching. That’s a future Asuna problem.
+
+**Hawthorn**
+
+Mimi’s voice was pretty good.
+
+Or at least it sounded good, muffled through the walls.
+
+It had been about thirty minutes since intermission ended. Kenji and Sho leaned over a desk in the small office with Sho’s sketched plans between them. They chattered in Japanese about stage-hand allocation for the evening, but Hawthorn didn’t quite hear them.
+
+Back to nine trucks. Which was notably still lower than eleven. The subject matter expert on the loading bay was with the subject matter expert on the organizational structure. Hawthorn had done his job.
+
+And Mimi was performing.
+
+Everyone was exactly where they needed to be.
+
+**Asuna**
+
+*Where was Hawthorn?!*
+
+Legs pumped, her body bounced, the smiles flowed, and the skirt of her dress swirled and fluttered. Her chest, her throat, her mouth worked at maximum effort, bombarding her with her own pitch-perfect voice from the speakers that lined every surface of the dome.
+
+Mimi ran on autopilot.
+
+Asuna couldn’t push back the thought anymore.
+
+The itch.
+
+This was a new silence.
+
+The silence of his absence.
+
+And that silence was louder than fifty thousand fans.
+
+Why?
+
+Was this because of the answers she owed him? About herself? Her future? Her identity? The fact that she *still* hadn’t perfected his so-called art of “do nothing”?
+
+But the sight of him walking away in that hallway…
+
+He was helping her.
+
+She knew it.
+
+Why was he helping her?
+
+None of this was in his job description. He was a consultant. She asked questions, he answers them.
+
+**Hawthorn**
+
+Something tugged at Hawthorn as the distant song transitioned into something with metal behind it.
+
+An itch.
+
+Not the need to *do*.
+
+A deeper one.
+
+One he had only felt for one person before. That screaming silence of absence. Asuna’s absence.
+
+The silence he still felt for Vanessa.
+
+“Excuse me,” Hawthorn noted. “Text me if you need me.”
+
+He slipped out of the room and made his way towards the noise. Her voice.
+
+Asuna’s voice.
+
+**Asuna**
+
+No, Asuna was brooding again.
+
+The craving that her voice would reach out, grab Hawthorn, and pull him to her was silly. Inefficient. Pointless. She had a job right now.
+
+Mimi made her way to the edge of the stage and gestured her palms outward. The crowd parted as if a thread attached them to her fingers, and several people filed in and began to slam into each other shoulder first.
+
+She did that.
+
+She might have stolen the idea from Babymetal, but it was her, right now, doing it.
+
+And the fans ate it up.
+
+She had the love of *millions*.
+
+That was validation, right? The confirmation that twelve years of throwing herself into the fire was worth something, provided value; that she *was not lazy*.
+
+The fact that what appeared to be Astrid’s parents fell into the crowd and smashed into a small group of guys a third their age- that was *Asuna* who did that.
+
+So it would be *ridiculous*, *pointless* for her to get caught up on the absence of one, single–
+
+**Hawthorn**
+
+The smile slipped off Mimi’s lips as her eyes met Hawthorn’s across the sea of glowsticks.
+
+It was only a moment.
+
+He suspected most would chalk it up to a trick of the light.
+
+But he had seen her mask crack before. He knew what that had been.
+
+Wait.
+
+His hand rose to his own mouth.
+
+**Asuna**
+
+He was here.
+
+And he traced the smile on his lips like it was a foreign material.
+
+Fuck.
+
+No.
+
+Mimi.
+
+Keep the routine. No one saw the smile flicker. She was fine. This was fine.
+
+**Hawthorn**
+
+This was not fine.
+
+He couldn’t fight it.
+
+He had feelings for this woman.
+
+Every instance of her.
+
+The one who had flirted with him in a hospital while sporting a knife injury from a fanatic fan. The one who talked industry verticals like they were picking from a wine menu. The one that prowled and pounced. The one who could get awestruck by a giant ocean mammal. The one that sucked at video games.
+
+And now the one who raised their hand above their head and orchestrated a sea of simps into a wave-like sway as if they were trained dogs.
+
+Fuck.
+
+Hawthorn placed his back against the wall. He didn’t have the greatest angle. The entire right side of his vision was blocked by the part of the stage that extended towards the center.
+
+But he could see her.
+
+Fuck, those eyes.
+
+Fuck fuck fuck.
+
+**Asuna**
+
+Shit shit shit.
+
+She couldn’t get him out of her head.
+
+Someone was *definitely* going to notice her prioritizing this side of the stage.
+
+**Lara**
+
+Mimi was spending a lot of time on that side of the stage.
+
+Was that the American watching her?
+
+**Hawthorn**
+
+Okay.
+
+Let’s do this.
+
+Compartmentalize.
+
+Prioritize.
+
+No regrets, right? That was the goal?
+
+Vanessa.
+
+A *lot* of regrets.
+
+All the time he had never been there. Separate problem.
+
+What could he solve now?
+
+He loved her.
+
+He wasn’t sure he would ever be able to stop that.
+
+It’s a fact. It’s a fact with unknowns, but a fact nonetheless. He could*n't* plan around her going anywhere any time soon, and he didn't want her to.
+
+Easy.
+
+He had feelings for Asuna.
+
+Already established.
+
+He-
+
+The headset crackled to life with Kenji’s voice: “Mimi, you’re favoring sides.”
+
+Hawthorn blinked and watched as Asuna’s smile flickered yet again. The next set of energetic shuffles and skips brought her out of his line of sight. The first few steps felt reluctant, like they lagged behind in rhythm by a beat.
+
+How long had she been there?
+
+For him?
+
+And he hadn’t even been watching.
+
+The vibrant glow of the glowsticks, the impossible size of the room, the perfectly balanced bass, the treble, Mimi’s voice crystal clear and perfect to every single pitch. It all crashed into him as if he had opened his eyes for the first time in years.
+
+This wasn’t just an event. This wasn’t just money.
+
+Even if Asuna talked about it as if it was just numbers, you don’t get to a venue like this off of just “milking your fans”.
+
+This was *fifty thousand people* who chose to spend a friday evening here for a woman who had spent *twelve years* working up to this moment.
+
+Hawthorn navigated his way through the crowds, bumping into more than his fair share of spectators. Most of which simply adjusted to let him by. Several minutes later he found a good terrace a floor up. Probably was a fire hazard for him to stand out against the railway instead of a seat, but that wa the venue’s problem and not his.
+
+**Asuna**
+
+Hawthorn was gone.
+
+Where he had stood earlier now stood two guys in Hatsune Miku wigs.
+
+Those aren’t even Mimi–
+
+You know what, whatever.
+
+Mimi made her way around the stage, building up hype for one final crescendo.
+
+Did Hawthorn get bored? The thought felt like a shard of glass in her heart. Which was silly. Nonsense.
+
+“One last confirmation: we’re going with the new encore?” Kenji asked through the headset.
+
+It was dumb.
+
+She was being dumb.
+
+She had spent weeks ignoring the man’s directive to “do nothing” to what… try to win him over with her voice? Romantic bullshit. Fucking delusional stories of “love” and illogical commitments that only left you immobilized by silly societal constraints of mutually assured destruction. It–
+
+Oh. Hawthorn’s there. He just moved.
+
+The glass melted, and her heart resumed normal operations.
+
+Mimi shifted into a full-body, forward-leaning wobble, arms extended. The thumbs-up was brief; only Kenji would pick it up from his monitor.
+
+**Hawthorn**
+
+Hawthorn almost left.
+
+Mimi jumped.
+
+The lights cut out on the last beat of the song.
+
+When they returned Mimi was gone.
+
+Hawthorn *nearly* pushed back through the chaos of the crowd.
+
+Except the crowd didn’t form. Everyone remained in their seats.
+
+The chaos was definitely there, though.
+
+They shouted, screamed, and clapped for more.
+
+Oh.
+
+Encore.
+
+**Asuna**
+
+Asuna’s thumb trembled against the plastic surface of the button. Her next breath came shaky.
+
+Nerves?
+
+It was dark beneath the stage. Nearly pitch black.
+
+Why was she nervous? It was a new song, sure, but… She’d done hundreds of new songs over the years.
+
+She focused on the chants. The cheers.
+
+Her eyes closed.
+
+She felt it. The rhythms.
+
+There was a pattern to it. A rise and swell as the energy of the crowd built like balloon over the dome, dripping in zealous static.
+
+They would love it.
+
+She was sure.
+
+This one wasn’t for them, though.
+
+“Now,” she said into the microphone. She pressed the button. The trap door above her opened, and she began to rise.
+
+**Hawthorn**
+
+The first notes arrived steady and faint as Mimi appeared above the stage.
+
+A slow song?
+
+The crowd's energy didn’t so much pop as it… evolved. A hush rippled through the stands, carrying tense anticipation.
+
+Hawthorn leaned forward against the rail.
+
+Asuna didn’t run. She didn’t jump. She didn’t do flips, cartwheels, poses.
+
+She walked.
+
+Right up to the edge of the stage.
+
+The first few measures rolled on, unhurried.
+
+And Asuna looked directly at Hawthorn.
+
+The hushed murmurs of the crowd pushed back; Hawthorn’s vision narrowed to that single spot on the stage where
+
+And she sang.
+
+<TODO: Write Asuna song about her take on Hawthorn’s relationship as Vanessa not as loss but as a life devoted.>
+
+Hawthorn’s lips parted as the words washed through him like a cleansing flame.
+
+This was for him.
+
+When had she had time to write it? He never even noticed–
+
+Of course he wouldn’t have noticed. He had been in his own fucking head.
+
+What else had he missed? No, that’s a question for later.
+
+Asuna’s hands lowered from her chest as the final notes echoed through the dome. They fell to her sides. For a few moments of full, hushed silence, Asuna and Hawthorn stared into each other’s eyes across the vast crowd.
+
+Then the crowd erupted.
+
+There was no doubt that this new sound from their beloved idol, debuted right here, live and in person, was an instant hit.
+
+Good for them.
+
+Hawthorn nodded back towards the back of the stage. Asuna gave a curt nod, then turned to give a last round of smiles and waves.
+
+**Asuna**
+
+The moment she stepped off the stage, a dozen or so stagehands rushed by to begin teardown. They barely registered in the dimmed edges of her vision.
+
+It felt like a dream. The way that song had just… flowed from her. No algorithm, no certainty. Just emotions. Dumb. Silly. Emotions.
+
+It was silence.
+
+But it didn’t scream.
+
+Another stagehand ran by. Sneakers against the floor, though the sound felt muffled to her.
+
+She should help, right?
+
+Those CO2 canisters needed storing. What happened to the burning truck? She was sure she could come up with some configuration of palettes that–
+
+“Miss Morita,” Kenji’s voice came from behind.
+
+Asuna looked over to find the man holding up a tablet. It had a checklist with a series of assigned names to various tasks.
+
+“We have it covered. You’re done,” Kenji said.
+
+She wanted to object. But no, she really didn’t.
+
+“Okay,” Asuna whispered.
+
+It felt like shackles she never knew she wore had snapped and fell to the ground.
+
+Even if for just one night, she was done. Nothing to do.
+
+Kenji had already left. So Asuna strolled slowly towards makeup. Lara would–
+
+“Y’all have some explainin’ to do,” Hawthorn’s voice came from the edge of the noise-canceling curtains.
+
+Lara could wait.
+
+“I have no idea what you’re talking about,” Asuna grinned as she stepped up.
+
+Before she knew what had happened, a firm hand pulled her by the waist into the dimly lit space between the curtains.
+
+Asuna’s breath caught as she found focused brown eyes looking down into hers.
+
+Hawthorn was smiling.
+
+And she was toe to toe with him.
+
+And his hand was spread across her back.
+
+Asuna swallowed.
+
+“There’s thirty or so–”
+
+“Y’all worried about them?”
+
+She probably should be. Mimi’s image and–
+
+“No,” she said before her mind caught up. “So, you liked it?”
+
+Hawthorn laughed. Actually laughed.
+
+“When did y’all have time to write that?”
+
+Asuna thought back to the many afternoons and evenings spent in the master bedroom, humming under her breath while Hawthorn showered. Hours of singing stanzas back in her head while they waited for ramen or the metro. The several emails back and forth with the synthesist.
+
+"I might be bad at vacation," she admitted. “I’m sorry.”
+
+“Y’all’re sorry?”
+
+Why *was* she sorry?
+
+“You said ‘do nothing’ and ‘work life balance’ and I don’t think I ever actually took a single moment to myself and I definitely sent work emails every two hours and I watched a bunch of V-Tubers because I think that that could be a–”
+
+“You owe me nothing,” Hawthorn said firmly.
+
+“But I hired you as–”
+
+“A consultant. A consultant who did a *very* bad job, and is going to correct that.”
+
+“But burnout is–”
+
+“We’ll talk ‘bout that later,” Hawthorn noted. “I have a joint venture proposal.”
+
+“I still don’t even have an answer to what I want to do, let alone where Project Galaxy is–”
+
+“Not about Project Galaxy.”
+
+Not about…
+
+Two firm fingers cupped under Asuna’s chin and tilted her head up.
+
+“I’m going to kiss you, Asuna.”
+
+She blinked.
+
+“What?” She said in Japanese.
+
+“I’m going to kiss you,” Hawthorn repeated in Japanese.
+
+“What?” she repeated.
+
+“Te voy a besar,” he said.
+
+“*What?*” She said. Hawthorn laughed, which still didn’t answer her question.
+
+“We should… What if Kenji needs help? Did the truck situation–”
+
+“Taken care of.”
+
+“The next event needs–”
+
+“Tomorrow problem.”
+
+“Vanessa is–”
+
+“Not going anywhere.”
+
+No, there were still so many unsolved problems.
+
+Every breath felt like it came with a burning rush.
+
+The complexities that came with this next step, she could see all of them. Would she lose her ability to do what she needed to do? Travel? Would he just travel with her? How did this work organizationally? Would he keep his own GK?
+
+She was coupling herself, right?
+
+Adding a dependency.
+
+Someone who–
+
+“Deep breaths, Asuna. Eyes on me,” Hawthorn said.
+
+Asuna gasped, and found brown eyes.
+
+Stable eyes.
+
+Back to the silence.
+
+She wanted the silence back.
+
+“I don’t want to drag you down with me,” Asuna whispered. “What if we’re just signing up for *both* of us to drown to burn out?”
+
+Hawthorn’s hand slid to her lower back and he grinned.
+
+“Then we burn together. *No regrets.*”
+
+The words seemed to fill their little pocket dimension between curtains. All other noise ceased to exist, mental and physical.
+
+Asuna closed her eyes.
+
+And took a breath.
+
+And let it out.
+
+“Okay,” Asuna whispered.
+
+Firm hands found her waist.
+
+And her feet left the ground.
+
+**Lara**
+
+Lara stepped through the frenzy of stagehands.
+
+She held a bottle of water in one hand and makeup remover in the other.
+
+Miss Morita had to be around here somewhere. She always got distracted by some side adventure on the way back to makeup after a show.
+
+And that boy. Sho?
+
+Also nowhere in sight.
+
+Shame.
+
+Oh well.
 
 The curtain rustled.
 
-¿*Qué?*
+The bottom of two dress shoes, facing nothing in particular, showed beneath the thick fabric.
 
-Lara's head tilted with parted lips as she cautiously moved to the end of the curtains and peeled them back.
+¿Qué?
+
+Lara cautiously moved to the end of the curtains and peeled them back.
 
 Her jaw dropped.
 
 Some ways down in the enclosed area stood the American.
 
-Mimi was not standing.
+Miss Morita was not standing.
 
-Mimi was held up by the waist, her own arms wrapped tightly around the man's torso.
+Miss Morita was held up by the waist with arms around the man’s neck.
 
-**Now, Lara was a fan of a good hug. Hugs solved a lot of things. She was sure Miss Morita could use a good hug. She was glad Miss Morita, and Mimi, for that matter, were getting a good hug.**
+Lara was a fan of a good hug. Hugs solved a lot of things. She was often convinced Miss Morita needed one. Honestly, the woman looked more peaceful than Lara had ever seen, so the hug was definitely doing some heavy lifting. Well, the American was doing the heavy lifting, Lara supposed.
 
-**She didn't know this American, but Lara was also sure that he could use a good hug. Who couldn't? Hugs were great.**
+No, what shocked Lara was more the way the two had their lips locked, and eyes closed as if the entire rest of the world had melted away. As if there was *not* an entire cleanup crew scurrying around them.
 
-**However, the locked lips and what appeared to be tongues down each other's throats was a tiny bit further than Lara would typically go with someone to brighten their day.**
+It sure would be awkward if someone saw them like this.
 
-Lara blinked.
+It would–
 
-She heard footsteps behind her. With a glance over her shoulder she found two other stagehands with their own dropped jaws gawking.
+“Are, Mimi to gaijin ka?”
 
-Oh.
+Lara slammed the curtains shut.
 
-This had gone from awkward to bad.
+Two other stagehands stood behind her, peeking over her shoulders.
 
-Lara would not have said anything; people kissing was their own business. But she knew nothing of these two.
+This was most certainly awkward.
 
-If this news got out, it could be the end of Mimi. Cultural expectations, as Lara understood it, were for Mimi's type of idol to be "pure". Distortion of that image, even though most fans likely suspected a twenty-nine-year-old had her share of experience, would risk damaging the brand. Right?
+Mr. Aizawa stepped next to them. “Nani desu ka?”
 
-Mr. Aizawa stepped into Lara's vision, and his own mouth fell open momentarily before he snatched the curtains and closed them.
+Lara stepped back and raised her hands. She did her best to hold back a smile at the amusing situation. Honestly, good for Miss Morita.
 
-He said something in Japanese to the two boys, who ran off, then turned to Lara.
+Mr. Aizawa pulled the curtain open, then shut it nearly immediately.
 
-He addressed Lara this time, in broken spanish. "Say nothing. Go home, Mimi is OK. You did no wrong. Will see you in the office this week."
+“Hoka ni mita mono wa iru ka?”
 
-Lara nodded and took a few steps from the scene with a smile.
+“Ren ga shashin totteta no, mita ki ga suru.”
 
-All expectations of finding the black shirt boy again tonight fled her mind as she ran off to leave the building.
+Mr. Aizawa’s fingers rose to his temples. “Kuso,” he whispered.
+
+Lara’s gaze bounced between each of them.
+
+Should she still worry about Mimi’s makeup?
+
+She was guessing no… but…
+
+“Hannyuguchi de Sho o tetsudatte kinasai,” Kenji said to the other two. They scampered off towards the back.
+
+He turned to Lara and said in English, “Go home. No trouble. Hawthorn will help from here.”
+
+Lara did *not* need to be told twice.
+
+She wanted to help more, but an excuse to get out early before Nonbei Yokocho started closing up was beyond perfect.
+
+The cute boy could wait.

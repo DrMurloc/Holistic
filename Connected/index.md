@@ -9,7 +9,7 @@
 - [Gamers](<Chapters/Gamers.md>)
 - [Anxiety](<Chapters/Anxiety.md>)
 - [Empty](<Chapters/Empty.md>)
-- [Vending Machine](<Chapters/Vending Machine.md>)
+- [Rehab](<Chapters/Rehab.md>)
 - [Church](<Chapters/Church.md>)
 - [Endgame](<Chapters/Endgame.md>)
 - [Clock](<Chapters/Clock.md>)

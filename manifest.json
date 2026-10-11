@@ -7,7 +7,7 @@
       "title": "Prologue",
       "markdownPath": "Connected/Chapters/Prologue.md",
       "docxPath": "Connected/WordDocs/Prologue.docx",
-      "markdownSha": "d8c2cefa6dbd9693c755bf1eda139aab38703bf0"
+      "markdownSha": "1055aecd83ff75c11a35e6216b196bc52381639c"
     },
     {
       "id": "bbefe3cfcec172cb",
@@ -16,7 +16,7 @@
       "title": "Armor",
       "markdownPath": "Connected/Chapters/Armor.md",
       "docxPath": "Connected/WordDocs/Armor.docx",
-      "markdownSha": "bf86108c1317a2c040b8f4a478bf5074032b43ac"
+      "markdownSha": "358f6d44da750f1a71ea85a7990797e2ef544f8b"
     },
     {
       "id": "4143bbba03563dac",
@@ -25,7 +25,7 @@
       "title": "Exposed",
       "markdownPath": "Connected/Chapters/Exposed.md",
       "docxPath": "Connected/WordDocs/Exposed.docx",
-      "markdownSha": "ee43c598686beb4fbb36a12bb1724084d5515c02"
+      "markdownSha": "99fca04a5e9a76b7e3d5be9e784cdf0d7b2df708"
     },
     {
       "id": "14fdfcd18fc625a7",
@@ -34,7 +34,7 @@
       "title": "Harmony",
       "markdownPath": "Connected/Chapters/Harmony.md",
       "docxPath": "Connected/WordDocs/Harmony.docx",
-      "markdownSha": "0824831cb7f0d029986dc45b6834eda2e51490e9"
+      "markdownSha": "9e91e612386f54f03208ace06c1e17b711b5152a"
     },
     {
       "id": "ee99f3adf9418338",
@@ -43,7 +43,7 @@
       "title": "Boxes",
       "markdownPath": "Connected/Chapters/Boxes.md",
       "docxPath": "Connected/WordDocs/Boxes.docx",
-      "markdownSha": "9d54fe85edf2523bce3636ff7091ad71e7b75c47"
+      "markdownSha": "497f8e228f56cf4c77144082421caebb72d2f78d"
     },
     {
       "id": "97f6326988c2ec17",
@@ -52,7 +52,7 @@
       "title": "Abnormal Psychology",
       "markdownPath": "Connected/Chapters/Abnormal Psychology.md",
       "docxPath": "Connected/WordDocs/Abnormal Psychology.docx",
-      "markdownSha": "5cdafa176bfe0db92af1f8ab52fa699b455f7511"
+      "markdownSha": "6d026162b5bd1c152ba08c2767700f7fca972e8b"
     },
     {
       "id": "bc7f24e90fa864bd",
@@ -70,7 +70,7 @@
       "title": "Anxiety",
       "markdownPath": "Connected/Chapters/Anxiety.md",
       "docxPath": "Connected/WordDocs/Anxiety.docx",
-      "markdownSha": "713992a4ef59443fdb61aafefd41abb255b08e26"
+      "markdownSha": "8d0e689dcc4eefce49eba23736b6fa1565119535"
     },
     {
       "id": "5335087389334fcb",
@@ -85,10 +85,10 @@
       "id": "43b804f47b755015",
       "book": "Connected",
       "number": 9,
-      "title": "Vending Machine",
-      "markdownPath": "Connected/Chapters/Vending Machine.md",
-      "docxPath": "Connected/WordDocs/Vending Machine.docx",
-      "markdownSha": "804666e7ebbaf2205941eeb659d59cc3e4042775"
+      "title": "Rehab",
+      "markdownPath": "Connected/Chapters/Rehab.md",
+      "docxPath": "Connected/WordDocs/Rehab.docx",
+      "markdownSha": "14016e03db676d8ee6de69d72efe71fd95e73cce"
     },
     {
       "id": "b6db5cc5fc5316e0",
@@ -106,7 +106,7 @@
       "title": "Endgame",
       "markdownPath": "Connected/Chapters/Endgame.md",
       "docxPath": "Connected/WordDocs/Endgame.docx",
-      "markdownSha": "e79d0cad3eed74e862db7fe14b55e4f54b230e24"
+      "markdownSha": "edb381ace7fbda78cec4d9f09abb5929d679257d"
     },
     {
       "id": "c364d28a2c1c0854",
@@ -115,7 +115,7 @@
       "title": "Clock",
       "markdownPath": "Connected/Chapters/Clock.md",
       "docxPath": "Connected/WordDocs/Clock.docx",
-      "markdownSha": "6af65d9ba2e64ef40ef446955685fbc1ffb3ae56"
+      "markdownSha": "f758efabdfcb17d00062c4199d91b6b4d3f128d6"
     },
     {
       "id": "66b10b788bf57765",
@@ -124,7 +124,7 @@
       "title": "Octopus",
       "markdownPath": "Connected/Chapters/Octopus.md",
       "docxPath": "Connected/WordDocs/Octopus.docx",
-      "markdownSha": "210e98918794ca86bafe5a02076a994eecf6ebfd"
+      "markdownSha": "ef8f051a24614eac8420631eb8ae9566f8172e3f"
     },
     {
       "id": "c70e7bda6db9d7ce",
@@ -151,7 +151,7 @@
       "title": "Suspended",
       "markdownPath": "Connected/Chapters/Suspended.md",
       "docxPath": "Connected/WordDocs/Suspended.docx",
-      "markdownSha": "792e6fdc3cb041e1c0ce3880a8e3a66fece31d93"
+      "markdownSha": "37635f1ba3cc1603f8fb9f549201dedb6accf3df"
     },
     {
       "id": "42e344d56830a566",
@@ -160,7 +160,7 @@
       "title": "Kidnapped",
       "markdownPath": "Connected/Chapters/Kidnapped.md",
       "docxPath": "Connected/WordDocs/Kidnapped.docx",
-      "markdownSha": "62e387e3a545fdfd566e280902ebff30f07578e2"
+      "markdownSha": "23dcdc1ee348b315dedfaf0c65fb172fcbd426cc"
     },
     {
       "id": "897bb763248413b5",
@@ -169,7 +169,7 @@
       "title": "Mimi",
       "markdownPath": "Connected/Chapters/Mimi.md",
       "docxPath": "Connected/WordDocs/Mimi.docx",
-      "markdownSha": "64592c7b503761b5c97dd0753924c837b5a4e0da"
+      "markdownSha": "3a7ad9b675a81b137f5de66d34faa8994ff15e4c"
     },
     {
       "id": "59ac91fc3b6bfe96",
@@ -214,7 +214,7 @@
       "title": "Tree",
       "markdownPath": "Connected/Chapters/Tree.md",
       "docxPath": "Connected/WordDocs/Tree.docx",
-      "markdownSha": "a6c26130805c514f3bd5f0de64c9914a57826d59"
+      "markdownSha": "4cd1142382b6a6375286db9ef4ab02c4815c5f39"
     },
     {
       "id": "1e26344aa45b7516",
@@ -232,7 +232,7 @@
       "title": "Phone Ring",
       "markdownPath": "Connected/Chapters/Phone Ring.md",
       "docxPath": "Connected/WordDocs/Phone Ring.docx",
-      "markdownSha": "3ffe60c74c6b38f0297d13cd82ef8c3332e78d5d"
+      "markdownSha": "e111098b95b8e8f41c5efbafcd0774b9826eef92"
     },
     {
       "id": "624ccd8daa7aaf34",
@@ -241,7 +241,7 @@
       "title": "Distracted",
       "markdownPath": "Connected/Chapters/Distracted.md",
       "docxPath": "Connected/WordDocs/Distracted.docx",
-      "markdownSha": "b2bc9d0b153ea1b8bc5bdb5f5a22b2d56e9e49b3"
+      "markdownSha": "b139083e0e017a34eaeb5435501bd65036281dd2"
     },
     {
       "id": "3a7ea04789c6abdc",
@@ -286,7 +286,7 @@
       "title": "Romance",
       "markdownPath": "Connected/Chapters/Romance.md",
       "docxPath": "Connected/WordDocs/Romance.docx",
-      "markdownSha": "42a36ed797162b8041dd81e4c84cd3def0dd6ee4"
+      "markdownSha": "e9bf9165d3aa8990b33bddc36619a52a8bc0ef7a"
     },
     {
       "id": "fe79793559cfeca9",
@@ -313,7 +313,7 @@
       "title": "Never Sleeps",
       "markdownPath": "Connected/Chapters/Never Sleeps.md",
       "docxPath": "Connected/WordDocs/Never Sleeps.docx",
-      "markdownSha": "d3dffc9dbe9aa7e0336f7cb2ed08d7c9ec403b56"
+      "markdownSha": "2ce7ea962ff4d8a7d8fb0d30286083be640e7723"
     },
     {
       "id": "dd85119b1091e97d",

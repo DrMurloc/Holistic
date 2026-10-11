@@ -1,3 +1,5 @@
+## Exposed
+
 **Cale**
 
 Cale readied himself as the coaster docked.
@@ -14,7 +16,7 @@ Well, that part he looked forward to.
 
 What was wrong with him?
 
-But Cale had most *certainly* given *any* and *all* control to Astrid.
+But Cale had most certainly given any and all control to Astrid.
 
 The harness released, and Astrid beat him out of her seat.
 
@@ -24,7 +26,7 @@ Seats around them clacked open, and feet met metal. The rest of the row emptied,
 
 He studied the hand, suddenly feeling as if he were on the opposite side of this not-date. Had Astrid... maybe... not heard him? It was unlikely.
 
-"I *know* you're not so frazzled as to be in shock. Come on, we have at *least* two more." The smile she gave was... encouraging?
+“I *know* you’re not so frazzled as to be in shock. Come on, we have at *least* two more.” The smile she gave was... encouraging?
 
 Cale accepted the hand as if it would electrify him and lifted himself out of the seat.
 
@@ -32,7 +34,7 @@ No.
 
 Astrid had to be saving it, ammunition to use later.
 
-Or she was saving face... Just don't acknowledge it, and it can't hurt you, right?
+Or she was saving face... Just don’t acknowledge it, and it can’t hurt you, right?
 
 His mind raced; none of the possibilities sounded right.
 
@@ -40,9 +42,9 @@ His mind raced; none of the possibilities sounded right.
 
 They rapidly descended the stairs, feet barely connecting with each step before moving to the next.
 
-Cale realized that his own armor had apparently been shaken off during the ride.
+Cale realized that his own armor had shaken off during the ride.
 
-His eyes studied Astrid, but the confident smirk was gone, leaving something more flat and analytical. His chest rose and fell with slow and deliberate breaths.
+He studied Astrid, but his confident smirk was gone, leaving something more flat and analytical. His chest rose and fell with slow and deliberate breaths.
 
 He felt exposed in ways he never could quite name in this state.
 
@@ -50,25 +52,25 @@ But right now, having possibly thrown an entire decade of effort out the window 
 
 As soon as they had emerged back into the main path, Astrid pointed, interrupting his ruminations.
 
-"That."
+“That.”
 
 Cale's gaze turned as he took in their next battleground.
 
-It was a walkthrough haunted house with a few actors who would pop in and out of rooms. Its budget didn't seem to be quite up to par with the rest of the park.
+It was a walkthrough haunted house with a few actors who would pop in and out of rooms. Its budget didn’t seem to be quite up to par with the rest of the park.
 
 Was that *duct tape* holding that window frame in?
 
-Cale stated flatly, "You're *trying* to kill me."
+Cale stated flatly, “You’re trying to kill me.”
 
 His heart was having trouble settling for multiple reasons, but he let himself get dragged along.
 
 There was only one group in line in the fast-pass lane.
 
-pAccording to the sign, each group had about two minutes per room, and a light would indicate when it was time to go into the next room.
+According to the sign, each group had about two minutes per room, and a light would indicate when it was time to go into the next room.
 
-His eyes turned back to Astrid, tuning out a scream that escaped the building.
+He turned back to Astrid, tuning out a scream that escaped the building.
 
-Her eyes were soft, wearing that faint, minimal, and slightly empty smile.
+Her eyes were soft, mirroring that faint, minimal, and slightly empty smile.
 
 Was she exhausted?
 
@@ -80,17 +82,19 @@ In any case, here they stood, both exposed and vulnerable.
 
 It was currently Astrid's move; he needed to figure out what it would be so he could prepare.
 
-"I didn't know you were into horror." He cautiously eyed the first set of doors as the group in front of them entered.
+“I didn’t know you were into horror.” He cautiously eyed the first set of doors as the group in front of them entered.
 
-"I think you'll find I have my own surprises too." Her face continued to betray no emotions.
+“I think you’ll find I have my own surprises too.” Her face continued to betray no emotions.
 
-This was not one of her usual moves to position him for humiliating revenge. There'd be no one in there... except the actors, but that wouldn't be satisfying for her; she'd want a crowd if embarrassment was her angle.
+This was not one of her usual moves to position him for humiliating revenge. There’d be no one in there... except the actors, but that wouldn’t be satisfying for her; she’d want a crowd if embarrassment was her angle.
 
-He continued to study her, but she wouldn't make eye contact.
+He continued to study her, but she wouldn’t make eye contact.
+
+Like a swan.
+
+Probably.
 
 Her finger began drawing circles on his palm.
-
-Yet again, he found himself comforted. The relief was short-lived, though, as his mind raced through identifying Astrid's goal.
 
 Was this like the roller coaster?
 
@@ -100,15 +104,15 @@ His time to contemplate came to an end as the light turned green, and the attend
 
 The sudden shift in light left his eyes blinded.
 
-Astrid's hand slipped out of his, and he could hear her shuffle ahead.
+Astrid’s hand slipped out of his, and he could hear her shuffle ahead.
 
-As his vision began to return, he couldn't quite understand the shapes that presented themselves. He could make out... two blue circles? How far away were those? The wall felt so close. How big was this room?
+As his vision began to return, he couldn’t quite understand the shapes that presented themselves. He could make out... two blue circles? How far away were those? The wall felt so close. How big was this room?
 
-There was an intermittent current in the air warming his chin; it carried Astrid's scent with it.
+There was an intermittent current in the air warming his chin; it carried Astrid’s scent with it.
 
 And... hair. Blonde hair... the blue ribbon...
 
-Cale's breath hitched, and every hair on his body stood on end.
+Cale’s breath hitched, and every hair on his body stood on end.
 
 Astrid stood a mere foot away, eyes trained on his, with a smile that carried a level of predatory possessiveness that made Cale question if he was the player or the prize.
 
@@ -122,9 +126,9 @@ A hand found his hip, a point of contact that in one moment reframed every defin
 
 Her eyes locked onto his, leaving him feeling captured.
 
-"Astrid?" He didn't know what else to say.
+“Astrid?” He didn’t know what else to say.
 
-Her head shook lightly as she spoke softly, her voice cut through Cale's held breath, "No. No more banter. No more pretending. We both know what this is."
+Her head shook lightly as she spoke softly, her voice cut through Cale's held breath, “No. No more banter. No more pretending. We both know what this is.”
 
 His own hands subconsciously moved to her waist, gripping her lightly as if any more pressure would break this unimaginable moment.
 
@@ -158,6 +162,8 @@ There was no city.
 
 The world, the *entire* universe, blinked out of existence. The multiverse itself seethed, entire timelines warped, reorienting around this one moment of sensual impossibility.
 
+**Not a metaphor, for what it’s worth.**
+
 He had done it!
 
 No, *they* had done it.
@@ -182,15 +188,15 @@ They only had two minutes, right?
 
 Cale was pretty confident that "five eternities" was *slightly* longer than two minutes. But he needed at least another hundred before he could begin even contemplating ending the moment.
 
-A shuffle of feet could be heard from a distant corner of the room, snapping some section of reality back into place.
+A shuffle of feet from a distant corner of the room, snapping some section of reality back into place.
 
-A muffled voice came from a closet that Cale could barely make out. "Uh... do you... do you still want me to jump out?"
+A muffled voice came from a closet that Cale could barely make out. “Uh... do you... do you still want me to jump out?”
 
 The two separated, quite reluctantly.
 
-Astrid's wide blue eyes, still keeping Cale's own gaze frozen in place, managed to radiate even in the dim light above still-parted lips.
+Astrid’s wide blue eyes, still keeping Cale's own gaze frozen in place, managed to radiate even in the dim light above still-parted lips.
 
-"I... think we are fine. I... *we* appreciate the offer," Astrid said loud enough for the concealed man to hear.
+“I... think we are fine. I... *we* appreciate the offer,” Astrid said loud enough for the concealed man to hear.
 
 There was no response, leaving the two in a momentary state of stasis as they collectively gathered their rational senses.
 
@@ -202,17 +208,17 @@ Cale wasn't quite sure how either of them was actually walking. His body was on 
 
 A series of creepy masks lined the wall, witnessing this evolution, and a large warped mirror cast distorted images of the new couple.
 
-"You heard me." Cale finally asserted as the doors closed behind them.
+“You heard me. On the coaster,” Cale finally asserted as the doors closed behind them.
 
-Astrid smiled at the floor, letting go of his hand and moving to contemplate her reflection. "Cale, really, still pretending like either of us had no clue?"
+Astrid smiled at the floor, letting go of his hand and moving to contemplate her reflection. “Cale, really, still pretending like either of us had no clue?”
 
-Her image stretched, and Cale's eyes were drawn to the magnified skin of her neck.
+Her image stretched, and Cale’s eyes were drawn to the magnified skin of her neck.
 
-His hand rose to rub his chin in contemplation. "Oh, we can talk about it now?"
+His hand rose to rub his chin in contemplation. “Oh, we can talk about it now?”
 
 He began a slow pace towards her, focused on the exact spot he had been contemplating the entire day.
 
-"Yes."
+“Yes.”
 
 And with that single word, the game was over.
 
@@ -222,11 +228,11 @@ It felt like the world blossomed open; entire branches of conversations and topi
 
 And, *very* importantly, he could *touch* her.
 
-His hands found their place on her hips as he came to a stop immediately behind her. "You said it's not a date."
+His hands found their place on her hips as he came to a stop immediately behind her. “You said it’s not a date.”
 
 To his distinct satisfaction, she leaned back into him.
 
-"It most certainly is not a date. I would never stoop as low as to have a first date as lame as an amusement park." She looked over her shoulder, attempting to meet his gaze but coming short.
+“It most certainly is not a date. I would never stoop as low as to have a first date as lame as an amusement park.” She looked over her shoulder, attempting to meet his gaze but coming short.
 
 The position left her neck exposed, and Cale tested his new limits, lowering his lips to beneath her ear and exhaling softly.
 
@@ -238,9 +244,9 @@ Actually.
 
 Her eyes did, in fact, flutter shut, from what Cale could see in the mirror.
 
-The distorted image it cast of their position sent a whole new surge of thoughts through Cale's mind, none of which he dared follow through so soon, let alone in an amusement park attraction.
+The distorted image it cast of their position sent a whole new surge of thoughts through Cale’s mind, none of which he dared follow through so soon, let alone in an amusement park attraction.
 
-He settled on a soft kiss before finally responding, "No, you're right. This would be a lame date."
+He settled on a soft kiss before finally responding, “No, you’re right. This would be a lame date.”
 
 He teasingly exhaled on her neck one more time, pulling back and stepping backward towards the masks.
 
@@ -270,37 +276,37 @@ She began to double over, holding her stomach.
 
 Cale cycled through several deep breaths. He was more than frustrated at the third-party intervention on what had been a significant power play. However, he ultimately found himself laughing, too.
 
-"You picked a hell of an attraction for this revelation, Astrid."
+“You picked a hell of an attraction for this revelation, Astrid.”
 
 Astrid took her own few breaths and steadied herself. Cale could make out the remnants of tears beneath her eyes.
 
-"I couldn't wait any longer." She shook her head, approaching him and wrapping her body around his arm. Yet another new type of contact was discovered; these were simply pleasant.
+“I couldn’t wait any longer.” She shook her head, approaching him and wrapping her body around his arm. Yet another new type of contact was discovered; these were simply pleasant.
 
-"Wait, how long did you know?" Cale asked.
+“Wait, how long did you know?” Cale asked.
 
 The light turned green, allowing her to delay her response as they moved to the next room.
 
 A light mist rolled over their feet as they entered. It was an attempt to create a swampy atmosphere, with tall fake grass on one side clearly hiding a device that would pop up. Cale took note of its location.
 
-"About which part?" she finally asked.
+“About which part?” she finally asked.
 
 She removed herself from him to study the fake grass, poking and pinching it while avoiding eye contact.
 
-Cale took his spot leaning by the door frame, hands in pockets. His eyes were trained on his... well, his girlfriend.
+Cale took his spot leaning by the door frame, hands in pockets. His eyes were trained on his... well, his girlfriend. Right? Probably. He’d look that definition up later.
 
-He contemplated her question, then went with the simpler half, "The objective today."
+He contemplated her question, then went with the simpler half, “The objective today.”
 
-"Cale, in what world would Leo need an 'urgent' appearance at the park? If May and he were having a fight again, he could just exchange the tickets for another day."
+“Cale, in what world would Leo need an ‘urgent’ appearance at the park? If May and he were having a fight again, he could just exchange the tickets for another day.”
 
 The fog swirled around her as she turned to study a poorly made swamp creature figure on the side.
 
-She still thought this was Leo's doing. Cale could begin showing cards now, right?
+She still thought this was Leo's doing. Cale began to pick up his cards from the floor. He could show them now, right? Well, most of them.
 
-"Ah. Check the refund policy. An oversight on my part."
+“Ah. Check the refund policy. An oversight on my part."
 
-She turned, the cogs working once again. "On *your* part?" Her face contorted in contemplation, a hand stroking her mouth gently in thought.
+She turned, the cogs working once again. “On *your* part?” Her face contorted in contemplation, a hand stroking her mouth gently in thought.
 
-Cale found his eyes drifting to the motion.
+The motion was a magnet to Cale’s eyes.
 
 *I kissed those lips...*
 
@@ -308,23 +314,23 @@ The device behind the grass sprang, and a small swamp creature screamed as it wa
 
 Cale yelled and jumped again, but Astrid stood unfazed, deep in thought.
 
-"Seriously, there *has* to be a better place for this," Cale said between gasps for breath.
+“Seriously, there *has* to be a better place for this,” Cale said between gasps for breath.
 
-Astrid wasn't listening.
+Astrid wasn’t listening.
 
-"I thought you just decided to be nice today... What..." She finally looked up at him, eyes narrowed. "What changed? After ten years, why set this up now? Don't tell me you only now realized this dumb dance we've been doing our whole life was a charade for our personal incapability to accept a meaningful connection."
+“I thought you just decided to be nice today... What...” She finally looked up at him, eyes narrowed. “What changed? After ten years, why set this up now? Don’t tell me you only now realized this dumb dance we’ve been doing our whole life was a charade for our personal incapability to accept a meaningful connection."
 
-Her cheeks turned that heartwarming rose hue, "Well, at least that's what my therapist said."
+Her cheeks turned that heartwarming rose hue, “Well, at least that’s what my therapist used to say.”
 
-What changed... It really wasn't worth weighing her down with the details. It would hurt her, and he didn't want that.
+What changed... His fingers drummed against the phone in his pocket. He caught himself and stilled his fingers before Astrid could notice.
 
 Not now.
 
 Best to deflect.
 
-"I'm sorry I caused you to need therapy," Cale said.
+“I’m sorry I caused you to need therapy,” Cale said.
 
-"Oh, don't be full of yourself, I had therapy for a ton of reasons that aren't you." She reddened even further, "That's not what I meant. You know what I mean. Therapy was dumb anyway. They just kept asking about my feelings. I don't even-" she paused, "You will forget I said *any* of that."
+“Oh, don’t be full of yourself, I had therapy for a ton of reasons that aren’t you.” She reddened even further, “That’s not what I meant. You know what I mean. You will forget I said *any* of that.”
 
 The glare she gave would have won wars, but she had been successfully deflected.
 
@@ -332,19 +338,19 @@ He walked over and took her hand gently, and she softened into a smile.
 
 The light turned green, and they moved into the next room. This was designed to look like a broken-down shack, with creepy red eyes peering through broken boards.
 
-Cale's eyes gravitated back to Astrid's lips. A coy smile snuck across his face, "Just so I'm sure it wasn't a construct in my mind due to a case of prolonged elevated heart rate, we *did* kiss, right?"
+Cale’s focus gravitated back to Astrid’s lips. A coy smile snuck across his face, "Just so I’m sure it wasn’t a construct in my mind due to a case of prolonged elevated heart rate, we *did* kiss, right?”
 
-She studied his smile and returned it, "You're an idiot."
+She studied his smile and returned it, “You’re an idiot.”
 
 Astrid stepped up and pressed her lips against his again. There was no hesitation this time, and their arms wrapped around one another in a full embrace.
 
-Cale pulled his head back, finding her eyes and speaking softly, "I think this is the part where I double-check that this isn't a dream?"
+"I think this is the part where I double-check that this isn’t a dream?" He murmured the words against her lips.
 
-Astrid maintained a soft smile and shook her head, "It would be so lame if you did."
+Astrid ran a thumb along his jaw before settling her palm against his cheek. “It would be so lame if you did.”
 
-Cale grinned, "I really hope I don't wake up to find myself in the hospital after a freak roller coaster accident."
+Cale grinned and nuzzled into the warm caress of her hand, “I really hope I don’t wake up to find myself in the hospital after a freak roller coaster accident.”
 
-"Lame." Astrid chuckled softly, then pressed her lips back against his.
+“Lame.” Astrid, then pressed her lips back against his.
 
 It was a moment of bliss.
 
@@ -354,25 +360,21 @@ A sudden yell and a whirring of a chainsaw cut through as a woman in a mask jump
 
 Cale challenged his previously set world record, jumping a foot in the air with yet another full-blown scream. Astrid laughed, shaking both of their bodies while remaining embraced.
 
-The woman raised her mask, "Oh my God, I'm so sorry, it's so hard to see out of this." She apologized multiple times, slowly backing away.
+The woman raised her mask, “Oh my God, I’m so sorry, it’s so hard to see out of this.” She apologized multiple times, slowly backing away.
 
-"No, no, no, forgive this idiot. He thought a haunted house was a good environment to make a move." Astrid continued to laugh.
+“No, no, no, forgive this idiot. He thought a haunted house was a good environment to make a move.” Astrid continued to laugh.
 
-"Wait, what, *me*?" Cale started, "Nope, Cale out. I'm done with this place."
+“Wait, what, *me*?” Cale started, “Nope, Cale out. I’m done with this place.”
 
-He removed himself from Astrid and pushed through the next door, which had a faint outline of the outside light.
+He removed himself from Astrid and pushed through the next door, which had a faint outline of the outside light. He felt a hand take his as he blinked away the sun. The rumblings, chatter, and shrieks of the park drifted back in as a distant murmuring backdrop to what he had just emerged from.
 
-The light blinded him momentarily, but he felt a hand take his as he blinked away the sun. The rumblings, chatter, and shrieks of the park drifted back in as a distant murmuring backdrop to what he had just emerged from.
+“You’re too easy to mess with. I’m sorry. I should stop.” Astrid leaned her head against his shoulder briefly before they continued back to aimless walking.
 
-"You're too easy to mess with. I'm sorry. I should stop." Astrid leaned her head against his shoulder briefly before they continued back to aimless walking.
-
-"The hell you will." He said absentmindedly. The weight of his phone had returned now that their rather... emotional... encounter had ended.
+“The hell you will.” He said absentmindedly.
 
 "You *do* enjoy it, I *knew it!*" Astrid laughed, though the noise barely registered.
 
-He nodded slowly, but his eyes were back on the haunted house.
-
-It appeared so small now, considering how significant a change occurred in it.
+He nodded slowly, but his eyes were back on the haunted house. It appeared so small now, considering how significant a change occurred in it.
 
 Everything felt so... normal.
 
@@ -400,13 +402,13 @@ He didn't like the look on her; it did complicated things with his heart.
 
 Cale's lips had apparently parted slightly in contemplation. He promptly shook his head and snapped his mouth shut, regaining his composure.
 
-"It's almost six. We need one more." Cale pointed out.
+“It’s almost six. We need one more.” Cale pointed out.
 
-"And then?"
+“And then?”
 
-Cale took a deep breath, "Well. This is obviously not a date. That would be... lame..." He paused, double-checking himself to confirm his certainty about his next move.
+Cale took a deep breath, “Well. This is obviously not a date. That would be... lame...” He paused, double-checking himself to confirm his certainty about his next move.
 
-The game had, in fact, changed; he would need to be cautious while he learned the rules. This would require a lot of on-the-fly thinking until he had some time alone.
+The daylight felt like it brought with it the reality that both he and Astrid had taken a big leap of faith, and he wasn’t really sure he was worth her having taken it. The game had, in fact, changed; he would need to be cautious while he learned the rules. This would require a lot of on-the-fly thinking until he had some time alone.
 
 Wait... he was doing it again. Or was he?
 
@@ -414,39 +416,39 @@ Wait... he was doing it again. Or was he?
 
 One thing was for sure: he was *not* done spending time with her today.
 
-He played the card, "Would you accompany me to dinner so we could officially have a date?"
+He played the card, “Would you accompany me to dinner so we could officially have a date?”
 
-"What, like a Chili's or something?" She smirked.
+“What, like a Chili’s or something?” She smirked.
 
-He paused, "Something like that."
+He paused, “Something like that.”
 
-**For those of you who just exhaled a frustrated sigh: me too. Or, rather, the closest thing to a sigh I can muster.**
-
-**They'll get there, though it will likely take some intervention from Diego or Naina.**
-
-"Fine. Yes. Cale. I will still graciously accept your offer to accompany you to Chili's as a proper date." She smiled and squeezed his hand.
+“Fine. Yes. Cale. I will still graciously accept your offer to accompany you to Chili’s as a proper date.” She smiled and squeezed his hand.
 
 The phone came out.
 
-The message Cale had written that morning glared up at him. With two button taps, it was deleted, and he exhaled the breath he hadn't realized he still held.
+He didn’t even give the drafted email the luxury of rendering its body. Two button taps, and it was gone.
 
-Was it that easy? Was that it? There was technically still about an hour left for him to change his mind...
+Was it that easy? Was that it?
 
-His eyes turned up to Astrid, who was pretending to check her nails, clearly holding any signs of curiosity about where they were destined for tonight.
+Adapt and iterate. No regrets.
 
-The phone rose to his ear as it began to ring, "Hi, yes, I'm calling about the Drab reservation at 7 PM. I've had a change in plans. Would the chef be able to accommodate one more? Wonderful. Yes, two glasses. Appreciate it, see you soon."
+His eyes turned up to Astrid, who was pretending to check her nails, clearly withholding any signs of curiosity about where they were destined for tonight.
 
-Astrid didn't look up at first, "A chef, fancy. I'm assuming I can expect a bit more than a Chili's."
+The phone rose to his ear as it began to ring. “Hi, yes, I’m calling about the Drab reservation at 7 PM. I’ve had a change in plans. Would the chef be able to accommodate one more? Wonderful. Yes, two glasses. Appreciate it, see you soon.”
 
-"Slightly."
+Astrid didn’t look up immediately. “A chef, fancy. I’m assuming I can expect a bit more than a Chili’s.”
 
-Lips pursed as her eyes darted in an attempt to grab his.
+“Slightly.”
 
-She finally groaned and caved, "Cale, am I underdressed? Where are we going? Are *you* underdressed? Don't tell me you're going to slap on a blazer and pretend that's socially acceptable at a fine dining establishment."
+“You are doing that thing where you undersell the gravity of- Cale. Cale.”
 
-She knew him too well.
+Astrid leaned a few times, attempting to catch Cale’s gaze. He dodged each attempt with a growing amused smile.
 
-He simply winked and avoided her questions, "OK, we need one more. Preferably a short line, and something a bit more low-key to let my heart recover."
+“You think swans are predatory?” He deflected.
+
+“Do I think- No! What kind of idiotic-” Astrid groaned and finall fully caved, “Cale, am I underdressed? Where are we going? Are *you* underdressed? Don’t tell me you’re going to slap on a blazer and pretend that’s socially acceptable at a fine dining establishment.”
+
+He simply winked and avoided her questions, “OK, we need one more. Preferably a short line, and something a bit more low-key to let my heart recover.”
 
 A groan, and she gave up, looking around for whatever the closest attraction would be.
 
@@ -454,54 +456,52 @@ Their gazes both fell on it at the same time.
 
 The sign "Tunnel of Love" loomed nearby as if placed there specifically for them.
 
-With heads turned away, their eyes met in a brief game of chicken; they both lost at the same time.
+“We would never stoop that low,” Astrid said, taking a step towards the ride.
 
-"We would never stoop that low," Astrid said, taking a step towards the ride.
-
-"Never. Honestly, it would be an embarrassment spread across the nation if we were to be caught in there." He mirrored her step.
+“Never. Honestly, it would be an embarrassment spread across the nation if we were to be caught in there.” He mirrored her step.
 
 After another brief shared glance, they began to move forward as one.
 
-"I can't believe they even have one of these. I thought they all disappeared after the '90s." Astrid noted.
+“I can’t believe they even have one of these. I thought they all disappeared after the '90s.” Astrid noted.
 
-"Clearly a poor investment on their part, it can't possibly bring in enough revenue to warrant the upkeep." Cale nodded.
+“Clearly a poor investment on their part, it can’t possibly bring in enough revenue to warrant the upkeep.” Cale nodded.
 
-"They really expect that a 'ride' designed to just give you space to be all lovey-dovey would be an efficient use of space?" Astrid groaned.
+“They really expect that a ‘ride’ designed to just give you space to be all lovey-dovey would be an efficient use of space?” Astrid groaned.
 
 The couple walked through the empty line.
 
-"What do they expect people to do? Just kiss? Like, get a room." Cale chuckled.
+“What do they expect people to do? Just kiss? Like, get a room.” Cale chuckled.
 
 They shared faint smiles, hands held and swinging between them.
 
-"Clearly that's what haunted houses are for," Astrid smirked. Cale couldn't help but think she stole that smirk from him.
+“Clearly that’s what haunted houses are for,” Astrid smirked. Cale couldn't help but think she stole that smirk from him.
 
-"OK, no, we are *not* repeating that again," Cale said with a shudder.
+“OK, no, we are *not* repeating that again,” Cale said with a shudder.
 
-"Is that an *actual* swan boat? This is so unbelievably tacky." She said.
+“Is that an *actual* swan boat? This is so unbelievably tacky.” She said.
 
 The attendant nodded in agreement.
 
-Astrid twisted her face in disgust at the chipped beak and scuffed paint of the clearly neglected boat. The sharp scent of chlorine enveloped them as Cale stepped in.
+“Hey, it all comes full circle,” Cale noted.
 
-"Anyone who would give in to something so absurdly cheesy would have to be an idiot." Cale agreed, helped her into the boat, and then sat down.
+“*What* comes full circle?”
 
-"You *were* the one to orchestrate all this. So absolutely an idiot." Astrid nodded.
+“Swans,” Cale nodded.
 
-"But you know what's scarier than the haunted house?" Cale smirked.
+“You and Zoey are on a completely different wavelength from the world, I swear.” Astrid twisted her face in disgust at the chipped beak and scuffed paint of the clearly neglected boat. The sharp scent of chlorine enveloped them as Cale stepped in. “She is *not* to hear of this; it is beneath me, and I would like to not spend her next summer break listening to her made-up over-the-top stories about us in swan boats.”
 
-"I'll bite. What do you have?" An eyebrow raised.
+Zoey was most certainly going to hear about this.
 
-"Now, I'm *your* idiot." Cale put an arm around her shoulders.
+“You are clearly above it. Anyone who would give in to something so absurdly cheesy would have to be an idiot.” Cale agreed, helped her into the boat, and then sat down.
 
-Her eyes rolled so hard he was worried they'd tip the boat over, but her smile only deepened.
+“You *were* the one to orchestrate all this. So absolutely an idiot.” Astrid nodded.
 
-He was enjoying these new rules. They were familiar, but most certainly an improvement.
+“But you know what’s scarier than the haunted house?” Cale smirked.
 
-"You are going to single-handedly keep my therapist in business."
+“I’ll bite. What do you have?” An eyebrow raised.
 
-Any response he could muster was cut short as she leaned forward into another kiss.
+“Now, I’m *your* idiot.” Cale put an arm around her shoulders.
 
-An arm wrapped around his lower back, pulling him closer, and they once again melted into each other, continuing to let ten years of repressed feelings leak out in a prolonged, profound, passionate moment.
+The eye roll almost tipped the boat over.
 
 It was three laps before the attendant finally made them get off.
